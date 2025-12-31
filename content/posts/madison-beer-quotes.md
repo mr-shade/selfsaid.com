@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of Madison Beer quotes that encourage confidence, authenticity and personal growth in your daily life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/madison-beer-quotes/"
+original_url: "https://selfsaid.pages.dev/madison-beer-quotes/"
 ---
 
-![Madison Beer in concert](https://seffsaid.com/wp-content/uploads/madison-beer-quotes.webp)
+![Madison Beer in concert](https://selfsaid.pages.dev/wp-content/uploads/madison-beer-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

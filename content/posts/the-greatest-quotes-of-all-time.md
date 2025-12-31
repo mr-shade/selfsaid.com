@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover a hand-picked collection of the greatest quotes of all time from some of the greatest authors who have ever lived."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/the-greatest-quotes-of-all-time/"
+original_url: "https://selfsaid.pages.dev/the-greatest-quotes-of-all-time/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/greatest-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/greatest-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

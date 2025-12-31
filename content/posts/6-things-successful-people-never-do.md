@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Want to be successful? Discover the 6 things that highly successful people never ever do."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/6-things-successful-people-never-do/"
+original_url: "https://selfsaid.pages.dev/6-things-successful-people-never-do/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Things-Successful-People-Never-Do.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Things-Successful-People-Never-Do.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

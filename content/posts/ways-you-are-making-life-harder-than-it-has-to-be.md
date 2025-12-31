@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Life's Hard Enough – Don’t Make It Worse! Identify the 16 habits holding you back from a happier, simpler life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/ways-you-are-making-life-harder-than-it-has-to-be/"
+original_url: "https://selfsaid.pages.dev/ways-you-are-making-life-harder-than-it-has-to-be/"
 ---
 
-![Frustrated man staring at his phone](https://seffsaid.com/wp-content/uploads/Ways-You-Are-Making-Your-Life-Harder.webp)
+![Frustrated man staring at his phone](https://selfsaid.pages.dev/wp-content/uploads/Ways-You-Are-Making-Your-Life-Harder.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

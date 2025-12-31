@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Good oral hygiene does more than protect your teeth. Discover 10 important benefits of daily oral care, from fresh breath and confidence to better overall health."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/benefits-of-good-oral-hygiene/"
+original_url: "https://selfsaid.pages.dev/benefits-of-good-oral-hygiene/"
 ---
 
-![Woman smiling](https://seffsaid.com/wp-content/uploads/Benefits-Of-Good-Oral-Hygiene.webp)
+![Woman smiling](https://selfsaid.pages.dev/wp-content/uploads/Benefits-Of-Good-Oral-Hygiene.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

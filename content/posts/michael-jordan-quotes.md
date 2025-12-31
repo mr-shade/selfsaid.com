@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Unleash your full potential with 120 Michael Jordan quotes that inspire greatness."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/michael-jordan-quotes/"
+original_url: "https://selfsaid.pages.dev/michael-jordan-quotes/"
 ---
 
-![120 Michael Jordan Quotes to Inspire Your Personal Best](https://seffsaid.com/wp-content/uploads/michael-jordan-quotes.jpg)
+![120 Michael Jordan Quotes to Inspire Your Personal Best](https://selfsaid.pages.dev/wp-content/uploads/michael-jordan-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

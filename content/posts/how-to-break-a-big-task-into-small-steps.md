@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "When starting a large project, it's easy to feel overwhelmed by the details; here's a guide to breaking it into small, achievable steps."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-break-a-big-task-into-small-steps/"
+original_url: "https://selfsaid.pages.dev/how-to-break-a-big-task-into-small-steps/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/task-decomposition.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/task-decomposition.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

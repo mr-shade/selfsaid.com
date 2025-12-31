@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Don't wait any longer to develop these 10 mindsets for success that can change your life forever."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/mindsets-for-success/"
+original_url: "https://selfsaid.pages.dev/mindsets-for-success/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/mindsets-for-success.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/mindsets-for-success.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

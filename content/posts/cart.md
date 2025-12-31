@@ -5,7 +5,7 @@ author: "Seff Said"
 description: ""
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/cart/"
+original_url: "https://selfsaid.pages.dev/cart/"
 ---
 
 \[ec\_cart\]

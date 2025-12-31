@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Pamper yourself on a budget with these 10 simple and affordable self-care ideas."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/ways-to-pamper-yourself/"
+original_url: "https://selfsaid.pages.dev/ways-to-pamper-yourself/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/pamper-yourself.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/pamper-yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Living as an introvert can feel draining in a busy world. Discover 10 valuable tips to protect your energy, enjoy solitude, and thrive as your authentic self."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-i-cope-living-my-life-as-an-introvert/"
+original_url: "https://selfsaid.pages.dev/how-i-cope-living-my-life-as-an-introvert/"
 ---
 
-![An introverted woman on her own gazing out to sea.](https://seffsaid.com/wp-content/uploads/Living-My-Life-As-An-Introvert.webp)
+![An introverted woman on her own gazing out to sea.](https://selfsaid.pages.dev/wp-content/uploads/Living-My-Life-As-An-Introvert.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

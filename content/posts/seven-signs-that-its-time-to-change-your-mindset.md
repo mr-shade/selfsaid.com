@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the seven signs that a change in mindset would do you, your life, and your well-being a world of good."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/seven-signs-that-its-time-to-change-your-mindset/"
+original_url: "https://selfsaid.pages.dev/seven-signs-that-its-time-to-change-your-mindset/"
 ---
 
-![Man coming to the realisation that it's time to change his mindset](https://seffsaid.com/wp-content/uploads/Signs-Time-To-Change-Your-Mindset.webp)
+![Man coming to the realisation that it's time to change his mindset](https://selfsaid.pages.dev/wp-content/uploads/Signs-Time-To-Change-Your-Mindset.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Nothing is impossible quotes remind us that with the right mindset, no challenge is too great, and no dream is too big to achieve."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/nothing-is-impossible-quotes/"
+original_url: "https://selfsaid.pages.dev/nothing-is-impossible-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/nothing-is-impossible-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/nothing-is-impossible-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

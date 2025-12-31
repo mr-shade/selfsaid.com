@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 50 of the best quotes from the King of Rock 'n' Roll, Elvis Presley."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/elvis-presley-quotes/"
+original_url: "https://selfsaid.pages.dev/elvis-presley-quotes/"
 ---
 
-![Elvis Presley in concert](https://seffsaid.com/wp-content/uploads/Elvis-Presley-Quotes.webp)
+![Elvis Presley in concert](https://selfsaid.pages.dev/wp-content/uploads/Elvis-Presley-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

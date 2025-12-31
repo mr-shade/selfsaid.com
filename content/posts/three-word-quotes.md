@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "1000 three-word quotes that offer inspiration, comfort, and motivation for every moment of your life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/three-word-quotes/"
+original_url: "https://selfsaid.pages.dev/three-word-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/three-word-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/three-word-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

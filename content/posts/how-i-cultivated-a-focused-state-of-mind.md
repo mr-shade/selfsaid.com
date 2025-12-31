@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the secrets to achieving laser-sharp focus in your daily life – click here to learn how!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-i-cultivated-a-focused-state-of-mind/"
+original_url: "https://selfsaid.pages.dev/how-i-cultivated-a-focused-state-of-mind/"
 ---
 
-![Woman sitting on a beautiful beach meditating.](https://seffsaid.com/wp-content/uploads/focused-state-of-mind.webp)
+![Woman sitting on a beautiful beach meditating.](https://selfsaid.pages.dev/wp-content/uploads/focused-state-of-mind.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

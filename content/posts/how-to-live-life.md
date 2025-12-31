@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "This guide provides simple, practical advice on how to create a more fulfilling and purposeful life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-live-life/"
+original_url: "https://selfsaid.pages.dev/how-to-live-life/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/how-to-live-life.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/how-to-live-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

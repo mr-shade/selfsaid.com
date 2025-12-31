@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "192 perspectives on the daily masterpiece that is the sunset. Each quote is a tribute to its unique beauty."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/the-best-sunset-quotes-of-all-time/"
+original_url: "https://selfsaid.pages.dev/the-best-sunset-quotes-of-all-time/"
 ---
 
-![192 Quotes on the Beauty of Sunsets](https://seffsaid.com/wp-content/uploads/sunset-quotes-1024x576-1.jpg)
+![192 Quotes on the Beauty of Sunsets](https://selfsaid.pages.dev/wp-content/uploads/sunset-quotes-1024x576-1.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

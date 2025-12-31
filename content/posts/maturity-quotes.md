@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Powerful maturity quotes highlighting self-awareness, patience, responsibility, life's challenges, and personal growth."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/maturity-quotes/"
+original_url: "https://selfsaid.pages.dev/maturity-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/maturity-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/maturity-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

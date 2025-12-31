@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "You don’t have to chase happiness to live a meaningful life. This guide offers ways to feel more grounded, present, and emotionally well."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-live-a-happy-life/"
+original_url: "https://selfsaid.pages.dev/how-to-live-a-happy-life/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/happy-life.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/happy-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

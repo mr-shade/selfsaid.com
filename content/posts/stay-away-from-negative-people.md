@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 9 compelling reasons why being around negative people can drain the joy from life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/stay-away-from-negative-people/"
+original_url: "https://selfsaid.pages.dev/stay-away-from-negative-people/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/stay-away-from-negative-people.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/stay-away-from-negative-people.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

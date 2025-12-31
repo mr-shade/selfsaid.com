@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Too many to-dos and never enough time? Learn practical ways to prioritise, simplify, and finally get through your to do list."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/too-many-to-dos-how-to-get-through-your-list/"
+original_url: "https://selfsaid.pages.dev/too-many-to-dos-how-to-get-through-your-list/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/too-many-to-dos.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/too-many-to-dos.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

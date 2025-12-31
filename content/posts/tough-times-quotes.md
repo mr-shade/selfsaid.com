@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Find the inspiration you need to face life’s challenges with these 50 tough times quotes that remind you of your strength and resilience."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/tough-times-quotes/"
+original_url: "https://selfsaid.pages.dev/tough-times-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/tough-times-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/tough-times-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

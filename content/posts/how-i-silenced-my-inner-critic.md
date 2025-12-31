@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "The inner critic is the inner voice that expresses criticism or disapproval of our actions and decisions. Read how I managed to silence mine."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-i-silenced-my-inner-critic/"
+original_url: "https://selfsaid.pages.dev/how-i-silenced-my-inner-critic/"
 ---
 
-![A happy woman smiling while walking on a beach.](https://seffsaid.com/wp-content/uploads/inner-critic.webp)
+![A happy woman smiling while walking on a beach.](https://selfsaid.pages.dev/wp-content/uploads/inner-critic.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

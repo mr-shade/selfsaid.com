@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 50 powerful quotes that will lift your spirits and remind you that no matter the situation, everything will be ok."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/everything-will-be-ok-quotes/"
+original_url: "https://selfsaid.pages.dev/everything-will-be-ok-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/everything-will-be-ok-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/everything-will-be-ok-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

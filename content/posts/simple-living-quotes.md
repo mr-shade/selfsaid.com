@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "50 simple living quotes to help you slow down and reconnect with what matters. Thoughtful reminders to bring peace, presence, and clarity to your days."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/simple-living-quotes/"
+original_url: "https://selfsaid.pages.dev/simple-living-quotes/"
 ---
 
-![Simple Living Quotes](https://seffsaid.com/wp-content/uploads/simple-living-quotes.webp)
+![Simple Living Quotes](https://selfsaid.pages.dev/wp-content/uploads/simple-living-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

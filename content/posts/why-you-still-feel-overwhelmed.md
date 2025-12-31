@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "You’ve done less but still feel overwhelmed. This post explains why that lingering overwhelm is still with you, and what to do about it."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/why-you-still-feel-overwhelmed/"
+original_url: "https://selfsaid.pages.dev/why-you-still-feel-overwhelmed/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/why-you-still-feel-overwhelmed.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/why-you-still-feel-overwhelmed.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to reclaim time for yourself with 10 simple daily hacks that really work."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/take-back-time-for-yourself/"
+original_url: "https://selfsaid.pages.dev/take-back-time-for-yourself/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/hacks-to-take-back-time.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/hacks-to-take-back-time.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

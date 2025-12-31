@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Stress is part of life, but calm is something you can practice. Learn simple, practical ways to stay calm in stressful situations and bring peace back to your day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-stay-calm-in-stressful-situations/"
+original_url: "https://selfsaid.pages.dev/how-to-stay-calm-in-stressful-situations/"
 ---
 
-![Woman meditating on top of a mountain](https://seffsaid.com/wp-content/uploads/how-to-stay-calm.webp)
+![Woman meditating on top of a mountain](https://selfsaid.pages.dev/wp-content/uploads/how-to-stay-calm.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

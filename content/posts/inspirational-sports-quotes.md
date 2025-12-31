@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 200 Inspirational Sports Quotes and unleash your inner champion while soaking in the timeless wisdom from legendary sports heroes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/inspirational-sports-quotes/"
+original_url: "https://selfsaid.pages.dev/inspirational-sports-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Inspirational-Sports-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Inspirational-Sports-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

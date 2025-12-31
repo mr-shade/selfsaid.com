@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Elevate your day with Barack Obama's 60 most memorable and inspiring quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/barack-obama-quotes/"
+original_url: "https://selfsaid.pages.dev/barack-obama-quotes/"
 ---
 
-![Barack Obama delivering a speech](https://seffsaid.com/wp-content/uploads/barack-obama-quotes.webp)
+![Barack Obama delivering a speech](https://selfsaid.pages.dev/wp-content/uploads/barack-obama-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

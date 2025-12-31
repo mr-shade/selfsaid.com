@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Ever wonder what made The Beatles tick? These quotes from The Beatles reveal the thoughts and philosophies that shaped their music and lives."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/beatles-quotes/"
+original_url: "https://selfsaid.pages.dev/beatles-quotes/"
 ---
 
-![The Beatles performing live on stage in 1964](https://seffsaid.com/wp-content/uploads/The-Beatles-Quotes.webp)
+![The Beatles performing live on stage in 1964](https://selfsaid.pages.dev/wp-content/uploads/The-Beatles-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Martin Luther King Jr. quotes about courage, change, and care. Reminders to help you move forward with clarity, strength, and compassion."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/martin-luther-king-quotes/"
+original_url: "https://selfsaid.pages.dev/martin-luther-king-quotes/"
 ---
 
-![Martin Luther King Quotes](https://seffsaid.com/wp-content/uploads/martin-luther-king-quotes.jpg)
+![Martin Luther King Quotes](https://selfsaid.pages.dev/wp-content/uploads/martin-luther-king-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

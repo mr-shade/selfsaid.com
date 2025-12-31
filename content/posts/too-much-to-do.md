@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Feeling overwhelmed by everything you need to do? This simple shift helped me move forward without burning out."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/too-much-to-do/"
+original_url: "https://selfsaid.pages.dev/too-much-to-do/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/too-much-to-do.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/too-much-to-do.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

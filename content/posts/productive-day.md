@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Tired of unproductive days? Here’s how to turn every morning into a success story."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/productive-day/"
+original_url: "https://selfsaid.pages.dev/productive-day/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/productive-day.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/productive-day.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Suffer from insomnia? Have difficulty falling asleep? Discover 12 simple and effective ways on how to fall asleep fast."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-fall-asleep-fast/"
+original_url: "https://selfsaid.pages.dev/how-to-fall-asleep-fast/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/How-To-Fall-Asleep-Fast.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/How-To-Fall-Asleep-Fast.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

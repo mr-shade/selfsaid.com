@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore the mind behind SpaceX and Tesla with this collection of Elon Musk's 50 best quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/elon-musk-quotes/"
+original_url: "https://selfsaid.pages.dev/elon-musk-quotes/"
 ---
 
-![Elon Musk](https://seffsaid.com/wp-content/uploads/Elon-Musk-Quotes.webp)
+![Elon Musk](https://selfsaid.pages.dev/wp-content/uploads/Elon-Musk-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

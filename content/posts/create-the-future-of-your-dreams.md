@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Want to shape your future without overwhelm or pressure? Discover gentle, everyday steps to create a life that feels good, not just looks good."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/create-the-future-of-your-dreams/"
+original_url: "https://selfsaid.pages.dev/create-the-future-of-your-dreams/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/create-the-future.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/create-the-future.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

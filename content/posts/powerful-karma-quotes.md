@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A compilation of 96 incredibly powerful karma quotes designed to truly inspire you to live your very best life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/powerful-karma-quotes/"
+original_url: "https://selfsaid.pages.dev/powerful-karma-quotes/"
 ---
 
-![Statue of Buddha symbolizing Karma](https://seffsaid.com/wp-content/uploads/karma-quotes.webp)
+![Statue of Buddha symbolizing Karma](https://selfsaid.pages.dev/wp-content/uploads/karma-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

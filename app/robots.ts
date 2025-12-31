@@ -9,6 +9,6 @@ export default function robots(): MetadataRoute.Robots {
             allow: '/',
             disallow: '/private/',
         },
-        sitemap: 'https://seffsaid.com/sitemap.xml',
+        sitemap: 'https://selfsaid.pages.dev/sitemap.xml',
     }
 }

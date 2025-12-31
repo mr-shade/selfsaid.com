@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Feeling stretched thin? This realistic daily self-care routine is perfect for busy people. Simple, gentle rituals that fit into your real life without stress or pressure."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/daily-self-care-routine-for-busy-people/"
+original_url: "https://selfsaid.pages.dev/daily-self-care-routine-for-busy-people/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Self-Care-Busy-People.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Self-Care-Busy-People.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

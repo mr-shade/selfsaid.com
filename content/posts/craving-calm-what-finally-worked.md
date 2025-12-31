@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Craving a calmer life but nothing seems to work? These simple shifts helped me feel more at ease and they might help you too."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/craving-calm-what-finally-worked/"
+original_url: "https://selfsaid.pages.dev/craving-calm-what-finally-worked/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/craving-calm.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/craving-calm.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

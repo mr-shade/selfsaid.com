@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the 50 best BTS quotes on life, love, music, philosophy, and the wisdom they've gained through their experiences."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/bts-quotes/"
+original_url: "https://selfsaid.pages.dev/bts-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/BTS-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/BTS-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn the 10 key questions that will reshape how you approach major life decisions."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/life-decisions-guide/"
+original_url: "https://selfsaid.pages.dev/life-decisions-guide/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/life-decisions-guide.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/life-decisions-guide.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

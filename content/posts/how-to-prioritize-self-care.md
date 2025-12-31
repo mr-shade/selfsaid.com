@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 15 ways to prioritize self-care without guilt, from setting boundaries to building daily rituals that support balance."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-prioritize-self-care/"
+original_url: "https://selfsaid.pages.dev/how-to-prioritize-self-care/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Prioritize-Self-Care.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Prioritize-Self-Care.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

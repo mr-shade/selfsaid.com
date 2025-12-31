@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Fed up reading the same old quotes? Here's a collection of 188 rare quotes that you've probably never heard before."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/rare-inspirational-quotes/"
+original_url: "https://selfsaid.pages.dev/rare-inspirational-quotes/"
 ---
 
-![Rare Quotes You've Probably Never Heard Before](https://seffsaid.com/wp-content/uploads/rare-quotes.jpg)
+![Rare Quotes You've Probably Never Heard Before](https://selfsaid.pages.dev/wp-content/uploads/rare-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

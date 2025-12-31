@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Taking breaks isn’t laziness. It’s how you keep going without burning out. Learn why rest is a necessary part of real self-care."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/why-taking-breaks-is-part-of-the-work/"
+original_url: "https://selfsaid.pages.dev/why-taking-breaks-is-part-of-the-work/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/why-taking-breaks-is-part-of-the-work.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/why-taking-breaks-is-part-of-the-work.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

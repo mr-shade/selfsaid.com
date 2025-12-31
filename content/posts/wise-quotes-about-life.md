@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of 156 wise quotes about life offering profound wisdom and perspective for whatever lies ahead."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/wise-quotes-about-life/"
+original_url: "https://selfsaid.pages.dev/wise-quotes-about-life/"
 ---
 
-![Wise Quotes About Life](https://seffsaid.com/wp-content/uploads/wise-quotes-about-life-1.jpg)
+![Wise Quotes About Life](https://selfsaid.pages.dev/wp-content/uploads/wise-quotes-about-life-1.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

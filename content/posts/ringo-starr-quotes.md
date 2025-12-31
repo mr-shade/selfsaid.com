@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover Ringo Starr's wisdom on life, love and music through 50 of his best quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/ringo-starr-quotes/"
+original_url: "https://selfsaid.pages.dev/ringo-starr-quotes/"
 ---
 
-![Ringo Starr on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Ringo-Starr-Quotes.webp)
+![Ringo Starr on stage with The Beatles](https://selfsaid.pages.dev/wp-content/uploads/Ringo-Starr-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Stuck in a loop of overthinking? This simple shift helped me clear my mind and move forward."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/overthinking-break-the-loop/"
+original_url: "https://selfsaid.pages.dev/overthinking-break-the-loop/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/overthinking-break-the-loop.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/overthinking-break-the-loop.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

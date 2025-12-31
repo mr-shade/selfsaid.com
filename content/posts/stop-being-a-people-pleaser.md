@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the ways people-pleasing destroys your mental well-being while keeping you stuck in a cycle of self-sacrifice."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/stop-being-a-people-pleaser/"
+original_url: "https://selfsaid.pages.dev/stop-being-a-people-pleaser/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/stop-being-a-people-pleaser.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/stop-being-a-people-pleaser.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

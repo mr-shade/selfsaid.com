@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "88 quotes about kindness, each offering a unique perspective on the power and impact of kindness in our lives."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-kindness/"
+original_url: "https://selfsaid.pages.dev/quotes-about-kindness/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/quotes-about-kindness-600x333-1.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-kindness-600x333-1.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

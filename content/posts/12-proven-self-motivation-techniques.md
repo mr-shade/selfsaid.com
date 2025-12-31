@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "12 proven self-motivation techniques that will push your motivation levels through the roof!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/12-proven-self-motivation-techniques/"
+original_url: "https://selfsaid.pages.dev/12-proven-self-motivation-techniques/"
 ---
 
-![Runner using self-motivation techniques to run a race](https://seffsaid.com/wp-content/uploads/self-motivation-techniques.webp)
+![Runner using self-motivation techniques to run a race](https://selfsaid.pages.dev/wp-content/uploads/self-motivation-techniques.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

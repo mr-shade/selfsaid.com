@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to align with what matters, care for yourself, nurture real connections, and find meaning in everyday moments."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-live-your-best-life/"
+original_url: "https://selfsaid.pages.dev/how-to-live-your-best-life/"
 ---
 
-![Woman looking out to sea](https://seffsaid.com/wp-content/uploads/how-to-live-your-best-life.webp)
+![Woman looking out to sea](https://selfsaid.pages.dev/wp-content/uploads/how-to-live-your-best-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

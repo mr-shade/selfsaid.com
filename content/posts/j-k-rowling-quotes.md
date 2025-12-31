@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Enjoy this compilation of J.K. Rowling's most uplifting and thought-provoking quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/j-k-rowling-quotes/"
+original_url: "https://selfsaid.pages.dev/j-k-rowling-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/J-K-Rowling-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/J-K-Rowling-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

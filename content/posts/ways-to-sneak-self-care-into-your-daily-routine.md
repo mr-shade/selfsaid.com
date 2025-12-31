@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Transform ordinary moments into opportunities for self-care that will leave you refreshed and energized."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/ways-to-sneak-self-care-into-your-daily-routine/"
+original_url: "https://selfsaid.pages.dev/ways-to-sneak-self-care-into-your-daily-routine/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/self-care-daily-routine.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/self-care-daily-routine.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

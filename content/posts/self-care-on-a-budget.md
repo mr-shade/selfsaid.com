@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover simple ways to take care of yourself without spending a fortune with these budget-friendly self-care tips."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/self-care-on-a-budget/"
+original_url: "https://selfsaid.pages.dev/self-care-on-a-budget/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/self-care-on-a-budget.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/self-care-on-a-budget.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

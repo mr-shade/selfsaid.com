@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Feel like you’re always behind, no matter how much you do? This gentle guide shares 5 ways to get more done in less time by doing less."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/getting-more-done-in-less-time/"
+original_url: "https://selfsaid.pages.dev/getting-more-done-in-less-time/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/more-done.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/more-done.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

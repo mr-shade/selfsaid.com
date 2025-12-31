@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the psychology behind the effectiveness of small actions and actionable advice on how you can harness this power for yourself."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-small-actions-can-make-a-huge-difference/"
+original_url: "https://selfsaid.pages.dev/how-small-actions-can-make-a-huge-difference/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Small-Actions.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Small-Actions.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

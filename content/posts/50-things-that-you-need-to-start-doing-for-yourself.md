@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Start putting yourself first with these 50 simple self-care ideas. Practical ways to protect your energy, boost your mood, and create a more balanced life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/50-things-that-you-need-to-start-doing-for-yourself/"
+original_url: "https://selfsaid.pages.dev/50-things-that-you-need-to-start-doing-for-yourself/"
 ---
 
-![Woman prioritizing her self-care by reading a book](https://seffsaid.com/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp)
+![Woman prioritizing her self-care by reading a book](https://selfsaid.pages.dev/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

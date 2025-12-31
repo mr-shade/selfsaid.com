@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore a gentle A to Z guide for productive living. Build resilience, honor self-care, and create a life of calm progress and meaningful habits."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/tips-for-productive-living/"
+original_url: "https://selfsaid.pages.dev/tips-for-productive-living/"
 ---
 
-![Man jogging living life productively](https://seffsaid.com/wp-content/uploads/tips-for-productive-living.webp)
+![Man jogging living life productively](https://selfsaid.pages.dev/wp-content/uploads/tips-for-productive-living.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

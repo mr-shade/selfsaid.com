@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 12 practical steps you can take to stay grounded, authentic and be yourself every day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/rules-for-being-you/"
+original_url: "https://selfsaid.pages.dev/rules-for-being-you/"
 ---
 
-![Confident woman walking down a NYC street](https://seffsaid.com/wp-content/uploads/Rules-for-Being-YOU.webp)
+![Confident woman walking down a NYC street](https://selfsaid.pages.dev/wp-content/uploads/Rules-for-Being-YOU.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

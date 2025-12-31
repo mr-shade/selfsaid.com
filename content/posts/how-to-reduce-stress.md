@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Feeling stressed? Learn 12 simple ways to reduce stress naturally and feel your stress levels plummet!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-reduce-stress/"
+original_url: "https://selfsaid.pages.dev/how-to-reduce-stress/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/How-To-Reduce-Stress-Naturally.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/How-To-Reduce-Stress-Naturally.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

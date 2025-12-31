@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "150 quotes on self-care that offer the wisdom and encouragement to help you prioritize your well-being."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-on-self-care/"
+original_url: "https://selfsaid.pages.dev/quotes-on-self-care/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Quotes-On-Self-Care.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Quotes-On-Self-Care.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

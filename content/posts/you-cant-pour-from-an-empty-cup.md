@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the meaning of the quote “You can’t pour from an empty cup”. A thoughtful reflection on self-care, boundaries, and emotional rest."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/you-cant-pour-from-an-empty-cup/"
+original_url: "https://selfsaid.pages.dev/you-cant-pour-from-an-empty-cup/"
 ---
 
-![You Can’t Pour from an Empty Cup](https://seffsaid.com/wp-content/uploads/you-cant-pour-from-an-empty-cup-600x600-1.webp)
+![You Can’t Pour from an Empty Cup](https://selfsaid.pages.dev/wp-content/uploads/you-cant-pour-from-an-empty-cup-600x600-1.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

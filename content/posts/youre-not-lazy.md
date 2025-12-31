@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "If you feel unmotivated, stuck, or slow to get going, it’s not because you’re lazy. It’s because you’re carrying more than you realize."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/youre-not-lazy/"
+original_url: "https://selfsaid.pages.dev/youre-not-lazy/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/youre-not-lazy.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/youre-not-lazy.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of Gracie Abrams quotes on music, creativity, life, and love."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/gracie-abrams-quotes/"
+original_url: "https://selfsaid.pages.dev/gracie-abrams-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Gracie-Abrams-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Gracie-Abrams-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

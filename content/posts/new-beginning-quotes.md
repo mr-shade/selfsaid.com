@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Find your inspiration for a fresh start among these 99 powerful New Beginning Quotes about starting over."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/new-beginning-quotes/"
+original_url: "https://selfsaid.pages.dev/new-beginning-quotes/"
 ---
 
-![New Beginning Quotes About Starting Over](https://seffsaid.com/wp-content/uploads/new-beginning-quotes.jpg)
+![New Beginning Quotes About Starting Over](https://selfsaid.pages.dev/wp-content/uploads/new-beginning-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

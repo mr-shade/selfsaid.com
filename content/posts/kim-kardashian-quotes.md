@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "See the world through the eyes of Kim Kardashian with this collection of her 50 best quotes"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/kim-kardashian-quotes/"
+original_url: "https://selfsaid.pages.dev/kim-kardashian-quotes/"
 ---
 
-![Kim Kardashian](https://seffsaid.com/wp-content/uploads/Kim-Kardashian-Quotes.webp)
+![Kim Kardashian](https://selfsaid.pages.dev/wp-content/uploads/Kim-Kardashian-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 10 easy ways to boost your optimism, filling your life with positivity, possibilities, and happiness."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-be-optimistic/"
+original_url: "https://selfsaid.pages.dev/how-to-be-optimistic/"
 ---
 
-![Optimistic woman smiling at the camera](https://seffsaid.com/wp-content/uploads/How-To-Be-Optimistic.webp)
+![Optimistic woman smiling at the camera](https://selfsaid.pages.dev/wp-content/uploads/How-To-Be-Optimistic.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

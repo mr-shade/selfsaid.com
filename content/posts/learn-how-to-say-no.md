@@ -5,10 +5,10 @@ author: "Seff Said"
 description: "Take charge of your time and your life by reading Seff Bray's latest groundbreaking book, 'How To Say No'."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/learn-how-to-say-no/"
+original_url: "https://selfsaid.pages.dev/learn-how-to-say-no/"
 ---
 
-![Learn How To Say No Book by Seff Bray](https://seffsaid.com/wp-content/uploads/Learn-How-To-Say-No-webp.webp)
+![Learn How To Say No Book by Seff Bray](https://selfsaid.pages.dev/wp-content/uploads/Learn-How-To-Say-No-webp.webp)
 
 ## Learn How To Say No
 

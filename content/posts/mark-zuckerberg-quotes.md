@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn what drives one of the world's most successful entrepreneurs by reading this collection of Mark Zuckerberg's best quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/mark-zuckerberg-quotes/"
+original_url: "https://selfsaid.pages.dev/mark-zuckerberg-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Mark-Zuckerberg-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Mark-Zuckerberg-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

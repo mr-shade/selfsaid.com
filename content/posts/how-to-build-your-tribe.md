@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A guide to finding real connection. Learn how to build meaningful friendships that feel safe, mutual, and true to who you are."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-build-your-tribe/"
+original_url: "https://selfsaid.pages.dev/how-to-build-your-tribe/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/How-To-Build-Your-Tribe.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/How-To-Build-Your-Tribe.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

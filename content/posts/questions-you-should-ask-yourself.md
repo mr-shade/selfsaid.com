@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Start your week on the right note by asking yourself these twelve transformative questions every Sunday."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/questions-you-should-ask-yourself/"
+original_url: "https://selfsaid.pages.dev/questions-you-should-ask-yourself/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/questions-ask-yourself.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/questions-ask-yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

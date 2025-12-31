@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Need to increase productivity in the workplace? Discover these 29 simple techniques that will push your productivity through the roof!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/29-tips-to-increase-productivity-at-work/"
+original_url: "https://selfsaid.pages.dev/29-tips-to-increase-productivity-at-work/"
 ---
 
-![A busy office full of productive people](https://seffsaid.com/wp-content/uploads/increase-productivity-in-the-workplace.webp)
+![A busy office full of productive people](https://selfsaid.pages.dev/wp-content/uploads/increase-productivity-in-the-workplace.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

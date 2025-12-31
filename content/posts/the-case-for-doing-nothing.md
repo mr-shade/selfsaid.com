@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Doing nothing used to feel like failure until I discovered how deeply healing it can be. This is how I made stillness part of my self-care routine, and why I now protect it."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/the-case-for-doing-nothing/"
+original_url: "https://selfsaid.pages.dev/the-case-for-doing-nothing/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Case-for-Doing-Nothing.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Case-for-Doing-Nothing.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

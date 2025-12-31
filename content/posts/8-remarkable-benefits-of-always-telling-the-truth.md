@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "8 remarkable benefits of always telling the truth and why being truthful far outweighs any short term advantages of lying."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/8-remarkable-benefits-of-always-telling-the-truth/"
+original_url: "https://selfsaid.pages.dev/8-remarkable-benefits-of-always-telling-the-truth/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/benefits-of-telling-the-truth.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/benefits-of-telling-the-truth.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

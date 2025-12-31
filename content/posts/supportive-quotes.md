@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A gentle collection of supportive quotes to help you feel grounded during overwhelming moments. Quiet reminders to slow down, breathe, and be kind to yourself."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/supportive-quotes/"
+original_url: "https://selfsaid.pages.dev/supportive-quotes/"
 ---
 
-![Supportive Quotes](https://seffsaid.com/wp-content/uploads/supportive-quotes-600x338-1.webp)
+![Supportive Quotes](https://selfsaid.pages.dev/wp-content/uploads/supportive-quotes-600x338-1.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

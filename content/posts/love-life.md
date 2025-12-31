@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Set a positive tone with the “Love Life” downloadable printable quote, a beautiful reminder to approach each day with gratitude and optimism."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/love-life/"
+original_url: "https://selfsaid.pages.dev/love-life/"
 ---
 
 All [Printable Quotes](/printable-quotes)

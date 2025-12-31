@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These 50 Bob Dylan quotes offer a glimpse into the mind of one of the most influential voices of our time."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/bob-dylan-quotes/"
+original_url: "https://selfsaid.pages.dev/bob-dylan-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Bob-Dylan-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Bob-Dylan-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

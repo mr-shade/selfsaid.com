@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover actionable advice, real-life examples, and unique strategies to reinvent yourself and transform your life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/reinvent-yourself/"
+original_url: "https://selfsaid.pages.dev/reinvent-yourself/"
 ---
 
-![Happy smiling man walking down a busy street](https://seffsaid.com/wp-content/uploads/Reinvent-Yourself.webp)
+![Happy smiling man walking down a busy street](https://selfsaid.pages.dev/wp-content/uploads/Reinvent-Yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

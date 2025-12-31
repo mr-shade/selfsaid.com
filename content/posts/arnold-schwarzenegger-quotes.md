@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the power of determination with 86 of the best Arnold Schwarzenegger Quotes. Get both inspired and motivated today!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/arnold-schwarzenegger-quotes/"
+original_url: "https://selfsaid.pages.dev/arnold-schwarzenegger-quotes/"
 ---
 
-![Arnold Schwarzenegger Quotes](https://seffsaid.com/wp-content/uploads/arnold-schwarzenegger-quotes.jpg)
+![Arnold Schwarzenegger Quotes](https://selfsaid.pages.dev/wp-content/uploads/arnold-schwarzenegger-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

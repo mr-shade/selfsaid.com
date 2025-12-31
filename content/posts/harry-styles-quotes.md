@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover a collection of Harry Styles's best quotes on life, love, personal growth, kindness, and relationships."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/harry-styles-quotes/"
+original_url: "https://selfsaid.pages.dev/harry-styles-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/harry-styles-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/harry-styles-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

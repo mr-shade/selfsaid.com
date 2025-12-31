@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "50 of Steve Jobs' best quotes, offering a glimpse into the mindset of a man who changed technology and the world."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/steve-jobs-quotes/"
+original_url: "https://selfsaid.pages.dev/steve-jobs-quotes/"
 ---
 
-![Steve Jobs giving an inspirational speech](https://seffsaid.com/wp-content/uploads/Steve-Jobs-Quotes.webp)
+![Steve Jobs giving an inspirational speech](https://selfsaid.pages.dev/wp-content/uploads/Steve-Jobs-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "When your body is tired but your mind won’t settle, try this simple way to unwind and find calm."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/tired-but-wired-switch-off/"
+original_url: "https://selfsaid.pages.dev/tired-but-wired-switch-off/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/tired-but-wired-switch-off.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/tired-but-wired-switch-off.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

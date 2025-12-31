@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to feel more awake and focused with these easy ten-minute refresh tricks."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/ways-to-feel-refreshed/"
+original_url: "https://selfsaid.pages.dev/ways-to-feel-refreshed/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Ways-to-Feel-Refreshed.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Ways-to-Feel-Refreshed.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

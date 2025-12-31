@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 60 powerful Bible verses that remind you of the strength found in faith and trust in God."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/bible-verses-about-strength/"
+original_url: "https://selfsaid.pages.dev/bible-verses-about-strength/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Bible-Quotes-About-Strength.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Bible-Quotes-About-Strength.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

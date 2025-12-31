@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover simple yet powerful strategies that will help you exude confidence in any situation."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/ways-to-become-more-confident/"
+original_url: "https://selfsaid.pages.dev/ways-to-become-more-confident/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Ways-to-Become-More-Confident.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Ways-to-Become-More-Confident.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

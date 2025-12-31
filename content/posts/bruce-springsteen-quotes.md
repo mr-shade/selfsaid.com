@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Bruce Springsteen's best quotes, revealing insights about life and grit that fans and newcomers alike will find both relatable and inspiring."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/bruce-springsteen-quotes/"
+original_url: "https://selfsaid.pages.dev/bruce-springsteen-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/bruce-springsteen-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/bruce-springsteen-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

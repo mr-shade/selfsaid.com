@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the wisdom and warmth of Princess Diana by reading through this collection of 50 of her best quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/princess-diana-quotes/"
+original_url: "https://selfsaid.pages.dev/princess-diana-quotes/"
 ---
 
-![Princess Diana](https://seffsaid.com/wp-content/uploads/Princess-Diana-Quotes.webp)
+![Princess Diana](https://selfsaid.pages.dev/wp-content/uploads/Princess-Diana-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

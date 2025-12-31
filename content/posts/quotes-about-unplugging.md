@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the benefits of a digital detox where insights from philosophers, spiritual leaders and others enlighten you on the virtues of unplugging."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-unplugging/"
+original_url: "https://selfsaid.pages.dev/quotes-about-unplugging/"
 ---
 
-![Woman sitting at the edge of a lake enjoying a digital detox](https://seffsaid.com/wp-content/uploads/unplugging-quotes.webp)
+![Woman sitting at the edge of a lake enjoying a digital detox](https://selfsaid.pages.dev/wp-content/uploads/unplugging-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

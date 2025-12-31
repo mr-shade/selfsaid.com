@@ -5,12 +5,12 @@ author: "Seff Said"
 description: "Boost your inspiration and your spirit with our exclusive \"Every Moment Matters\" printable quote available for instant download."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/every-moment-matters/"
+original_url: "https://selfsaid.pages.dev/every-moment-matters/"
 ---
 
 All [Printable Quotes](/printable-quotes)
 
-![Every Moment Matters](https://seffsaid.com/wp-content/uploads/SEFFSAID-Every-Moment-Matters-800x800-1.webp)
+![Every Moment Matters](https://selfsaid.pages.dev/wp-content/uploads/SEFFSAID-Every-Moment-Matters-800x800-1.webp)
 
 ## “Every Moment Matters” Printable Quote
 

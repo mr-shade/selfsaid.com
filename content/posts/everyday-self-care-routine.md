@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Tired of self-care routines that feel overwhelming or impossible to stick with? This guide shares 7 simple, real-life habits that actually helped me feel better."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/everyday-self-care-routine/"
+original_url: "https://selfsaid.pages.dev/everyday-self-care-routine/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Everyday-Self-Care-Routine-webp.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Everyday-Self-Care-Routine-webp.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

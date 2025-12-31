@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A selection of deep yet confusing quotes that initially seem profound, but soon leave you questioning their meaning."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-that-make-no-sense/"
+original_url: "https://selfsaid.pages.dev/quotes-that-make-no-sense/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/quotes-that-make-no-sense.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/quotes-that-make-no-sense.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

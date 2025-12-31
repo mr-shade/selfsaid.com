@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 10 powerful reasons why self-care should be your top priority, from boosting health and clarity to bringing more joy into life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/self-care-priority/"
+original_url: "https://selfsaid.pages.dev/self-care-priority/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/reasons-self-care-priority.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/reasons-self-care-priority.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

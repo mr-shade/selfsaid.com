@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to develop a winning mindset that will not only help you reach your goals but also transform your entire approach to life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-develop-a-winning-mindset/"
+original_url: "https://selfsaid.pages.dev/how-to-develop-a-winning-mindset/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/How-To-Develop-A-Winning-Mindset.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/How-To-Develop-A-Winning-Mindset.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

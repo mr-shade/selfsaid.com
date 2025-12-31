@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "76 self-love quotes that will bring positivity, strength, and a renewed sense of self-worth to your life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/self-love-quotes/"
+original_url: "https://selfsaid.pages.dev/self-love-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/self-love-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/self-love-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

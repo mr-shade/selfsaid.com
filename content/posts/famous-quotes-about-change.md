@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Whether you’re facing small adjustments or major life changes, these quotes about change will inspire you to move forward with confidence."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/famous-quotes-about-change/"
+original_url: "https://selfsaid.pages.dev/famous-quotes-about-change/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/famous-quotes-about-change.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/famous-quotes-about-change.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

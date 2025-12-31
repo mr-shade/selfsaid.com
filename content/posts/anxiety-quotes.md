@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of 60 anxiety quotes to ease a racing mind. Gentle reminders to slow down, breathe, and find peace in the present moment."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/anxiety-quotes/"
+original_url: "https://selfsaid.pages.dev/anxiety-quotes/"
 ---
 
-![Anxious woman](https://seffsaid.com/wp-content/uploads/anxiety-quotes.webp)
+![Anxious woman](https://selfsaid.pages.dev/wp-content/uploads/anxiety-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

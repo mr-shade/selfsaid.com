@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "How to create a simple self-care routine that fits your daily life. Build habits to reduce stress, restore energy, and improve well-being."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/create-a-self-care-routine-that-works/"
+original_url: "https://selfsaid.pages.dev/create-a-self-care-routine-that-works/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/self-care-routine.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/self-care-routine.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

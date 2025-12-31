@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover Charli XCX's thoughts on creativity, individuality, and pop culture that redefine what it means to be a modern artist."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/charli-xcx-quotes/"
+original_url: "https://selfsaid.pages.dev/charli-xcx-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Charli-XCX-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Charli-XCX-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

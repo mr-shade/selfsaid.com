@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 34 hand-selected inspirational quotes written specifically to make you feel better about life and yourself."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-to-make-you-feel-better/"
+original_url: "https://selfsaid.pages.dev/quotes-to-make-you-feel-better/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Quotes-To-Make-You-Feel-Better.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Quotes-To-Make-You-Feel-Better.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

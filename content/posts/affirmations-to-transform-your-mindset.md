@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Unlock the secret to a happier mindset with 15 affirmations designed to uplift and empower your thinking."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/affirmations-to-transform-your-mindset/"
+original_url: "https://selfsaid.pages.dev/affirmations-to-transform-your-mindset/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/affirmations-mindset.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/affirmations-mindset.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

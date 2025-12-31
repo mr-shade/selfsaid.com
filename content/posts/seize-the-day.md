@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Add energy and focus to your workspace with this Seize The Day printable wall art, a reminder to take charge and pursue your goals each day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/seize-the-day/"
+original_url: "https://selfsaid.pages.dev/seize-the-day/"
 ---
 
 All [Printable Quotes](/printable-quotes)

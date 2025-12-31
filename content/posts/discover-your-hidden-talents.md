@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These ten simple yet thought-provoking questions can help you uncover hidden talents and abilities you didn’t know you had."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/discover-your-hidden-talents/"
+original_url: "https://selfsaid.pages.dev/discover-your-hidden-talents/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/discover-your-hidden-talents.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/discover-your-hidden-talents.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

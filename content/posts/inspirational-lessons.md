@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the habits, mindset, and strategies that set highly successful people apart and allow them to achieve extraordinary results."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/inspirational-lessons/"
+original_url: "https://selfsaid.pages.dev/inspirational-lessons/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Inspirational-Lessons-600.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Inspirational-Lessons-600.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

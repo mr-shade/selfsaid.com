@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the wisdom, resilience, and wit of a legendary leader with this collection of Winston Churchill's 90 most memorable quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/winston-churchill-quotes/"
+original_url: "https://selfsaid.pages.dev/winston-churchill-quotes/"
 ---
 
-![Winston Churchill](https://seffsaid.com/wp-content/uploads/winston-churchill.webp)
+![Winston Churchill](https://selfsaid.pages.dev/wp-content/uploads/winston-churchill.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

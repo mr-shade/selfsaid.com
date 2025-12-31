@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A simple, grounded self-care routine for everyday life. These calming habits help you feel more balanced, less stressed, and better supported, without the overwhelm."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/self-care-routine/"
+original_url: "https://selfsaid.pages.dev/self-care-routine/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Self-Care-Routine-Real-Life.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Self-Care-Routine-Real-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

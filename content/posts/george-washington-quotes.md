@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore the profound depth of leadership and character with these 86 George Washington quotes, and allow their timeless wisdom to inspire you."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/george-washington-quotes/"
+original_url: "https://selfsaid.pages.dev/george-washington-quotes/"
 ---
 
-![86 George Washington Quotes on Leadership, Liberty, and Life](https://seffsaid.com/wp-content/uploads/George-Washington-quotes.jpg)
+![86 George Washington Quotes on Leadership, Liberty, and Life](https://selfsaid.pages.dev/wp-content/uploads/George-Washington-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

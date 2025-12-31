@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Life doesn’t have to feel so full. Discover five meaningful ways to clear space, protect your time, and bring calm back into your days."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-make-life-simple-again/"
+original_url: "https://selfsaid.pages.dev/how-to-make-life-simple-again/"
 ---
 
-![Man relaxing at the beach enjoying the simple life](https://seffsaid.com/wp-content/uploads/How-to-Make-Life-Simple-Again.webp)
+![Man relaxing at the beach enjoying the simple life](https://selfsaid.pages.dev/wp-content/uploads/How-to-Make-Life-Simple-Again.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

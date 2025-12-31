@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 10 simple things you can do today that will enrich your life enormously and your future self will thank you for."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/future-self/"
+original_url: "https://selfsaid.pages.dev/future-self/"
 ---
 
-![Older man happy about his life choices](https://seffsaid.com/wp-content/uploads/Choices-Your-Future-Self-Will-Thank-You-For.webp)
+![Older man happy about his life choices](https://selfsaid.pages.dev/wp-content/uploads/Choices-Your-Future-Self-Will-Thank-You-For.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

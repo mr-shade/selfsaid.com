@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover what drives Bruno Mars with this collection of his 50 best quotes, filled with humor, inspiration, and life lessons."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/bruno-mars-quotes/"
+original_url: "https://selfsaid.pages.dev/bruno-mars-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Bruno-Mars-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Bruno-Mars-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

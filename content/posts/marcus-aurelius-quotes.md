@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "86 powerful quotes by Marcus Aurelius, the famous Roman Emperor and Stoic Philosopher."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/marcus-aurelius-quotes/"
+original_url: "https://selfsaid.pages.dev/marcus-aurelius-quotes/"
 ---
 
-![Marcus Aurelius](https://seffsaid.com/wp-content/uploads/Marcus-Aurelius-Quotes.webp)
+![Marcus Aurelius](https://selfsaid.pages.dev/wp-content/uploads/Marcus-Aurelius-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

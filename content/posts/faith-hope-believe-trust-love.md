@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "This uplifting 'Faith Hope Believe Trust Love' printable wall art serves as a daily reminder to stay grounded in faith trust, hope, and love."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/faith-hope-believe-trust-love/"
+original_url: "https://selfsaid.pages.dev/faith-hope-believe-trust-love/"
 ---
 
 All [Printable Quotes](/printable-quotes)

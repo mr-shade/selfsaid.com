@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "50 gentle quotes about trust, healing, and letting go. This collection offers calm encouragement for anyone rebuilding self-trust or learning to open their heart again."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-trust/"
+original_url: "https://selfsaid.pages.dev/quotes-about-trust/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/trust-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/trust-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of 175 deep quotes about life that have the power to change the way you think."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/deep-quotes-about-life/"
+original_url: "https://selfsaid.pages.dev/deep-quotes-about-life/"
 ---
 
-![Man looking into space pondering the deep questions in life](https://seffsaid.com/wp-content/uploads/deep-quotes-about-life.webp)
+![Man looking into space pondering the deep questions in life](https://selfsaid.pages.dev/wp-content/uploads/deep-quotes-about-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

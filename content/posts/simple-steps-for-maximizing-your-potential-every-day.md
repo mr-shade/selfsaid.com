@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "By incorporating these 8 simple steps into your daily life you can unlock your full potential and achieve your goals."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/simple-steps-for-maximizing-your-potential-every-day/"
+original_url: "https://selfsaid.pages.dev/simple-steps-for-maximizing-your-potential-every-day/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/maximize-your-potential.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/maximize-your-potential.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

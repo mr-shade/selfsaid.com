@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Unlock the secrets to successful investing and business strategies with our collection of Warren Buffett's best quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/warren-buffett-quotes/"
+original_url: "https://selfsaid.pages.dev/warren-buffett-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/warren-buffett-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/warren-buffett-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These 30 epic motivational quotes will inspire you to achieve success, fortune, and happiness."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/30-motivational-quotes-you-must-know/"
+original_url: "https://selfsaid.pages.dev/30-motivational-quotes-you-must-know/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/motivational-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/motivational-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

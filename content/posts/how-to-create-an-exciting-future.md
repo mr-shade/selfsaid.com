@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Five tips for creating an exciting future that will make you feel good right now!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-create-an-exciting-future/"
+original_url: "https://selfsaid.pages.dev/how-to-create-an-exciting-future/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/create-an-exciting-future.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/create-an-exciting-future.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

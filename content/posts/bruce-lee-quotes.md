@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Embrace the wisdom and insight of Bruce Lee with this collection of his very best quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/bruce-lee-quotes/"
+original_url: "https://selfsaid.pages.dev/bruce-lee-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Bruce-Lee-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Bruce-Lee-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

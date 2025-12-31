@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These 50 inspiring Serena Williams quotes highlight her incredible resilience, humility, and unwavering determination."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/serena-williams-quotes/"
+original_url: "https://selfsaid.pages.dev/serena-williams-quotes/"
 ---
 
-![Serena Williams](https://seffsaid.com/wp-content/uploads/Serena-Williams-Quotes.webp)
+![Serena Williams](https://selfsaid.pages.dev/wp-content/uploads/Serena-Williams-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

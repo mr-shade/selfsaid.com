@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Let go of what’s weighing you down. 10 things you think you need (but don’t) will help you reclaim time, space, and peace of mind."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/things-you-dont-need/"
+original_url: "https://selfsaid.pages.dev/things-you-dont-need/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/things-you-dont-need.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/things-you-dont-need.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

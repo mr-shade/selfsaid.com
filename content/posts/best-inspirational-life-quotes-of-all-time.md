@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Let these 90 inspirational quotes about life uplift and guide you toward a more positive mindset."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/best-inspirational-life-quotes-of-all-time/"
+original_url: "https://selfsaid.pages.dev/best-inspirational-life-quotes-of-all-time/"
 ---
 
-![Woman sitting by a lake thinking about life](https://seffsaid.com/wp-content/uploads/inspirational-quotes-about-life.webp)
+![Woman sitting by a lake thinking about life](https://selfsaid.pages.dev/wp-content/uploads/inspirational-quotes-about-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover how to shape your habits, mindset, and routines to create the very best version of yourself."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/build-a-better-version-of-you/"
+original_url: "https://selfsaid.pages.dev/build-a-better-version-of-you/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Build-A-Better-Version-Of-You.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Build-A-Better-Version-Of-You.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

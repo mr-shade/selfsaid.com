@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Find peace where you are by reading how I overcame Grass is Greener Syndrome."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/grass-is-greener-syndrome/"
+original_url: "https://selfsaid.pages.dev/grass-is-greener-syndrome/"
 ---
 
-![A lawn of beautiful green grass glistening in the morning sun](https://seffsaid.com/wp-content/uploads/Grass-is-Greener-Syndrome.webp)
+![A lawn of beautiful green grass glistening in the morning sun](https://selfsaid.pages.dev/wp-content/uploads/Grass-is-Greener-Syndrome.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

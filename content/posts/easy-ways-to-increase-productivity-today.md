@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Unlock your potential for greater efficiency by embracing these 15 simple yet powerful strategies to increase productivity today."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/easy-ways-to-increase-productivity-today/"
+original_url: "https://selfsaid.pages.dev/easy-ways-to-increase-productivity-today/"
 ---
 
-![Productive people working in a busy library](https://seffsaid.com/wp-content/uploads/increase-productivity-today.webp)
+![Productive people working in a busy library](https://selfsaid.pages.dev/wp-content/uploads/increase-productivity-today.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

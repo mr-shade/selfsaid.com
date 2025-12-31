@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "You won’t believe how much better you’ll feel once you start practicing these simple self-care habits."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/self-care-habits/"
+original_url: "https://selfsaid.pages.dev/self-care-habits/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Self-Care-Habits.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Self-Care-Habits.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Being a good friend doesn’t mean losing yourself. Learn how to show up for others while staying connected to your needs and emotional well-being."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-be-a-good-friend/"
+original_url: "https://selfsaid.pages.dev/how-to-be-a-good-friend/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/how-to-be-a-good-friend.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/how-to-be-a-good-friend.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

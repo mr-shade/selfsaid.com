@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Struggling to care for yourself? This article offers calm, doable ways to stay supported even when you don’t know what you need."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/self-care-when-you-dont-know-what-you-need/"
+original_url: "https://selfsaid.pages.dev/self-care-when-you-dont-know-what-you-need/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/How-to-Take-Care-of-Yourself.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/How-to-Take-Care-of-Yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

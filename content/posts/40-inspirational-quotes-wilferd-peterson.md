@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "60 inspirational quotes from Wilferd Peterson whose inspirational essays, books, and poems have inspired generations."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/40-inspirational-quotes-wilferd-peterson/"
+original_url: "https://selfsaid.pages.dev/40-inspirational-quotes-wilferd-peterson/"
 ---
 
-![Wilferd Peterson Quotes](https://seffsaid.com/wp-content/uploads/wilferd-peterson-quotes.jpg)
+![Wilferd Peterson Quotes](https://selfsaid.pages.dev/wp-content/uploads/wilferd-peterson-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

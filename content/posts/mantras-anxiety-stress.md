@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Ease anxiety and stress with 20 calming mantras. Repeat these simple phrases anytime to quiet racing thoughts, steady your breath, and bring peace back into your day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/mantras-anxiety-stress/"
+original_url: "https://selfsaid.pages.dev/mantras-anxiety-stress/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/mantras-anxiety-stress.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/mantras-anxiety-stress.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

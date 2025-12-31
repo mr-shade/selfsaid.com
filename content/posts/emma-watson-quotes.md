@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover Emma Watson's most inspiring quotes that will uplift your spirits and ignite your inner strength."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/emma-watson-quotes/"
+original_url: "https://selfsaid.pages.dev/emma-watson-quotes/"
 ---
 
-![Emma Watson](https://seffsaid.com/wp-content/uploads/Emma-Watson-Quotes.webp)
+![Emma Watson](https://selfsaid.pages.dev/wp-content/uploads/Emma-Watson-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Brighten your day instantly with these handpicked quotes that bring a smile, laughter, and a bit of lighthearted joy to any moment."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-that-make-you-smile/"
+original_url: "https://selfsaid.pages.dev/quotes-that-make-you-smile/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-smile.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/quotes-that-make-you-smile.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

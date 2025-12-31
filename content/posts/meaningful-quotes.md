@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover a collection of 50 meaningful quotes that will inspire and motivate you in every area of life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/meaningful-quotes/"
+original_url: "https://selfsaid.pages.dev/meaningful-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/meaningful-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/meaningful-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

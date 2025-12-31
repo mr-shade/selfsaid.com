@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to keep a positive outlook in life by following these 5 simple techniques. Change your life today!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-keep-a-positive-outlook-in-life/"
+original_url: "https://selfsaid.pages.dev/how-to-keep-a-positive-outlook-in-life/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/positive-outlook-in-life.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/positive-outlook-in-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

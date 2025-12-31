@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "This article shines a light on the everyday gifts that often go unnoticed. Discover a new appreciation for your daily life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/privileges-we-forget-to-be-thankful-for/"
+original_url: "https://selfsaid.pages.dev/privileges-we-forget-to-be-thankful-for/"
 ---
 
-![Woman walking through a meadow on a beautiful summer day](https://seffsaid.com/wp-content/uploads/Privileges-Thankful.webp)
+![Woman walking through a meadow on a beautiful summer day](https://selfsaid.pages.dev/wp-content/uploads/Privileges-Thankful.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of 50 calming quotes to help you feel more grounded when life feels too much. Reminders to slow down, breathe, and take care of your peace."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/calming-quotes/"
+original_url: "https://selfsaid.pages.dev/calming-quotes/"
 ---
 
-![Calming Quotes](https://seffsaid.com/wp-content/uploads/calming-quotes-600x300-1.webp)
+![Calming Quotes](https://selfsaid.pages.dev/wp-content/uploads/calming-quotes-600x300-1.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

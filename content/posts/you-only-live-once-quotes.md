@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "60 powerful 'you only live once' quotes that will challenge you to make the most of each and every day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/you-only-live-once-quotes/"
+original_url: "https://selfsaid.pages.dev/you-only-live-once-quotes/"
 ---
 
-![Couple in love hugging](https://seffsaid.com/wp-content/uploads/you-only-live-once-quotes.webp)
+![Couple in love hugging](https://selfsaid.pages.dev/wp-content/uploads/you-only-live-once-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

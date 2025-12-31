@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Break free from daily time traps by identifying and changing these 12 common habits."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/habits-that-waste-our-time/"
+original_url: "https://selfsaid.pages.dev/habits-that-waste-our-time/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/habits-that-waste-our-time.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/habits-that-waste-our-time.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

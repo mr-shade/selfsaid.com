@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "18 strategies to tackle delays, stay productive, keep moving forward, and ensuring you slay the day, every day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/slay-the-day/"
+original_url: "https://selfsaid.pages.dev/slay-the-day/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/slay-the-day.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/slay-the-day.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

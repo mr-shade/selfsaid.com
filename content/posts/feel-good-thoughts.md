@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "15 feel-good thoughts to ease stress and lift your mood. Simple reminders that bring comfort, calm, and perspective when life feels heavy."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/feel-good-thoughts/"
+original_url: "https://selfsaid.pages.dev/feel-good-thoughts/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/feel-good-thoughts.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/feel-good-thoughts.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

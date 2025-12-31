@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "100 inspirational sayings which have the power to uplift, motivate, and positively transform your mindset."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/100-best-inspirational-sayings-about-life/"
+original_url: "https://selfsaid.pages.dev/100-best-inspirational-sayings-about-life/"
 ---
 
-![A beautiful inspirational sunset at sea](https://seffsaid.com/wp-content/uploads/Inspirational-Sayings-About-Life.webp)
+![A beautiful inspirational sunset at sea](https://selfsaid.pages.dev/wp-content/uploads/Inspirational-Sayings-About-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

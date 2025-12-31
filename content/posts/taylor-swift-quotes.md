@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore the best quotes from Taylor Swift on life, love, perseverance, growing up, and self-expression."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/taylor-swift-quotes/"
+original_url: "https://selfsaid.pages.dev/taylor-swift-quotes/"
 ---
 
-![Taylor Swift in concert](https://seffsaid.com/wp-content/uploads/Taylor-Swift-Quotes.webp)
+![Taylor Swift in concert](https://selfsaid.pages.dev/wp-content/uploads/Taylor-Swift-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

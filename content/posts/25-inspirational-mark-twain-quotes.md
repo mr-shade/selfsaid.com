@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore this collection of 50 of the most famous Mark Twain quotes and immerse yourself in the wit and wisdom of a literary icon."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/25-inspirational-mark-twain-quotes/"
+original_url: "https://selfsaid.pages.dev/25-inspirational-mark-twain-quotes/"
 ---
 
-![Mark Twain Quotes](https://seffsaid.com/wp-content/uploads/mark-twain-quotes.jpg)
+![Mark Twain Quotes](https://selfsaid.pages.dev/wp-content/uploads/mark-twain-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

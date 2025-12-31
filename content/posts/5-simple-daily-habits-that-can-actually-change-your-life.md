@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 5 simple daily habits will change your life for the better, allowing you to achieve way more than before and feel good doing it."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/5-simple-daily-habits-that-can-actually-change-your-life/"
+original_url: "https://selfsaid.pages.dev/5-simple-daily-habits-that-can-actually-change-your-life/"
 ---
 
-![Woman running along a beautiful beach with her arms outstretched](https://seffsaid.com/wp-content/uploads/Daily-Habits-Change-Your-Life.webp)
+![Woman running along a beautiful beach with her arms outstretched](https://selfsaid.pages.dev/wp-content/uploads/Daily-Habits-Change-Your-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

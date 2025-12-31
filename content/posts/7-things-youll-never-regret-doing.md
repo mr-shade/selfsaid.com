@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the life choices you can make starting today to avoid the bitter taste of regret."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/7-things-youll-never-regret-doing/"
+original_url: "https://selfsaid.pages.dev/7-things-youll-never-regret-doing/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/things-you-will-never-regret-doing.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/things-you-will-never-regret-doing.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

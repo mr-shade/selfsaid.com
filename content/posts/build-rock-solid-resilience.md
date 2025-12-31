@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Master the art of resilience with these practical methods designed to help you stay focused and confident in any situation."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/build-rock-solid-resilience/"
+original_url: "https://selfsaid.pages.dev/build-rock-solid-resilience/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/build-rock-solid-resilience.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/build-rock-solid-resilience.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

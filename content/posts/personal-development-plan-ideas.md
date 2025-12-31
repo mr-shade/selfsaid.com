@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 18 personal development plan ideas to help you transform your life and achieve your goals."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/personal-development-plan-ideas/"
+original_url: "https://selfsaid.pages.dev/personal-development-plan-ideas/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Personal-Development-Plan-Ideas.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Personal-Development-Plan-Ideas.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

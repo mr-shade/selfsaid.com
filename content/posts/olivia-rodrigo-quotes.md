@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the wisdom of Olivia Rodrigo in 50 of her best quotes on life, music and growing up."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/olivia-rodrigo-quotes/"
+original_url: "https://selfsaid.pages.dev/olivia-rodrigo-quotes/"
 ---
 
-![Olivia Rodrigo singing live in concert](https://seffsaid.com/wp-content/uploads/Olivia-Rodrigo-Quotes.webp)
+![Olivia Rodrigo singing live in concert](https://selfsaid.pages.dev/wp-content/uploads/Olivia-Rodrigo-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

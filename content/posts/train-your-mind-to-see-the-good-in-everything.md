@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore the power of positive thinking with our insightful page on the inspirational quote 'Train Your Mind To See The Good In Everything.'"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/train-your-mind-to-see-the-good-in-everything/"
+original_url: "https://selfsaid.pages.dev/train-your-mind-to-see-the-good-in-everything/"
 ---
 
-![Train Your Mind To See The Good In Everything](https://seffsaid.com/wp-content/uploads/Train-your-mind-to-see-the-good-in-everything.jpg)
+![Train Your Mind To See The Good In Everything](https://selfsaid.pages.dev/wp-content/uploads/Train-your-mind-to-see-the-good-in-everything.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

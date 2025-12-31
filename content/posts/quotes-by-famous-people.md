@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Quotes from famous people listed alphabetically by name including authors, celebrities, musicians, politicians, philosophers, and more!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-by-famous-people/"
+original_url: "https://selfsaid.pages.dev/quotes-by-famous-people/"
 ---
 
 # Quotes by Famous People

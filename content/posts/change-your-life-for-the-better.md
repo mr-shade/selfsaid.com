@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 8 simple things you can do start doing today that will change your life for the better."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/change-your-life-for-the-better/"
+original_url: "https://selfsaid.pages.dev/change-your-life-for-the-better/"
 ---
 
-![Man looking out to sea happy to have changed his life for the better](https://seffsaid.com/wp-content/uploads/Change-Your-Life-For-The-Better.webp)
+![Man looking out to sea happy to have changed his life for the better](https://selfsaid.pages.dev/wp-content/uploads/Change-Your-Life-For-The-Better.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

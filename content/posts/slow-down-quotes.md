@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of 60 slow down quotes to help you create a softer, more intentional day. Gentle reminders to pause, breathe, and move at your own pace."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/slow-down-quotes/"
+original_url: "https://selfsaid.pages.dev/slow-down-quotes/"
 ---
 
-![Slow Down Quotes for a Calmer Day](https://seffsaid.com/wp-content/uploads/slow-down-quotes.webp)
+![Slow Down Quotes for a Calmer Day](https://selfsaid.pages.dev/wp-content/uploads/slow-down-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

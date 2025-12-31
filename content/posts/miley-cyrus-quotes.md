@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of Miley Cyrus's best quotes on life, success, and personal growth."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/miley-cyrus-quotes/"
+original_url: "https://selfsaid.pages.dev/miley-cyrus-quotes/"
 ---
 
-![Miley Cyrus in concert.](https://seffsaid.com/wp-content/uploads/Miley-Cyrus-Quotes.webp)
+![Miley Cyrus in concert.](https://selfsaid.pages.dev/wp-content/uploads/Miley-Cyrus-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

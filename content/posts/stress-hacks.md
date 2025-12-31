@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These 15 everyday stress hacks are small, calming, and doable, no long routines or pressure to perform. Just gentle shifts that help you feel more grounded."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/stress-hacks/"
+original_url: "https://selfsaid.pages.dev/stress-hacks/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/everyday-stress-hacks.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/everyday-stress-hacks.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Start your morning with gentle reminders that bring calm and clarity. Let go of pressure, protect your peace, and begin the day with care and intention."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/morning-reminders/"
+original_url: "https://selfsaid.pages.dev/morning-reminders/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/morning-reminders.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/morning-reminders.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

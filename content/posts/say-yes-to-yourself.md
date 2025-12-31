@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "It’s not selfish to say yes to yourself. Learn 10 powerful ways to honor your needs, protect your time, and create a life that feels more like your own."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/say-yes-to-yourself/"
+original_url: "https://selfsaid.pages.dev/say-yes-to-yourself/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/say-yes-to-yourself.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/say-yes-to-yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Simple self-care tips, daily habits, and tools for emotional balance, mental clarity, and real-life well-being."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/newsletter/"
+original_url: "https://selfsaid.pages.dev/newsletter/"
 ---
 
 # The Everyday Self-Care Newsletter

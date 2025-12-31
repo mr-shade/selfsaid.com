@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Feeling overwhelmed? This gentle reminder will help you slow down and care for yourself without fixing everything at once."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/you-dont-have-to-fix-everything/"
+original_url: "https://selfsaid.pages.dev/you-dont-have-to-fix-everything/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/you-dont-have-to-fix-everything.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/you-dont-have-to-fix-everything.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

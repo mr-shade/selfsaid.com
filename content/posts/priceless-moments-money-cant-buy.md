@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 20 priceless moments that no amount of money can ever purchase"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/priceless-moments-money-cant-buy/"
+original_url: "https://selfsaid.pages.dev/priceless-moments-money-cant-buy/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/priceless-moments.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/priceless-moments.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

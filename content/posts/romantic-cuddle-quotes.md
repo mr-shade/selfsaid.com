@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These romantic cuddle quotes capture the feeling of hugging someone special and never wanting to let go."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/romantic-cuddle-quotes/"
+original_url: "https://selfsaid.pages.dev/romantic-cuddle-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/romantic-cuddle-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/romantic-cuddle-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

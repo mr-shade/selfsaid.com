@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "You can accelerate your personal growth by making small lifestyle changes, and here are 10 ways to start today."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/ten-ways-to-accelerate-your-personal-growth-and-development/"
+original_url: "https://selfsaid.pages.dev/ten-ways-to-accelerate-your-personal-growth-and-development/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Accelerate-Your-Personal-Growth.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Accelerate-Your-Personal-Growth.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

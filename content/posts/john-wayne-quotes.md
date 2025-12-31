@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Gallop into a world of inspiration with 121 John Wayne quotes, the enduring symbol of American grit."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/john-wayne-quotes/"
+original_url: "https://selfsaid.pages.dev/john-wayne-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/john-wayne-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/john-wayne-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

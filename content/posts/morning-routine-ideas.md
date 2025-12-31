@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Transform your mornings and unlock a more productive, balanced day by exploring and implementing these tailored morning routine ideas."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/morning-routine-ideas/"
+original_url: "https://selfsaid.pages.dev/morning-routine-ideas/"
 ---
 
-![Morning Routine Ideas for Productivity and Wellness](https://seffsaid.com/wp-content/uploads/morning-routine-ideas.jpg)
+![Morning Routine Ideas for Productivity and Wellness](https://selfsaid.pages.dev/wp-content/uploads/morning-routine-ideas.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

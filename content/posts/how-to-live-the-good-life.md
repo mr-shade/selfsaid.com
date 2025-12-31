@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover how to cultivate a life filled with purpose, happiness, and fulfillment every single day. Live the good life starting today."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-live-the-good-life/"
+original_url: "https://selfsaid.pages.dev/how-to-live-the-good-life/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/how-to-live-the-good-life.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/how-to-live-the-good-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

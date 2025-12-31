@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Bob Marley's quotes offer a fresh perspective on how to live a life full of happiness, love, meaning, and positivity every day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/bob-marley-quotes/"
+original_url: "https://selfsaid.pages.dev/bob-marley-quotes/"
 ---
 
-![Bob Marley performing live](https://seffsaid.com/wp-content/uploads/Bob-Marley-Quotes.webp)
+![Bob Marley performing live](https://selfsaid.pages.dev/wp-content/uploads/Bob-Marley-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Tired of chaotic, anxious mornings? Discover a 5-minute self-care routine that helped me feel grounded, calm, and present - without apps, pressure, or perfection."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/5-minute-morning-reset/"
+original_url: "https://selfsaid.pages.dev/5-minute-morning-reset/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/5-Minute-Morning-Reset.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/5-Minute-Morning-Reset.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

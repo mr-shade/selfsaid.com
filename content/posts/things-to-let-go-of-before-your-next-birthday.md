@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Find out how releasing the unnecessary can help you enter your next year feeling lighter, freer, and more focused."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/things-to-let-go-of-before-your-next-birthday/"
+original_url: "https://selfsaid.pages.dev/things-to-let-go-of-before-your-next-birthday/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Things-To-Let-Go-Of.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Things-To-Let-Go-Of.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore our concise meaning of the quote 'One day you will be at the place you always wanted to be. Don't stop believing,'"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/"
+original_url: "https://selfsaid.pages.dev/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/"
 ---
 
-![One day you will be at the place you always wanted to be. Don't stop believing.](https://seffsaid.com/wp-content/uploads/One-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg)
+![One day you will be at the place you always wanted to be. Don't stop believing.](https://selfsaid.pages.dev/wp-content/uploads/One-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

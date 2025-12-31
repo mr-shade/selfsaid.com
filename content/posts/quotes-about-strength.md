@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Struggling through difficult times and need help in facing your hardships? Read these 44 powerful quotes about strength and resilience."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-strength/"
+original_url: "https://selfsaid.pages.dev/quotes-about-strength/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/quotes-about-strength.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-strength.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

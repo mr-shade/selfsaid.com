@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 10 practical tips on maintaining a loving and fulfilling long-distance relationship."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-make-long-distance-relationships-work/"
+original_url: "https://selfsaid.pages.dev/how-to-make-long-distance-relationships-work/"
 ---
 
-![Two people about to start a long distance relationship](https://seffsaid.com/wp-content/uploads/long-distance-relationship.webp)
+![Two people about to start a long distance relationship](https://selfsaid.pages.dev/wp-content/uploads/long-distance-relationship.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

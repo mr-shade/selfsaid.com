@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "146 Courage Quotes to ignite your bravery, inner strength and resilience in facing life's challenges."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-courage/"
+original_url: "https://selfsaid.pages.dev/quotes-about-courage/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Quotes-About-Courage.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Quotes-About-Courage.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

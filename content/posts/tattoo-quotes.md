@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore the diverse and profound meanings behind ink art with these 225 tattoo quotes, & let them inspire your next piece of self-expression."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/tattoo-quotes/"
+original_url: "https://selfsaid.pages.dev/tattoo-quotes/"
 ---
 
-![225 Tattoo Quotes about Strength, Love, and Life](https://seffsaid.com/wp-content/uploads/tattoo-quotes.jpg)
+![225 Tattoo Quotes about Strength, Love, and Life](https://selfsaid.pages.dev/wp-content/uploads/tattoo-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

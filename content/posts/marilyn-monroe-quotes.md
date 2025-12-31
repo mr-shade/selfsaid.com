@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore Marilyn Monroe's thoughts on love and life in these 50 revealing quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/marilyn-monroe-quotes/"
+original_url: "https://selfsaid.pages.dev/marilyn-monroe-quotes/"
 ---
 
-![Marilyn Monroe](https://seffsaid.com/wp-content/uploads/Marilyn-Monroe-Quotes.webp)
+![Marilyn Monroe](https://selfsaid.pages.dev/wp-content/uploads/Marilyn-Monroe-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

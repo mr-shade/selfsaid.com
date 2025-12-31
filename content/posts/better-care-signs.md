@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Your body and mind are sending signals that shouldn't be ignored and these ten signs will help you recognize them."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/better-care-signs/"
+original_url: "https://selfsaid.pages.dev/better-care-signs/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Better-Care-Signs.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Better-Care-Signs.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

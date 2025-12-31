@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to turn life's toughest moments into valuable opportunities."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/turning-obstacles-into-opportunities/"
+original_url: "https://selfsaid.pages.dev/turning-obstacles-into-opportunities/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/turning-obstacles-into-opportunities.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/turning-obstacles-into-opportunities.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

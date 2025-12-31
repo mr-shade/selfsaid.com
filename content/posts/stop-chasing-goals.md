@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "This article explores what happened when I stopped chasing goals, focusing on outcomes and started living with intention instead."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/stop-chasing-goals/"
+original_url: "https://selfsaid.pages.dev/stop-chasing-goals/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/stop-chasing-goals.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/stop-chasing-goals.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

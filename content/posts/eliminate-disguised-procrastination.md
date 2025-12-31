@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover effective strategies to identify and overcome disguised procrastination. A must-read for boosting productivity and achieving goals."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/eliminate-disguised-procrastination/"
+original_url: "https://selfsaid.pages.dev/eliminate-disguised-procrastination/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Disguised-Procrastination.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Disguised-Procrastination.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

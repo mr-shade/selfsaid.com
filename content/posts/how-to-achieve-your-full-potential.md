@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the essential habits and mindset shifts that will help you progress effectively and help you achieve your full potential."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-achieve-your-full-potential/"
+original_url: "https://selfsaid.pages.dev/how-to-achieve-your-full-potential/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/how-to-achieve-your-full-potential.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/how-to-achieve-your-full-potential.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

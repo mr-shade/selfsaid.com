@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 50 self-care quotes to calm your mind and nourish your soul. Gentle reminders for slowing down, healing, and coming back to yourself."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/self-care-quotes/"
+original_url: "https://selfsaid.pages.dev/self-care-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Self-Care-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Self-Care-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

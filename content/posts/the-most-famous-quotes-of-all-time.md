@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "See the world through the eyes of philosophers, leaders, and visionaries with this collection of The 96 Most Famous Quotes Of All Time"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/the-most-famous-quotes-of-all-time/"
+original_url: "https://selfsaid.pages.dev/the-most-famous-quotes-of-all-time/"
 ---
 
-![Camera flashes from Paparazzi](https://seffsaid.com/wp-content/uploads/Most-Famous-Quotes-Of-All-Time.webp)
+![Camera flashes from Paparazzi](https://selfsaid.pages.dev/wp-content/uploads/Most-Famous-Quotes-Of-All-Time.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

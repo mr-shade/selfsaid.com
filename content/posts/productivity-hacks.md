@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These out-of-the-box productivity hacks might just make you rethink everything you know about efficiency."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/productivity-hacks/"
+original_url: "https://selfsaid.pages.dev/productivity-hacks/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Productivity-Hacks-You-Havent-Tried.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Productivity-Hacks-You-Havent-Tried.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

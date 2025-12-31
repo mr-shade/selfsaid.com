@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Tired of journaling habits that never stick? Discover how one simple sentence a day became the journaling practice that finally worked, and why it might work for you too."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/one-line-journaling/"
+original_url: "https://selfsaid.pages.dev/one-line-journaling/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/one-line-journaling.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/one-line-journaling.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

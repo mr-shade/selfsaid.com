@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover how meditation can calm your mind, balance your emotions, and bring more peace into your daily life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/benefits-of-meditation/"
+original_url: "https://selfsaid.pages.dev/benefits-of-meditation/"
 ---
 
-![Woman meditating at sea on a luxury yacht](https://seffsaid.com/wp-content/uploads/science-based-benefits-of-meditation.webp)
+![Woman meditating at sea on a luxury yacht](https://selfsaid.pages.dev/wp-content/uploads/science-based-benefits-of-meditation.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

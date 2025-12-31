@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "10 powerful sticky notes to read each morning to manifest a positive mindset and a super productive day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/sticky-notes-we-need-to-read-every-morning/"
+original_url: "https://selfsaid.pages.dev/sticky-notes-we-need-to-read-every-morning/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/sticky-notes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/sticky-notes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the mind of a grunge legend with this collection of Kurt Cobain's 52 best quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/kurt-cobain-quotes/"
+original_url: "https://selfsaid.pages.dev/kurt-cobain-quotes/"
 ---
 
-![Kurt Cobain on stage with Nirvana](https://seffsaid.com/wp-content/uploads/kurt-cobain-quotes.webp)
+![Kurt Cobain on stage with Nirvana](https://selfsaid.pages.dev/wp-content/uploads/kurt-cobain-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

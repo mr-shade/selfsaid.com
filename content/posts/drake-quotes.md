@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Drake's 50 best quotes that will inspire and guide you in your everyday life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/drake-quotes/"
+original_url: "https://selfsaid.pages.dev/drake-quotes/"
 ---
 
-![Drake in concert](https://seffsaid.com/wp-content/uploads/Drake-Quotes.webp)
+![Drake in concert](https://selfsaid.pages.dev/wp-content/uploads/Drake-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

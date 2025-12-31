@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Free 7-day email course to help you create a calmer mind, one day at a time. Learn simple, practical steps to reduce overwhelm and make space for what matters."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/7-days-to-a-calmer-mind/"
+original_url: "https://selfsaid.pages.dev/7-days-to-a-calmer-mind/"
 ---
 
 # 7 Days To A Calmer Mind

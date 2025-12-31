@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to take your daily routine to the next level with these 10 game-changing life hacks."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/transform-your-day/"
+original_url: "https://selfsaid.pages.dev/transform-your-day/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/life-hacks.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/life-hacks.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Taking time to do absolutely nothing might be the smartest decision you ever make for your mind and body."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/reasons-to-do-nothing/"
+original_url: "https://selfsaid.pages.dev/reasons-to-do-nothing/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/reasons-to-do-nothing.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/reasons-to-do-nothing.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover sixteen small acts of kindness that can lift others and bring more warmth and connection into your life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/16-simple-ways-to-make-someone-happy/"
+original_url: "https://selfsaid.pages.dev/16-simple-ways-to-make-someone-happy/"
 ---
 
-![Woman making someone happy through laughter.](https://seffsaid.com/wp-content/uploads/make-someone-happy.webp)
+![Woman making someone happy through laughter.](https://selfsaid.pages.dev/wp-content/uploads/make-someone-happy.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

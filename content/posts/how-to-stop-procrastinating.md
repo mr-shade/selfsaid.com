@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 8 simple yet effective strategies to kick procrastination to the curb and skyrocket your productivity."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-stop-procrastinating/"
+original_url: "https://selfsaid.pages.dev/how-to-stop-procrastinating/"
 ---
 
-![An office worker busy working on a computer](https://seffsaid.com/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp)
+![An office worker busy working on a computer](https://selfsaid.pages.dev/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

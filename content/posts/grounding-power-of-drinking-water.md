@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover how something as simple as drinking water became a grounding self-care ritual during my most anxious, disconnected days."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/grounding-power-of-drinking-water/"
+original_url: "https://selfsaid.pages.dev/grounding-power-of-drinking-water/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/power-of-drinking-water.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/power-of-drinking-water.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

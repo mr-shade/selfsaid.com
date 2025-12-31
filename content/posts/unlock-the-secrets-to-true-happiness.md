@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to cultivate a life filled with purpose, connection, and true happiness through 8 simple yet powerful practices."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/unlock-the-secrets-to-true-happiness/"
+original_url: "https://selfsaid.pages.dev/unlock-the-secrets-to-true-happiness/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Secrets-To-True-Happiness.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Secrets-To-True-Happiness.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

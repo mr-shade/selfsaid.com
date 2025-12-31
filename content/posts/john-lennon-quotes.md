@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Let these John Lennon quotes inspire your day and influence your thoughts on peace, love, and life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/john-lennon-quotes/"
+original_url: "https://selfsaid.pages.dev/john-lennon-quotes/"
 ---
 
-![John Lennon with a guitar over his shoulder walking down a deserted road.](https://seffsaid.com/wp-content/uploads/John-Lennon-Quotes.webp)
+![John Lennon with a guitar over his shoulder walking down a deserted road.](https://selfsaid.pages.dev/wp-content/uploads/John-Lennon-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

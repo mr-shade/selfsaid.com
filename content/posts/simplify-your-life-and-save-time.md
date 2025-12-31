@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Stop wasting time and start getting more done by simplifying your life with these 14 smart life hacks."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/simplify-your-life-and-save-time/"
+original_url: "https://selfsaid.pages.dev/simplify-your-life-and-save-time/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Simplify-Your-Life-Save-Time.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Simplify-Your-Life-Save-Time.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

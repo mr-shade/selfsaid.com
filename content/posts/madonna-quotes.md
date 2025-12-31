@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the wisdom of Madonna with this compilation of her most significant and inspiring quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/madonna-quotes/"
+original_url: "https://selfsaid.pages.dev/madonna-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Madonna-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Madonna-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

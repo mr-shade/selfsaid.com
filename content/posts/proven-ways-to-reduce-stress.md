@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 8 proven stress management tips to help you reduce stress and have you back feeling in control of your life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/proven-ways-to-reduce-stress/"
+original_url: "https://selfsaid.pages.dev/proven-ways-to-reduce-stress/"
 ---
 
-![Incredibly stressed man](https://seffsaid.com/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp)
+![Incredibly stressed man](https://selfsaid.pages.dev/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

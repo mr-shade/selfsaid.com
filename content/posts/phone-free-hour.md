@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Struggling to unplug? This is how I started a phone-free hour each day without guilt, without pressure, and with more peace than I expected."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/phone-free-hour/"
+original_url: "https://selfsaid.pages.dev/phone-free-hour/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/phone-free-hour.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/phone-free-hour.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Bring more positivity into your day with these 50 powerful gratitude quotes that encourage thankfulness and inner peace."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/gratitude-quotes/"
+original_url: "https://selfsaid.pages.dev/gratitude-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/gratitude-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/gratitude-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

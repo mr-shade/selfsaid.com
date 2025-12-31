@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover six easy and actionable ways to develop and maintain a positive attitude in your daily life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/easy-ways-to-develop-a-positive-attitude/"
+original_url: "https://selfsaid.pages.dev/easy-ways-to-develop-a-positive-attitude/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/positive-attitude.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/positive-attitude.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

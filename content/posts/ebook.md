@@ -5,14 +5,14 @@ author: "Seff Said"
 description: "Subscribe to my exclusive inspirational newsletter today and receive my eBook – “25 Daily Habits That Will Change Your Life” for free!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/ebook/"
+original_url: "https://selfsaid.pages.dev/ebook/"
 ---
 
 ### Get my FREE eBook:
 
 Subscribe to my weekly Inspirational Newsletter today and receive my 85-page eBook – ’25 Daily Habits That Will Change Your Life’ for FREE!
 
-![](https://seffsaid.com/wp-content/uploads/25-Daily-Habits-TN.jpg)
+![](https://selfsaid.pages.dev/wp-content/uploads/25-Daily-Habits-TN.jpg)
 
 * * *
 

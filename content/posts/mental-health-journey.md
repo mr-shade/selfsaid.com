@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "This collection of 60 quotes gently supports your mental health journey with encouragement, perspective, and quiet strength."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/mental-health-journey/"
+original_url: "https://selfsaid.pages.dev/mental-health-journey/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Mental-Health-Journey.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Mental-Health-Journey.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

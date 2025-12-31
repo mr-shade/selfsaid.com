@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Self-care goes deeper than baths and breaks. Discover what taking care of yourself really means, and how to start."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/what-taking-care-of-yourself-really-means/"
+original_url: "https://selfsaid.pages.dev/what-taking-care-of-yourself-really-means/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Taking-Care-of-Yourself.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Taking-Care-of-Yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

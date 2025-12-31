@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore a fresh way of thinking about your problems by asking the questions that truly matter."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/questions-problems/"
+original_url: "https://selfsaid.pages.dev/questions-problems/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/questions-problems.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/questions-problems.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

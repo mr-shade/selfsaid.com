@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to achieve a flow state of mind, the incredible mental state that emerges when one is fully absorbed in an activity."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/flow-state-of-mind/"
+original_url: "https://selfsaid.pages.dev/flow-state-of-mind/"
 ---
 
-![Woman running while in a flow state of mind.](https://seffsaid.com/wp-content/uploads/flow-state-of-mind.webp)
+![Woman running while in a flow state of mind.](https://selfsaid.pages.dev/wp-content/uploads/flow-state-of-mind.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

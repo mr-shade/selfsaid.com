@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Let these 180 Rainy Day Quotes be your guide to finding inspiration on even the rainiest of days."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/rainy-day-quotes/"
+original_url: "https://selfsaid.pages.dev/rainy-day-quotes/"
 ---
 
-![Rainy Day Quotes to Uplift Your Spirits](https://seffsaid.com/wp-content/uploads/rainy-day-quotes.jpg)
+![Rainy Day Quotes to Uplift Your Spirits](https://selfsaid.pages.dev/wp-content/uploads/rainy-day-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

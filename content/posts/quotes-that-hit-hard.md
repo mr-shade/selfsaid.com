@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "50 hard-hitting quotes that challenge your perspective and make you think deeply about life, love, and resilience."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-that-hit-hard/"
+original_url: "https://selfsaid.pages.dev/quotes-that-hit-hard/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/quotes-that-hit-hard.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/quotes-that-hit-hard.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

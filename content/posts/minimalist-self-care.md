@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover how minimalist self-care helps you feel better by doing less. Simple, calming habits that support your well-being without overwhelm."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/minimalist-self-care/"
+original_url: "https://selfsaid.pages.dev/minimalist-self-care/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/minimalist-self-care.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/minimalist-self-care.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

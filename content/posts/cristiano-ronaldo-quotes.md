@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the power of motivation and self-belief with a collection of inspiring quotes from the footballer Cristiano Ronaldo."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/cristiano-ronaldo-quotes/"
+original_url: "https://selfsaid.pages.dev/cristiano-ronaldo-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Cristiano-Ronaldo-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Cristiano-Ronaldo-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

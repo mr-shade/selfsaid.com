@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A soulful collection of 60 quotes that speak to the quiet strength, realness, and depth of a beautiful soul. For anyone who needs to feel seen, understood, and valued, just as they are."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/beautiful-soul-quotes/"
+original_url: "https://selfsaid.pages.dev/beautiful-soul-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/beautiful-soul-quotes-1.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/beautiful-soul-quotes-1.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

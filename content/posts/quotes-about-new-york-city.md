@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "160 quotes about New York City that bring its bustling streets, iconic landmarks, and vibrant energy to life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-new-york-city/"
+original_url: "https://selfsaid.pages.dev/quotes-about-new-york-city/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/New-York-City-webp.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/New-York-City-webp.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

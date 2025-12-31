@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the five daily habits that are holding you back from success and learn how to overcome them to unlock your full potential."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/daily-habits-that-keep-holding-us-back/"
+original_url: "https://selfsaid.pages.dev/daily-habits-that-keep-holding-us-back/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/daily-habits-holding-you-back.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/daily-habits-holding-you-back.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Struggling with the Monday blues? Discover 4 simple ways to prepare, reset your mindset, and start the week feeling calmer and more in control."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/monday-blues/"
+original_url: "https://selfsaid.pages.dev/monday-blues/"
 ---
 
-![4 Ways to Beat the Monday Blues](https://seffsaid.com/wp-content/uploads/monday-blues.jpg)
+![4 Ways to Beat the Monday Blues](https://selfsaid.pages.dev/wp-content/uploads/monday-blues.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

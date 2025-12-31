@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Embrace the celebration of life with these 201 Party Quotes and let every day be your reason to dance with joy!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/party-quotes/"
+original_url: "https://selfsaid.pages.dev/party-quotes/"
 ---
 
-![Two women dancing at a party](https://seffsaid.com/wp-content/uploads/party-quotes-webp.webp)
+![Two women dancing at a party](https://selfsaid.pages.dev/wp-content/uploads/party-quotes-webp.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

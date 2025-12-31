@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Six ways to stop overthinking that have helped me to relax and take my overactive brain from a chronic state of stress to a calmer place."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/stop-overthinking-everything/"
+original_url: "https://selfsaid.pages.dev/stop-overthinking-everything/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Stop-Overthinking-Everything.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Stop-Overthinking-Everything.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

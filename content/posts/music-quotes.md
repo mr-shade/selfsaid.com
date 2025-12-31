@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A compilation of 60 inspiring quotes about music that celebrate it's universal power to heal, connect, and uplift the human spirit."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/music-quotes/"
+original_url: "https://selfsaid.pages.dev/music-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/music-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/music-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

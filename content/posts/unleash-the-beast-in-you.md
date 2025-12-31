@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 10 powerful strategies to awaken your inner beast and conquer life's challenges. with actionable advice and real-life examples."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/unleash-the-beast-in-you/"
+original_url: "https://selfsaid.pages.dev/unleash-the-beast-in-you/"
 ---
 
-![Lion roaring unleashing his inner beast](https://seffsaid.com/wp-content/uploads/Unleash-The-Beast-In-You.webp)
+![Lion roaring unleashing his inner beast](https://selfsaid.pages.dev/wp-content/uploads/Unleash-The-Beast-In-You.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

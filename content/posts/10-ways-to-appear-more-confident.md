@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "10 ways to modify your body language so that you always appear cool, calm, self-assured, in control and full of confidence in any situation."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/10-ways-to-appear-more-confident/"
+original_url: "https://selfsaid.pages.dev/10-ways-to-appear-more-confident/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/how-to-appear-confident.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/how-to-appear-confident.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

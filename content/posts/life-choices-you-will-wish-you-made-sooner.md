@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "This surprising list of eight life choices could have changed your life if you had only made them sooner."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/life-choices-you-will-wish-you-made-sooner/"
+original_url: "https://selfsaid.pages.dev/life-choices-you-will-wish-you-made-sooner/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Life-Choices-Youll-Wish-You-Made-Sooner.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Life-Choices-Youll-Wish-You-Made-Sooner.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

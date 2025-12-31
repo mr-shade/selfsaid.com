@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 38 of the best short quotes about life that will fill you with wisdom and inspiration."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/38-very-short-quotes-about-life/"
+original_url: "https://selfsaid.pages.dev/38-very-short-quotes-about-life/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Very-Short-Quotes-About-Life.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Very-Short-Quotes-About-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

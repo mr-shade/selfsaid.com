@@ -14,11 +14,11 @@ export const metadata: Metadata = {
     keywords: ['motivation', 'inspiration', 'quotes', 'self-improvement', 'productivity', 'life advice'],
     authors: [{ name: 'Seff Said' }],
     creator: 'Seff Said',
-    metadataBase: new URL('https://seffsaid.com'),
+    metadataBase: new URL('https://selfsaid.pages.dev'),
     openGraph: {
         type: 'website',
         locale: 'en_US',
-        url: 'https://seffsaid.com',
+        url: 'https://selfsaid.pages.dev',
         siteName: 'Seff Said',
         title: 'Seff Said - Inspiration, Motivation, and Life Advice',
         description: 'Your daily dose of inspiration, motivation, and practical life advice.',

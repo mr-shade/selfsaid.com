@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Master Oogway quotes capturing the wisdom that has made him such an iconic character in the Kung Fu Panda TV series."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/master-oogway-quotes/"
+original_url: "https://selfsaid.pages.dev/master-oogway-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Master-Oogway-Quotes2.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Master-Oogway-Quotes2.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

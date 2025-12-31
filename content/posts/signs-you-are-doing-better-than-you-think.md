@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "You're likely doing better than you think. Discover the signs that show you're on the right path - even if it doesn’t feel like it."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/signs-you-are-doing-better-than-you-think/"
+original_url: "https://selfsaid.pages.dev/signs-you-are-doing-better-than-you-think/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/closer-to-okay.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/closer-to-okay.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore the mind of a music icon through this collection of 50 Billie Eilish's quotes on life, love and music."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/billie-eilish-quotes/"
+original_url: "https://selfsaid.pages.dev/billie-eilish-quotes/"
 ---
 
-![Billie Eilish live on stage](https://seffsaid.com/wp-content/uploads/Billie-Eilish-Quotes.webp)
+![Billie Eilish live on stage](https://selfsaid.pages.dev/wp-content/uploads/Billie-Eilish-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

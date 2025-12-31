@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "This simple practice, doing just one thing slowly each day, helped me reclaim calm, focus, and presence. No pressure. No performance. Just one pause at a time."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/doing-one-thing-slowly/"
+original_url: "https://selfsaid.pages.dev/doing-one-thing-slowly/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/doing-one-thing-slowly.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/doing-one-thing-slowly.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

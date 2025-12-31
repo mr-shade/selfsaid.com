@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 10 reasons to limit your exposure to negative news and create more space for calm, balance, and resilience in daily life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/limit-exposure-to-negative-news/"
+original_url: "https://selfsaid.pages.dev/limit-exposure-to-negative-news/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/negative-news.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/negative-news.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

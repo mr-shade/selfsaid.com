@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "The 50 best comfort zone quotes. Perfect to inspire you to take your first step into a new world of opportunities."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/50-best-comfort-zone-quotes/"
+original_url: "https://selfsaid.pages.dev/50-best-comfort-zone-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Comfort-Zone-Quotes.jpg)
+![](https://selfsaid.pages.dev/wp-content/uploads/Comfort-Zone-Quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

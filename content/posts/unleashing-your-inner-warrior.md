@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover strategies, mindset shifts, and actionable advice to help you tap into your inner warrior and tackle life's challenges head-on."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/unleashing-your-inner-warrior/"
+original_url: "https://selfsaid.pages.dev/unleashing-your-inner-warrior/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/inner-warrior.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/inner-warrior.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Get a glimpse into Selena Gomez's perspective on life and love with this exclusive compilation of her most heartfelt and profound quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/selena-gomez-quotes/"
+original_url: "https://selfsaid.pages.dev/selena-gomez-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/selena-gomez-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/selena-gomez-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

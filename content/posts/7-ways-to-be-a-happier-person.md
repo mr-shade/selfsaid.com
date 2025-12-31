@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 7 simple life changes that can make a huge difference to your appreciation and enjoyment of life and make you a much happier person."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/7-ways-to-be-a-happier-person/"
+original_url: "https://selfsaid.pages.dev/7-ways-to-be-a-happier-person/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/how-to-be-happy.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/how-to-be-happy.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

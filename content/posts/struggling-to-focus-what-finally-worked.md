@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Finding it hard to focus? This article shares the simple, doable changes that finally helped me to get things done."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/struggling-to-focus-what-finally-worked/"
+original_url: "https://selfsaid.pages.dev/struggling-to-focus-what-finally-worked/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/struggling-to-focus.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/struggling-to-focus.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

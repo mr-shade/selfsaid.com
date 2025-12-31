@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Challenge your thoughts and beliefs with the profound wisdom found in this collection of '164 Quotes That Make You Think'."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-that-make-you-think/"
+original_url: "https://selfsaid.pages.dev/quotes-that-make-you-think/"
 ---
 
-![164 Quotes That Make You Think](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-think.jpg)
+![164 Quotes That Make You Think](https://selfsaid.pages.dev/wp-content/uploads/quotes-that-make-you-think.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

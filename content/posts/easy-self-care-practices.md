@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Simple self care practices you can do today to help you feel calmer and more balanced."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/easy-self-care-practices/"
+original_url: "https://selfsaid.pages.dev/easy-self-care-practices/"
 ---
 
-![Easy Self Care Practices You Can Start Today](https://seffsaid.com/wp-content/uploads/easy-self-care-practices.webp)
+![Easy Self Care Practices You Can Start Today](https://selfsaid.pages.dev/wp-content/uploads/easy-self-care-practices.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

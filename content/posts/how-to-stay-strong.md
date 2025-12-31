@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Tough times don’t last, but strong people do - see how you can become one of them"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-stay-strong/"
+original_url: "https://selfsaid.pages.dev/how-to-stay-strong/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/How-To-Stay-Strong.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/How-To-Stay-Strong.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

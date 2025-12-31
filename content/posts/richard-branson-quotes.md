@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "50 Richard Branson quotes on entrepreneurship, adventure, learning, risk-taking, and life in general."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/richard-branson-quotes/"
+original_url: "https://selfsaid.pages.dev/richard-branson-quotes/"
 ---
 
-![Richard Branson walking along a desert road](https://seffsaid.com/wp-content/uploads/richard-branson-quotes.webp)
+![Richard Branson walking along a desert road](https://selfsaid.pages.dev/wp-content/uploads/richard-branson-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

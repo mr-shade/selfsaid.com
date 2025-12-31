@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore the poetic brilliance and heartfelt reflections of Lana Del Rey with this collection of her most iconic quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/lana-del-rey-quotes/"
+original_url: "https://selfsaid.pages.dev/lana-del-rey-quotes/"
 ---
 
-![Lana Del Rey in concert](https://seffsaid.com/wp-content/uploads/Lana-Del-Rey-quotes.webp)
+![Lana Del Rey in concert](https://selfsaid.pages.dev/wp-content/uploads/Lana-Del-Rey-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

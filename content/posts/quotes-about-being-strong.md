@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Need a boost of courage? Read our curated collection of 166 inspiring quotes about being strong during difficult times."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-being-strong/"
+original_url: "https://selfsaid.pages.dev/quotes-about-being-strong/"
 ---
 
-![Quotes About Being Strong](https://seffsaid.com/wp-content/uploads/quotes-about-being-strong.jpg)
+![Quotes About Being Strong](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-being-strong.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

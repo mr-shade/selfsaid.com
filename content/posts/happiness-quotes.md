@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Everyone has tough days. Let these 110 Inspirational Quotes about Happiness lift your spirits and remind you of better days ahead."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/happiness-quotes/"
+original_url: "https://selfsaid.pages.dev/happiness-quotes/"
 ---
 
-![A very happy couple laughing together at the beach](https://seffsaid.com/wp-content/uploads/happiness-quotes.webp)
+![A very happy couple laughing together at the beach](https://selfsaid.pages.dev/wp-content/uploads/happiness-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

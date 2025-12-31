@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Developing these ten essential life skills can significantly enhance your ability to succeed in all areas of life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/essential-life-skills/"
+original_url: "https://selfsaid.pages.dev/essential-life-skills/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/essential-life-skills.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/essential-life-skills.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

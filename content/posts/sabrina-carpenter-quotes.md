@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Sabrina Carpenter's best quotes that capture her thoughts on self-love, individuality, perseverance, and personal growth."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/sabrina-carpenter-quotes/"
+original_url: "https://selfsaid.pages.dev/sabrina-carpenter-quotes/"
 ---
 
-![Sabrina Carpenter In Concert](https://seffsaid.com/wp-content/uploads/Sabrina-Carpenter-Quotes.webp)
+![Sabrina Carpenter In Concert](https://selfsaid.pages.dev/wp-content/uploads/Sabrina-Carpenter-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

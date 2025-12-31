@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 50 of the best no regrets quotes that will encourage you to take risks, live fully, and let go of what holds you back."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/no-regrets-quotes/"
+original_url: "https://selfsaid.pages.dev/no-regrets-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/no-regrets-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/no-regrets-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

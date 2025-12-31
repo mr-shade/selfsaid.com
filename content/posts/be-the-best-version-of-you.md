@@ -5,12 +5,12 @@ author: "Seff Said"
 description: "Decorate your home with the SEFFSAID exclusive \"Be The Best Version Of You\" printable quote now available for instant download."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/be-the-best-version-of-you/"
+original_url: "https://selfsaid.pages.dev/be-the-best-version-of-you/"
 ---
 
 All [Printable Quotes](/printable-quotes)
 
-![Be The Best Version Of You](https://seffsaid.com/wp-content/uploads/Be-The-Best-Version-Of-You-800x800-1.webp)
+![Be The Best Version Of You](https://selfsaid.pages.dev/wp-content/uploads/Be-The-Best-Version-Of-You-800x800-1.webp)
 
 ## “Be The Best Version Of You” Printable Quote
 

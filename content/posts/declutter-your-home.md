@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Transform your home into a clutter-free zone with our straightforward 10-step guide."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/declutter-your-home/"
+original_url: "https://selfsaid.pages.dev/declutter-your-home/"
 ---
 
-![A minimalist room free of clutter.](https://seffsaid.com/wp-content/uploads/declutter-your-home.webp)
+![A minimalist room free of clutter.](https://selfsaid.pages.dev/wp-content/uploads/declutter-your-home.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

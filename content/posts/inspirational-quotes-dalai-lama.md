@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Unlock the secrets to a happier, more peaceful life with these 92 must-read quotes from the Dalai Lama."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/inspirational-quotes-dalai-lama/"
+original_url: "https://selfsaid.pages.dev/inspirational-quotes-dalai-lama/"
 ---
 
-![A photo of the Dalai Lama deep in thought.](https://seffsaid.com/wp-content/uploads/dalai-lama-quotes.webp)
+![A photo of the Dalai Lama deep in thought.](https://selfsaid.pages.dev/wp-content/uploads/dalai-lama-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "6 simple yet powerful self-improvement tips that will change your life for the better."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/6-self-improvement-tips-that-will-change-your-life/"
+original_url: "https://selfsaid.pages.dev/6-self-improvement-tips-that-will-change-your-life/"
 ---
 
-![Man smiling sitting in a French Cafe](https://seffsaid.com/wp-content/uploads/Self-Improvement-Tips.webp)
+![Man smiling sitting in a French Cafe](https://selfsaid.pages.dev/wp-content/uploads/Self-Improvement-Tips.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Need calm right now? These 14 simple self-care hacks for instant relaxation will ease stress, restore balance, and bring peace into your day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/instant-relaxation/"
+original_url: "https://selfsaid.pages.dev/instant-relaxation/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/instant-relaxation.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/instant-relaxation.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

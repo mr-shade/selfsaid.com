@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to stay calm under pressure with simple habits and a resilient mindset. Find emotional balance and stay steady no matter what life brings."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-stay-calm-under-pressure/"
+original_url: "https://selfsaid.pages.dev/how-to-stay-calm-under-pressure/"
 ---
 
-![Man staying calm in a hectic environment](https://seffsaid.com/wp-content/uploads/how-to-stay-calm-under-pressure.webp)
+![Man staying calm in a hectic environment](https://selfsaid.pages.dev/wp-content/uploads/how-to-stay-calm-under-pressure.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

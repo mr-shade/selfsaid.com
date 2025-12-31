@@ -5,12 +5,12 @@ author: "Seff Said"
 description: "Decorate your home or work place with the SEFFSAID exclusive \"You Are Enough\" printable quote available for instant download."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/you-are-enough/"
+original_url: "https://selfsaid.pages.dev/you-are-enough/"
 ---
 
 All [Printable Quotes](/printable-quotes)
 
-![You Are Enough](https://seffsaid.com/wp-content/uploads/SEFFSAID-YouAreEnough-800x800-1.webp)
+![You Are Enough](https://selfsaid.pages.dev/wp-content/uploads/SEFFSAID-YouAreEnough-800x800-1.webp)
 
 ## “You Are Enough” Printable Quote
 

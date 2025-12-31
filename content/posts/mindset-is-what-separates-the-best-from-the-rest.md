@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Mindset Is What Separates The Best From The Rest"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/mindset-is-what-separates-the-best-from-the-rest/"
+original_url: "https://selfsaid.pages.dev/mindset-is-what-separates-the-best-from-the-rest/"
 ---
 
-![Mindset is what separates the best from the rest](https://seffsaid.com/wp-content/uploads/Mindset-is-what-separates-the-best-from-the-rest.jpg)
+![Mindset is what separates the best from the rest](https://selfsaid.pages.dev/wp-content/uploads/Mindset-is-what-separates-the-best-from-the-rest.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

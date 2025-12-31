@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover how to live a simple life with intention, clarity, and peace. Explore gentle steps toward creating space, slowing down, and focusing on what truly matters."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/simple-living-how-to-live-a-simple-life/"
+original_url: "https://selfsaid.pages.dev/simple-living-how-to-live-a-simple-life/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/How-To-Live-A-Simple-Life.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/How-To-Live-A-Simple-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

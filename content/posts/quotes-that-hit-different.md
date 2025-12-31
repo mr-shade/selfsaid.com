@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "'Quotes That Hit Different' resonate deeper or more personally than usual. Here are 50 powerful quotes that hit different."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-that-hit-different/"
+original_url: "https://selfsaid.pages.dev/quotes-that-hit-different/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/quotes-that-hit-different.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/quotes-that-hit-different.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

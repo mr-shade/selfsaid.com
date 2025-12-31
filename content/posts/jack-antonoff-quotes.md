@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Jack Antonoff quotes on music, art, life, love, creativity, authenticity, self-discovery, emotional connection, and staying true to oneself."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/jack-antonoff-quotes/"
+original_url: "https://selfsaid.pages.dev/jack-antonoff-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Jack-Antonoff-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Jack-Antonoff-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

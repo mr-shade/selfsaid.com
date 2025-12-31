@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Looking for planner ideas? Discover the 18 must-have pages you need in your planner. Powerful inserts that will get you super organized."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/planner-ideas/"
+original_url: "https://selfsaid.pages.dev/planner-ideas/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/planner-ideas.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/planner-ideas.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Brighten your surroundings and your spirit with our exclusive \"Live Your Best Life\" printable quote available for instant download."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/live-your-best-life/"
+original_url: "https://selfsaid.pages.dev/live-your-best-life/"
 ---
 
 All [Printable Quotes](/printable-quotes)

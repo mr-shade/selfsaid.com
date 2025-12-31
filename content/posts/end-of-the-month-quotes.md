@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "End of the month quotes that offer a perfect opportunity to reflect on your progress, celebrate small victories, and embrace a fresh start."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/end-of-the-month-quotes/"
+original_url: "https://selfsaid.pages.dev/end-of-the-month-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/End-Of-The-Month-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/End-Of-The-Month-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

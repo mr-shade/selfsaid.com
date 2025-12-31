@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These days it seems like everyone is either stressed out or anxious. Here are 48 simple ways to reduce stress and anxiety starting today."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/48-simple-ways-to-reduce-stress-and-anxiety/"
+original_url: "https://selfsaid.pages.dev/48-simple-ways-to-reduce-stress-and-anxiety/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Reduce-Stress-and-Anxiety.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Reduce-Stress-and-Anxiety.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

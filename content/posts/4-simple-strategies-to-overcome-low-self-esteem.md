@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Ready to feel better about yourself? This guide on overcoming low self-esteem offers practical advice and strategies to boost your confidence."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/4-simple-strategies-to-overcome-low-self-esteem/"
+original_url: "https://selfsaid.pages.dev/4-simple-strategies-to-overcome-low-self-esteem/"
 ---
 
-![Overcoming Low Self-Esteem](https://seffsaid.com/wp-content/uploads/overcoming-low-self-esteem.jpg)
+![Overcoming Low Self-Esteem](https://selfsaid.pages.dev/wp-content/uploads/overcoming-low-self-esteem.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

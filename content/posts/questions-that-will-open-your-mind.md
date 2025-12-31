@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Open your mind to new possibilities with 10 questions that inspire growth and clarity."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/questions-that-will-open-your-mind/"
+original_url: "https://selfsaid.pages.dev/questions-that-will-open-your-mind/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Questions-Open-Mind.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Questions-Open-Mind.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "This compilation of Paul McCartney's 50 best quotes reveals the soul behind the songs that defined a generation."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/paul-mccartney-quotes/"
+original_url: "https://selfsaid.pages.dev/paul-mccartney-quotes/"
 ---
 
-![Paul McCartney on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Paul-McCartney-Quotes.webp)
+![Paul McCartney on stage with The Beatles](https://selfsaid.pages.dev/wp-content/uploads/Paul-McCartney-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

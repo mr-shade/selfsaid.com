@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Feeling overwhelmed by clutter? Discover 14 simple ways to declutter your life, clear space in your home and mind, and create more calm each day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/14-ways-to-declutter-your-life/"
+original_url: "https://selfsaid.pages.dev/14-ways-to-declutter-your-life/"
 ---
 
-![Happy women enjoying life free of clutter](https://seffsaid.com/wp-content/uploads/Declutter-Your-Life.webp)
+![Happy women enjoying life free of clutter](https://selfsaid.pages.dev/wp-content/uploads/Declutter-Your-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

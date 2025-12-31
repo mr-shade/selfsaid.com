@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Feeling low? These 50 pick-me-up quotes by Seff Bray offer quiet strength, soft encouragement, and emotional care for heavy days."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/pick-me-up-quotes-when-feeling-down/"
+original_url: "https://selfsaid.pages.dev/pick-me-up-quotes-when-feeling-down/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/pick-me-up-quotes-webp.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/pick-me-up-quotes-webp.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

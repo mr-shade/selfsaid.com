@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Experience the brilliance of Nicki Minaj with this compilation of her 50 best quotes."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/nicki-minaj-quotes/"
+original_url: "https://selfsaid.pages.dev/nicki-minaj-quotes/"
 ---
 
-![Nicki Minaj performing live on stage](https://seffsaid.com/wp-content/uploads/Nicki-Minaj-Quotes.webp)
+![Nicki Minaj performing live on stage](https://selfsaid.pages.dev/wp-content/uploads/Nicki-Minaj-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

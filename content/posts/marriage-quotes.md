@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Experience the beauty and depth of marriage through 60 thoughtful quotes that celebrate the power of true partnership."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/marriage-quotes/"
+original_url: "https://selfsaid.pages.dev/marriage-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/marriage-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/marriage-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

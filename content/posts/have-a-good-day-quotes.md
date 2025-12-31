@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Allow these 218 inspirational 'Have A Good Day' Quotes to serve as a reminder of life's beauty & potential, filling your day with positivity."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/have-a-good-day-quotes/"
+original_url: "https://selfsaid.pages.dev/have-a-good-day-quotes/"
 ---
 
-![218 Inspirational 'Have A Good Day' Quotes](https://seffsaid.com/wp-content/uploads/Inspirational-Have-A-Good-Day-Quotes.jpg)
+![218 Inspirational 'Have A Good Day' Quotes](https://selfsaid.pages.dev/wp-content/uploads/Inspirational-Have-A-Good-Day-Quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

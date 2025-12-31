@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the secret to tapping into your inner wisdom with simple and effective techniques that anyone can use."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/discover-your-inner-wisdom/"
+original_url: "https://selfsaid.pages.dev/discover-your-inner-wisdom/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/discover-your-inner-wisdom.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/discover-your-inner-wisdom.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

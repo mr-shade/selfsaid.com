@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 50 of Beyoncé's best quotes that capture her indomitable spirit and wisdom."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/beyonce-quotes/"
+original_url: "https://selfsaid.pages.dev/beyonce-quotes/"
 ---
 
-![Beyonce in concert](https://seffsaid.com/wp-content/uploads/Beyonce-Quotes.webp)
+![Beyonce in concert](https://selfsaid.pages.dev/wp-content/uploads/Beyonce-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

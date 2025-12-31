@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of 60 mental health quotes that offer real support when you’re feeling overwhelmed, anxious, or low."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/mental-health-quotes/"
+original_url: "https://selfsaid.pages.dev/mental-health-quotes/"
 ---
 
-![Mental Health Quotes That Actually Help](https://seffsaid.com/wp-content/uploads/mental-health-quotes.webp)
+![Mental Health Quotes That Actually Help](https://selfsaid.pages.dev/wp-content/uploads/mental-health-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

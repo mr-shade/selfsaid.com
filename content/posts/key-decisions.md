@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "The choices you make today matter. Discover eight key decisions that will lead to more peace, purpose, and gratitude in the years ahead."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/key-decisions/"
+original_url: "https://selfsaid.pages.dev/key-decisions/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/key-decisions.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/key-decisions.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

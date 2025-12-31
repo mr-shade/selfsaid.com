@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the power of resilience in these 135 quotes about perseverance that will encourage you to keep pushing forward and never give up."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-perseverance/"
+original_url: "https://selfsaid.pages.dev/quotes-about-perseverance/"
 ---
 
-![Quotes About Perseverance](https://seffsaid.com/wp-content/uploads/quotes-about-perseverance.jpg)
+![Quotes About Perseverance](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-perseverance.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

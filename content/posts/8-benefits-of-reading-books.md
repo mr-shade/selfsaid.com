@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Did you know that research shows reading books offers numerous benefits? Here are 8 compelling reasons to start reading a novel today!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/8-benefits-of-reading-books/"
+original_url: "https://selfsaid.pages.dev/8-benefits-of-reading-books/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/benefits-of-reading-books.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/benefits-of-reading-books.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

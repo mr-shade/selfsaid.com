@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Transform your walls with this beautifully designed \"Choose Joy\" printable quote, encouraging happiness and a positive outlook every day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/choose-joy/"
+original_url: "https://selfsaid.pages.dev/choose-joy/"
 ---
 
 All [Printable Quotes](/printable-quotes)

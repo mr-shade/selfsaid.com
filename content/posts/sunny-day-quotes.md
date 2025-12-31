@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "50 sunny day quotes to bring a little extra warmth to your day and inspire you to enjoy each moment in the sun."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/sunny-day-quotes/"
+original_url: "https://selfsaid.pages.dev/sunny-day-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/sunny-day-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/sunny-day-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

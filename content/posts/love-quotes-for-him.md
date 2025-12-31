@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover the perfect words to express your deepest feelings with these hand curated 188 Love Quotes For Him."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/love-quotes-for-him/"
+original_url: "https://selfsaid.pages.dev/love-quotes-for-him/"
 ---
 
-![Love Quotes For Him](https://seffsaid.com/wp-content/uploads/Love-Quotes-For-Him-600x338-1.jpg)
+![Love Quotes For Him](https://selfsaid.pages.dev/wp-content/uploads/Love-Quotes-For-Him-600x338-1.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

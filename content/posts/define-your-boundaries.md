@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Take control of your life by asking yourself these ten powerful questions to better define your personal boundaries."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/define-your-boundaries/"
+original_url: "https://selfsaid.pages.dev/define-your-boundaries/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Define-Your-Boundaries.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Define-Your-Boundaries.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

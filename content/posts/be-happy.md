@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Transform any room into a space filled with positivity by printing and displaying our \"Be Happy\" quote, a small step toward a brighter day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/be-happy/"
+original_url: "https://selfsaid.pages.dev/be-happy/"
 ---
 
 All [Printable Quotes](/printable-quotes)

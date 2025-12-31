@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Five things you should stop expecting from other people if you wish to enjoy happy and successful lifelong relationships."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/5-things-you-should-stop-expecting-from-other-people/"
+original_url: "https://selfsaid.pages.dev/5-things-you-should-stop-expecting-from-other-people/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Stop-Expecting.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Stop-Expecting.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

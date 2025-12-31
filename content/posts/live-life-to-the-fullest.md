@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 22 powerful ways to make every moment count in your life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/live-life-to-the-fullest/"
+original_url: "https://selfsaid.pages.dev/live-life-to-the-fullest/"
 ---
 
-![A group of friends living life to the fullest](https://seffsaid.com/wp-content/uploads/live-life-to-the-fullest.webp)
+![A group of friends living life to the fullest](https://selfsaid.pages.dev/wp-content/uploads/live-life-to-the-fullest.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

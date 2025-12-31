@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "The 26 best short ‘Life Quotes’ that will fill you with inspiration and brighten your day."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/the-26-best-short-life-quotes/"
+original_url: "https://selfsaid.pages.dev/the-26-best-short-life-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/best-short-life-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/best-short-life-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover a collection of 60 hope quotes that will uplift your spirit and inspire you to look toward a brighter tomorrow with renewed optimism."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/hope-quotes/"
+original_url: "https://selfsaid.pages.dev/hope-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/hope-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/hope-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Emotional self-care is more than a trend, it’s a daily practice of noticing, honoring, and supporting your feelings. Learn what it means, why it matters, and how it can gently transform your inner life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/what-is-emotional-self-care/"
+original_url: "https://selfsaid.pages.dev/what-is-emotional-self-care/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/emotional-self-care.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/emotional-self-care.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

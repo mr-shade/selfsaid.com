@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Here's how I cultivated my 'attitude for gratitude', the habit of feeling and expressing thanks for everything in your life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/how-to-cultivate-an-attitude-of-gratitude/"
+original_url: "https://selfsaid.pages.dev/how-to-cultivate-an-attitude-of-gratitude/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/attitude-of-gratitude.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/attitude-of-gratitude.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

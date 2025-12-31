@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "This vibrant and beautifully crafted design serves as a daily reminder to stay focused on your goals, passion, and purpose."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/dream-big/"
+original_url: "https://selfsaid.pages.dev/dream-big/"
 ---
 
 All [Printable Quotes](/printable-quotes)

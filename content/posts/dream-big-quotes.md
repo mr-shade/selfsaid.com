@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Heartfelt quotes about dreaming big and believing in yourself. Gentle, grounded words to encourage quiet confidence and honest hope."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/dream-big-quotes/"
+original_url: "https://selfsaid.pages.dev/dream-big-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/dream-big-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/dream-big-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

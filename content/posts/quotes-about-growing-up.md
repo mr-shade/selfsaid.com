@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Let these 130 inspirational quotes about growing up guide you through the ups and downs of getting older."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-growing-up/"
+original_url: "https://selfsaid.pages.dev/quotes-about-growing-up/"
 ---
 
-![130 Inspirational Quotes About Growing Up](https://seffsaid.com/wp-content/uploads/quotes-about-growing-up.jpg)
+![130 Inspirational Quotes About Growing Up](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-growing-up.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

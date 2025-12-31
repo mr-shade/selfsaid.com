@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These ten questions are the key to aligning your life with your deepest priorities and personal values."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/find-out-what-really-matters-to-you/"
+original_url: "https://selfsaid.pages.dev/find-out-what-really-matters-to-you/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/what-really-matters.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/what-really-matters.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

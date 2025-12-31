@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Boost your mood fast with these 10 simple self-care ideas. Practical, uplifting tips you can use anytime to ease stress and feel better quickly."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/easy-ways-to-quickly-improve-your-mood/"
+original_url: "https://selfsaid.pages.dev/easy-ways-to-quickly-improve-your-mood/"
 ---
 
-![Man in a great mood standing on a beach with outstretched arms.](https://seffsaid.com/wp-content/uploads/ways-to-improve-your-mood.webp)
+![Man in a great mood standing on a beach with outstretched arms.](https://selfsaid.pages.dev/wp-content/uploads/ways-to-improve-your-mood.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

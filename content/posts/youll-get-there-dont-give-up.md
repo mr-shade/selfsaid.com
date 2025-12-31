@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Motivate yourself with this You'll Get There Don't Give Up printable quote wall art, pushing you to reach your goals without giving up."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/youll-get-there-dont-give-up/"
+original_url: "https://selfsaid.pages.dev/youll-get-there-dont-give-up/"
 ---
 
 All [Printable Quotes](/printable-quotes)

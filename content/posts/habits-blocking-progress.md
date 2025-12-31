@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Could these ten questions be the key to breaking free from the habits limiting your progress?"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/habits-blocking-progress/"
+original_url: "https://selfsaid.pages.dev/habits-blocking-progress/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/habits-blocking-progress.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/habits-blocking-progress.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

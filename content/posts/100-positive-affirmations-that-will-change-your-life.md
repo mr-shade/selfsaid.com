@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Need more positivity in your life? Discover 100 positive affirmations that have the power to change your life forever."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/100-positive-affirmations-that-will-change-your-life/"
+original_url: "https://selfsaid.pages.dev/100-positive-affirmations-that-will-change-your-life/"
 ---
 
-![Woman reciting positive affirmations.](https://seffsaid.com/wp-content/uploads/positive-affirmations.webp)
+![Woman reciting positive affirmations.](https://selfsaid.pages.dev/wp-content/uploads/positive-affirmations.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

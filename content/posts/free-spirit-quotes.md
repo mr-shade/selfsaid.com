@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Discover 215 Free Spirit Quotes to awaken your inner wild heart, ignite your passion, and inspire courageous living."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/free-spirit-quotes/"
+original_url: "https://selfsaid.pages.dev/free-spirit-quotes/"
 ---
 
-![Free Spirit Quotes](https://seffsaid.com/wp-content/uploads/free-spirit-quotes.jpg)
+![Free Spirit Quotes](https://selfsaid.pages.dev/wp-content/uploads/free-spirit-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

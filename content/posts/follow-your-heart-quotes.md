@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Inspire your everyday decisions with our handpicked selection of follow your heart quotes – explore and be empowered."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/follow-your-heart-quotes/"
+original_url: "https://selfsaid.pages.dev/follow-your-heart-quotes/"
 ---
 
-![Follow Your Heart Quotes](https://seffsaid.com/wp-content/uploads/follow-your-heart-quotes.jpg)
+![Follow Your Heart Quotes](https://selfsaid.pages.dev/wp-content/uploads/follow-your-heart-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

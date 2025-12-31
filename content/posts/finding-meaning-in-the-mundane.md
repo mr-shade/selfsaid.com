@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Learn how to appreciate your life and see that it is already filled with enormous meaning."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/finding-meaning-in-the-mundane/"
+original_url: "https://selfsaid.pages.dev/finding-meaning-in-the-mundane/"
 ---
 
-![Man at work bored with his mundane lifestyle](https://seffsaid.com/wp-content/uploads/Finding-Meaning-In-The-Mundane.webp)
+![Man at work bored with his mundane lifestyle](https://selfsaid.pages.dev/wp-content/uploads/Finding-Meaning-In-The-Mundane.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

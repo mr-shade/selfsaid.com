@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "50 powerful quotes from Keanu Reeves that capture his philosophy, kindness, and unique outlook on life."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/keanu-reeves-quotes/"
+original_url: "https://selfsaid.pages.dev/keanu-reeves-quotes/"
 ---
 
-![Keanu Reeves dressed as John Wick](https://seffsaid.com/wp-content/uploads/keanu-reeves-quotes.webp)
+![Keanu Reeves dressed as John Wick](https://selfsaid.pages.dev/wp-content/uploads/keanu-reeves-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

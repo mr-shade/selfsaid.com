@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Before stress takes a serious toll on your mind and body, these ten questions will tell you if your stress levels are getting out of control."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/stress-levels-out-of-control/"
+original_url: "https://selfsaid.pages.dev/stress-levels-out-of-control/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/stress-levels-control.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/stress-levels-control.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

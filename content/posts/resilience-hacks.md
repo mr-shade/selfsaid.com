@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Simple, calming resilience hacks to help you feel supported when life feels heavy. Includes self-care tools and practices that actually work."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/resilience-hacks/"
+original_url: "https://selfsaid.pages.dev/resilience-hacks/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Resilience-Hacks-1.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Resilience-Hacks-1.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

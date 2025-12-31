@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "A collection of 60 quotes about putting yourself first without guilt. Reminders that prioritising your needs is not selfish, it’s necessary."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/putting-yourself-first/"
+original_url: "https://selfsaid.pages.dev/putting-yourself-first/"
 ---
 
-![Putting Yourself First](https://seffsaid.com/wp-content/uploads/putting-yourself-first.webp)
+![Putting Yourself First](https://selfsaid.pages.dev/wp-content/uploads/putting-yourself-first.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

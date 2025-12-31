@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Start your mornings with inspiration! Explore our 164 Good Morning Quotes to kickstart a day filled with positivity."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/inspirational-good-morning-quotes/"
+original_url: "https://selfsaid.pages.dev/inspirational-good-morning-quotes/"
 ---
 
-![A beautiful sunrise over a calm sea](https://seffsaid.com/wp-content/uploads/good-morning-quotes.jpg)
+![A beautiful sunrise over a calm sea](https://selfsaid.pages.dev/wp-content/uploads/good-morning-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

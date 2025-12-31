@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These quotes reflect a range of Kamala Harris's thoughts and perspectives on leadership, justice, equality, and hope."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/kamala-harris-quotes/"
+original_url: "https://selfsaid.pages.dev/kamala-harris-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Kamala-Harris-Quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Kamala-Harris-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

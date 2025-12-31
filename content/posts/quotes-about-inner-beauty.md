@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "These quotes about inner beauty offer simple reminders of the deeper beauty that shines through a person’s character and actions."
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/quotes-about-inner-beauty/"
+original_url: "https://selfsaid.pages.dev/quotes-about-inner-beauty/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/quotes-about-inner-beauty.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-inner-beauty.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -5,10 +5,10 @@ author: "Seff Bray"
 description: "Explore 50 Inky Johnson quotes: powerful lessons on resilience, hard work, and personal growth from a motivational icon. Get inspired!"
 tags: []
 featured_image: ""
-original_url: "https://seffsaid.com/inky-johnson-quotes/"
+original_url: "https://selfsaid.pages.dev/inky-johnson-quotes/"
 ---
 
-![](https://seffsaid.com/wp-content/uploads/Inky-Johnson-quotes.webp)
+![](https://selfsaid.pages.dev/wp-content/uploads/Inky-Johnson-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 
