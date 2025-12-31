@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/things-to-let-go-of-before-your-next-birthday/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Things-To-Let-Go-Of.webp)
+![](https://seffsaid.com/wp-content/uploads/Things-To-Let-Go-Of.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

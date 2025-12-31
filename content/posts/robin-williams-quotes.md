@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/robin-williams-quotes/"
 ---
 
-![Robin Williams on stage](https://selfsaid.pages.dev/wp-content/uploads/robin-williams-quotes.webp)
+![Robin Williams on stage](https://seffsaid.com/wp-content/uploads/robin-williams-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

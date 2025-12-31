@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/overthinking-break-the-loop/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/overthinking-break-the-loop.webp)
+![](https://seffsaid.com/wp-content/uploads/overthinking-break-the-loop.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/the-20-greatest-time-passing-quotes/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Time-Passing-Quotes.webp)
+![](https://seffsaid.com/wp-content/uploads/Time-Passing-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

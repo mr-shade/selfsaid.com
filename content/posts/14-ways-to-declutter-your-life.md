@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/14-ways-to-declutter-your-life/"
 ---
 
-![Happy women enjoying life free of clutter](https://selfsaid.pages.dev/wp-content/uploads/Declutter-Your-Life.webp)
+![Happy women enjoying life free of clutter](https://seffsaid.com/wp-content/uploads/Declutter-Your-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

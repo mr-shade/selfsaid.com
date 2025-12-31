@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/hope-quotes/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/hope-quotes.webp)
+![](https://seffsaid.com/wp-content/uploads/hope-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

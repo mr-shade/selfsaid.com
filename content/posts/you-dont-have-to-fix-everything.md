@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/you-dont-have-to-fix-everything/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/you-dont-have-to-fix-everything.webp)
+![](https://seffsaid.com/wp-content/uploads/you-dont-have-to-fix-everything.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

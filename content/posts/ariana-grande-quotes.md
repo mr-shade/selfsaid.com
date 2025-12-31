@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/ariana-grande-quotes/"
 ---
 
-![Ariana Grande live on stage](https://selfsaid.pages.dev/wp-content/uploads/Ariana-Grande-Quotes.webp)
+![Ariana Grande live on stage](https://seffsaid.com/wp-content/uploads/Ariana-Grande-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

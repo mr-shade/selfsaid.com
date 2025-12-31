@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/phone-free-hour/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/phone-free-hour.webp)
+![](https://seffsaid.com/wp-content/uploads/phone-free-hour.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

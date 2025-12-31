@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/self-motivation-motivate-yourself-today/"
 ---
 
-![Motivated woman about to start a workout at the gym](https://selfsaid.pages.dev/wp-content/uploads/Motivate-Yourself-Today.webp)
+![Motivated woman about to start a workout at the gym](https://seffsaid.com/wp-content/uploads/Motivate-Yourself-Today.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/dua-lipa-quotes/"
 ---
 
-![Dua Lipa In Concert](https://selfsaid.pages.dev/wp-content/uploads/Dua-Lipa-quotes.webp)
+![Dua Lipa In Concert](https://seffsaid.com/wp-content/uploads/Dua-Lipa-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

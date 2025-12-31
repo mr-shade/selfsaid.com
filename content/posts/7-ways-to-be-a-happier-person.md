@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/7-ways-to-be-a-happier-person/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/how-to-be-happy.webp)
+![](https://seffsaid.com/wp-content/uploads/how-to-be-happy.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

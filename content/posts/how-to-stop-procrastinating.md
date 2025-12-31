@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-stop-procrastinating/"
 ---
 
-![An office worker busy working on a computer](https://selfsaid.pages.dev/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp)
+![An office worker busy working on a computer](https://seffsaid.com/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

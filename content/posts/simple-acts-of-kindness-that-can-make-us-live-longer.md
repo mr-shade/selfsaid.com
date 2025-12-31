@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/simple-acts-of-kindness-that-can-make-us-live-longer/"
 ---
 
-![Man showing kindness helping a stranger](https://selfsaid.pages.dev/wp-content/uploads/Acts-Of-Kindness-Live-Longer.webp)
+![Man showing kindness helping a stranger](https://seffsaid.com/wp-content/uploads/Acts-Of-Kindness-Live-Longer.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/change-your-life-in-7-days/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/change-your-life-in-7-days.webp)
+![](https://seffsaid.com/wp-content/uploads/change-your-life-in-7-days.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

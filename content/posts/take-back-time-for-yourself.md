@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/take-back-time-for-yourself/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/hacks-to-take-back-time.webp)
+![](https://seffsaid.com/wp-content/uploads/hacks-to-take-back-time.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

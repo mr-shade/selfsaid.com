@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/the-biggest-asset-in-the-world-is-your-mindset/"
 ---
 
-![The biggest asset in the world is your mindset.](https://selfsaid.pages.dev/wp-content/uploads/The-biggest-asset-in-the-world-is-your-mindset.jpg)
+![The biggest asset in the world is your mindset.](https://seffsaid.com/wp-content/uploads/The-biggest-asset-in-the-world-is-your-mindset.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

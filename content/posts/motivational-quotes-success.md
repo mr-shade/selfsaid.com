@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/motivational-quotes-success/"
 ---
 
-![Motivational Quotes For Success](https://selfsaid.pages.dev/wp-content/uploads/motivational-quotes-for-success.jpg)
+![Motivational Quotes For Success](https://seffsaid.com/wp-content/uploads/motivational-quotes-for-success.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/instant-relaxation/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/instant-relaxation.webp)
+![](https://seffsaid.com/wp-content/uploads/instant-relaxation.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

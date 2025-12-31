@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/productivity-advice/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/productivity-advice.webp)
+![](https://seffsaid.com/wp-content/uploads/productivity-advice.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

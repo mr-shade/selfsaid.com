@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/habits-that-waste-our-time/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/habits-that-waste-our-time.webp)
+![](https://seffsaid.com/wp-content/uploads/habits-that-waste-our-time.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

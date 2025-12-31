@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/privileges-we-forget-to-be-thankful-for/"
 ---
 
-![Woman walking through a meadow on a beautiful summer day](https://selfsaid.pages.dev/wp-content/uploads/Privileges-Thankful.webp)
+![Woman walking through a meadow on a beautiful summer day](https://seffsaid.com/wp-content/uploads/Privileges-Thankful.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/know-your-worth-quotes/"
 ---
 
-![Quotes About Knowing Your Worth](https://selfsaid.pages.dev/wp-content/uploads/know-your-worth-quotes.webp)
+![Quotes About Knowing Your Worth](https://seffsaid.com/wp-content/uploads/know-your-worth-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

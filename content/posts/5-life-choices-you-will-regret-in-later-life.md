@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/5-life-choices-you-will-regret-in-later-life/"
 ---
 
-![An old man looking back on his life with regret.](https://selfsaid.pages.dev/wp-content/uploads/Life-Choices-You-Will-Regret.webp)
+![An old man looking back on his life with regret.](https://seffsaid.com/wp-content/uploads/Life-Choices-You-Will-Regret.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

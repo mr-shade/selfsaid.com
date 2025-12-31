@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/grounding-power-of-drinking-water/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/power-of-drinking-water.webp)
+![](https://seffsaid.com/wp-content/uploads/power-of-drinking-water.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

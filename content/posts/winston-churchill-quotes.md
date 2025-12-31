@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/winston-churchill-quotes/"
 ---
 
-![Winston Churchill](https://selfsaid.pages.dev/wp-content/uploads/winston-churchill.webp)
+![Winston Churchill](https://seffsaid.com/wp-content/uploads/winston-churchill.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

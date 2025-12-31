@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/affirmations-to-transform-your-mindset/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/affirmations-mindset.webp)
+![](https://seffsaid.com/wp-content/uploads/affirmations-mindset.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

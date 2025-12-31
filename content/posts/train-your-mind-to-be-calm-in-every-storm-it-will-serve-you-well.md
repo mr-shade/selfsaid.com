@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/train-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well/"
 ---
 
-![Train your mind to be calm in every storm. It will serve you well.](https://selfsaid.pages.dev/wp-content/uploads/Train-your-mind-to-be-calm-in-every-storm.jpg)
+![Train your mind to be calm in every storm. It will serve you well.](https://seffsaid.com/wp-content/uploads/Train-your-mind-to-be-calm-in-every-storm.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/easy-ways-to-increase-productivity-today/"
 ---
 
-![Productive people working in a busy library](https://selfsaid.pages.dev/wp-content/uploads/increase-productivity-today.webp)
+![Productive people working in a busy library](https://seffsaid.com/wp-content/uploads/increase-productivity-today.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

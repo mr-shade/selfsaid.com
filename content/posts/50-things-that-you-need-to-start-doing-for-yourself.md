@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/50-things-that-you-need-to-start-doing-for-yourself/"
 ---
 
-![Woman prioritizing her self-care by reading a book](https://selfsaid.pages.dev/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp)
+![Woman prioritizing her self-care by reading a book](https://seffsaid.com/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/life-decisions-guide/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/life-decisions-guide.webp)
+![](https://seffsaid.com/wp-content/uploads/life-decisions-guide.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

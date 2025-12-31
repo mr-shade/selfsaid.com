@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/6-common-habits-of-unhappy-people/"
 ---
 
-![Unhappy woman looking at the camera](https://selfsaid.pages.dev/wp-content/uploads/Habits-Of-Unhappy-People.webp)
+![Unhappy woman looking at the camera](https://seffsaid.com/wp-content/uploads/Habits-Of-Unhappy-People.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

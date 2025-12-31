@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/5-common-life-mistakes-to-avoid/"
 ---
 
-![Man upset after making a common life mistake](https://selfsaid.pages.dev/wp-content/uploads/Common-Life-Mistakes-To-Avoid.webp)
+![Man upset after making a common life mistake](https://seffsaid.com/wp-content/uploads/Common-Life-Mistakes-To-Avoid.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

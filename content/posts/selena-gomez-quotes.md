@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/selena-gomez-quotes/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/selena-gomez-quotes.webp)
+![](https://seffsaid.com/wp-content/uploads/selena-gomez-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

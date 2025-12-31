@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/7-things-youll-never-regret-doing/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/things-you-will-never-regret-doing.webp)
+![](https://seffsaid.com/wp-content/uploads/things-you-will-never-regret-doing.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

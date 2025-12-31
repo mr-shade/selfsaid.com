@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/addison-rae-quotes/"
 ---
 
-![Addison Rae in concert](https://selfsaid.pages.dev/wp-content/uploads/Addison-Rae-Quotes.webp)
+![Addison Rae in concert](https://seffsaid.com/wp-content/uploads/Addison-Rae-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

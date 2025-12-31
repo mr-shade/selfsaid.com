@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-stop-reliving-past-mistakes/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/stop-reliving-past-mistakes.webp)
+![](https://seffsaid.com/wp-content/uploads/stop-reliving-past-mistakes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

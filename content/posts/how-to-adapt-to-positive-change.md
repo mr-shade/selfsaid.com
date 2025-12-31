@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-adapt-to-positive-change/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/adapt-to-positive-change.webp)
+![](https://seffsaid.com/wp-content/uploads/adapt-to-positive-change.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

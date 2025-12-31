@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-i-silenced-my-inner-critic/"
 ---
 
-![A happy woman smiling while walking on a beach.](https://selfsaid.pages.dev/wp-content/uploads/inner-critic.webp)
+![A happy woman smiling while walking on a beach.](https://seffsaid.com/wp-content/uploads/inner-critic.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

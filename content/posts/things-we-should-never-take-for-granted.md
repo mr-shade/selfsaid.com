@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/things-we-should-never-take-for-granted/"
 ---
 
-![Happy couple walking on a beautiful beach holding hands.](https://selfsaid.pages.dev/wp-content/uploads/Things-We-Should-Never-Take-for-Granted.webp)
+![Happy couple walking on a beautiful beach holding hands.](https://seffsaid.com/wp-content/uploads/Things-We-Should-Never-Take-for-Granted.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

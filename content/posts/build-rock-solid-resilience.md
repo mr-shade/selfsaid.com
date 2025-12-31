@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/build-rock-solid-resilience/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/build-rock-solid-resilience.webp)
+![](https://seffsaid.com/wp-content/uploads/build-rock-solid-resilience.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

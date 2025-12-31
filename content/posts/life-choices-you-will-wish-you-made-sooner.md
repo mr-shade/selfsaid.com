@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/life-choices-you-will-wish-you-made-sooner/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Life-Choices-Youll-Wish-You-Made-Sooner.webp)
+![](https://seffsaid.com/wp-content/uploads/Life-Choices-Youll-Wish-You-Made-Sooner.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

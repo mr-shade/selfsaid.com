@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-eliminate-distractions-at-work/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Eliminate-Distractions-At-Work.webp)
+![](https://seffsaid.com/wp-content/uploads/Eliminate-Distractions-At-Work.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

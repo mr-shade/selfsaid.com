@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-be-patient-with-your-dreams/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Be-Patient-with-Your-Dreams.webp)
+![](https://seffsaid.com/wp-content/uploads/Be-Patient-with-Your-Dreams.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

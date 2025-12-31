@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/mike-tyson-quotes/"
 ---
 
-![Mike Tyson in a boxing ring fighting his opponent](https://selfsaid.pages.dev/wp-content/uploads/Mike-Tyson-Quotes.webp)
+![Mike Tyson in a boxing ring fighting his opponent](https://seffsaid.com/wp-content/uploads/Mike-Tyson-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

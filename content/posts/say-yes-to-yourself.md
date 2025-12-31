@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/say-yes-to-yourself/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/say-yes-to-yourself.webp)
+![](https://seffsaid.com/wp-content/uploads/say-yes-to-yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

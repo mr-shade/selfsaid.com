@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/7-amazing-benefits-of-adopting-a-dog/"
 ---
 
-![Woman walking her dog](https://selfsaid.pages.dev/wp-content/uploads/Benefits-of-Adopting-A-Dog.webp)
+![Woman walking her dog](https://seffsaid.com/wp-content/uploads/Benefits-of-Adopting-A-Dog.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

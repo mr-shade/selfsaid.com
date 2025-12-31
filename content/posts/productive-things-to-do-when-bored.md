@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/productive-things-to-do-when-bored/"
 ---
 
-![Bored girl trying to think of something productive to do](https://selfsaid.pages.dev/wp-content/uploads/Productive-Things-To-Do-When-Bored.webp)
+![Bored girl trying to think of something productive to do](https://seffsaid.com/wp-content/uploads/Productive-Things-To-Do-When-Bored.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

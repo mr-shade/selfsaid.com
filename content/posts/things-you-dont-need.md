@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/things-you-dont-need/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/things-you-dont-need.webp)
+![](https://seffsaid.com/wp-content/uploads/things-you-dont-need.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

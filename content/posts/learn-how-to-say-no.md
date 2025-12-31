@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/learn-how-to-say-no/"
 ---
 
-![Learn How To Say No Book by Seff Bray](https://selfsaid.pages.dev/wp-content/uploads/Learn-How-To-Say-No-webp.webp)
+![Learn How To Say No Book by Seff Bray](https://seffsaid.com/wp-content/uploads/Learn-How-To-Say-No-webp.webp)
 
 ## Learn How To Say No
 

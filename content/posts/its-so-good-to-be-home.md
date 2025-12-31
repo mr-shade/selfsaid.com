@@ -10,7 +10,7 @@ original_url: "https://selfsaid.pages.dev/its-so-good-to-be-home/"
 
 All [Printable Quotes](/printable-quotes)
 
-![It's So Good To Be Home Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/its-so-good-to-be-home-800x800-1.webp)
+![It's So Good To Be Home Printable Quote](https://seffsaid.com/wp-content/uploads/its-so-good-to-be-home-800x800-1.webp)
 
 ## “It’s So Good To Be Home” Printable Quote
 

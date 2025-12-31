@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-break-a-big-task-into-small-steps/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/task-decomposition.webp)
+![](https://seffsaid.com/wp-content/uploads/task-decomposition.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

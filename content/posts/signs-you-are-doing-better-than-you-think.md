@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/signs-you-are-doing-better-than-you-think/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/closer-to-okay.webp)
+![](https://seffsaid.com/wp-content/uploads/closer-to-okay.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-keep-going-when-youre-tired-of-starting-over/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/how-to-keep-going.webp)
+![](https://seffsaid.com/wp-content/uploads/how-to-keep-going.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

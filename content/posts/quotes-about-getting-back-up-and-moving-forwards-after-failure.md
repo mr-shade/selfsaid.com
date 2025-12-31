@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/quotes-about-getting-back-up-and-moving-forwards-after-failure/"
 ---
 
-![Mountain climber not allowing himself to be defeated by failure.](https://selfsaid.pages.dev/wp-content/uploads/Getting-Back-Up-And-Moving-Forwards-After-Failure.webp)
+![Mountain climber not allowing himself to be defeated by failure.](https://seffsaid.com/wp-content/uploads/Getting-Back-Up-And-Moving-Forwards-After-Failure.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

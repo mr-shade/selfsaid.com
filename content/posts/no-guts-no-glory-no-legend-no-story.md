@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/no-guts-no-glory-no-legend-no-story/"
 ---
 
-![No guts. No glory. No legend. No story.](https://selfsaid.pages.dev/wp-content/uploads/No-guts-No-glory-No-legend-No-story.jpg)
+![No guts. No glory. No legend. No story.](https://seffsaid.com/wp-content/uploads/No-guts-No-glory-No-legend-No-story.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

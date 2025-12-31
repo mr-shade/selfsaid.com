@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/george-harrison-quotes/"
 ---
 
-![George Harrison on stage with The Beatles](https://selfsaid.pages.dev/wp-content/uploads/George-Harrison-Quotes.webp)
+![George Harrison on stage with The Beatles](https://seffsaid.com/wp-content/uploads/George-Harrison-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

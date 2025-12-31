@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/the-26-best-short-life-quotes/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/best-short-life-quotes.webp)
+![](https://seffsaid.com/wp-content/uploads/best-short-life-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/5-simple-daily-habits-that-can-actually-change-your-life/"
 ---
 
-![Woman running along a beautiful beach with her arms outstretched](https://selfsaid.pages.dev/wp-content/uploads/Daily-Habits-Change-Your-Life.webp)
+![Woman running along a beautiful beach with her arms outstretched](https://seffsaid.com/wp-content/uploads/Daily-Habits-Change-Your-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

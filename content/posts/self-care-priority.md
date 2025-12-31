@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/self-care-priority/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/reasons-self-care-priority.webp)
+![](https://seffsaid.com/wp-content/uploads/reasons-self-care-priority.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

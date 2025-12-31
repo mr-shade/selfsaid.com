@@ -12,7 +12,7 @@ original_url: "https://selfsaid.pages.dev/my-books/"
 
 I’m currently writing several books on goal setting, productivity, time management, and habit development. On this page, you’ll find the books that are currently available to purchase.
 
-![How To Say No - Seff Bray](https://selfsaid.pages.dev/wp-content/uploads/Seff-Bray-How-To-Say-No-283x400-1.webp)
+![How To Say No - Seff Bray](https://seffsaid.com/wp-content/uploads/Seff-Bray-How-To-Say-No-283x400-1.webp)
 
 ## How To Say No
 
@@ -29,7 +29,7 @@ or the PDF version here:
 
 [Buy Now](https://payhip.com/b/NxKQr)
 
-![How I Got A Million Followers On Twitter](https://selfsaid.pages.dev/wp-content/uploads/How-I-Got-A-Million-Followers-On-Twitter-2.jpg)
+![How I Got A Million Followers On Twitter](https://seffsaid.com/wp-content/uploads/How-I-Got-A-Million-Followers-On-Twitter-2.jpg)
 
 ## How I Got A Million Followers On Twitter
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/uplifting-quotes-about-life/"
 ---
 
-![Hiker admiring the uplifting view from a mountain top](https://selfsaid.pages.dev/wp-content/uploads/uplifting-quotes-about-life.webp)
+![Hiker admiring the uplifting view from a mountain top](https://seffsaid.com/wp-content/uploads/uplifting-quotes-about-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

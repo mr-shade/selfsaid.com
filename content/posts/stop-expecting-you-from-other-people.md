@@ -16,7 +16,7 @@ Luckily though, I was quick to realize that looking for myself in other people m
 
 But before we move forward, I want to mention a quote that helped me kickstart this journey,
 
-![Stop expecting you from other people](https://selfsaid.pages.dev/wp-content/uploads/Stop-expecting-you-from-other-people.jpg)
+![Stop expecting you from other people](https://seffsaid.com/wp-content/uploads/Stop-expecting-you-from-other-people.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 
@@ -30,7 +30,7 @@ This was a quote that I stumbled upon accidentally while scrolling through Pinte
 
 “Stop expecting you from other people” is a powerful phrase that reminds us to stop looking for ourselves in others and instead appreciate the unique qualities that make each person special. It’s a reminder that everyone is different, and that’s what makes them special.
 
-![They are not you and you are not them](https://selfsaid.pages.dev/wp-content/uploads/They-are-not-you-and-you-are-not-them.jpg)
+![They are not you and you are not them](https://seffsaid.com/wp-content/uploads/They-are-not-you-and-you-are-not-them.jpg)
 
 > “They” are not “You,” and “You” are not “Them.” And it’s wrong to expect anyone to be someone they’re not.
 

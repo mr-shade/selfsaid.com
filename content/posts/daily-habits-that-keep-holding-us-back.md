@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/daily-habits-that-keep-holding-us-back/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/daily-habits-holding-you-back.webp)
+![](https://seffsaid.com/wp-content/uploads/daily-habits-holding-you-back.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

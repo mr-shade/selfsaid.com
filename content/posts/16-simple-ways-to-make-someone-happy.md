@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/16-simple-ways-to-make-someone-happy/"
 ---
 
-![Woman making someone happy through laughter.](https://selfsaid.pages.dev/wp-content/uploads/make-someone-happy.webp)
+![Woman making someone happy through laughter.](https://seffsaid.com/wp-content/uploads/make-someone-happy.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

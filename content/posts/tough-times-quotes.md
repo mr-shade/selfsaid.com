@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/tough-times-quotes/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/tough-times-quotes.webp)
+![](https://seffsaid.com/wp-content/uploads/tough-times-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

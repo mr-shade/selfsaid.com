@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/always-keep-a-positive-mindset/"
 ---
 
-![Always Keep A Positive Mindset](https://selfsaid.pages.dev/wp-content/uploads/Always-keep-a-positive-mindset.jpg)
+![Always Keep A Positive Mindset](https://seffsaid.com/wp-content/uploads/Always-keep-a-positive-mindset.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

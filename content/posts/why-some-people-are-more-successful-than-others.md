@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/why-some-people-are-more-successful-than-others/"
 ---
 
-![Successful man overlooking New York City from his penthouse apartment.](https://selfsaid.pages.dev/wp-content/uploads/why-some-people-are-more-successful.webp)
+![Successful man overlooking New York City from his penthouse apartment.](https://seffsaid.com/wp-content/uploads/why-some-people-are-more-successful.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

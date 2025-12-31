@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/25-inspirational-mark-twain-quotes/"
 ---
 
-![Mark Twain Quotes](https://selfsaid.pages.dev/wp-content/uploads/mark-twain-quotes.jpg)
+![Mark Twain Quotes](https://seffsaid.com/wp-content/uploads/mark-twain-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

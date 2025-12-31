@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/40-simple-ways-to-pay-it-forward-every-day/"
 ---
 
-![Hands reaching out to help each other in kindness](https://selfsaid.pages.dev/wp-content/uploads/pay-it-forward.webp)
+![Hands reaching out to help each other in kindness](https://seffsaid.com/wp-content/uploads/pay-it-forward.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

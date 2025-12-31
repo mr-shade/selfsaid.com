@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-say-no-without-guilt/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/learned-to-say-no.webp)
+![](https://seffsaid.com/wp-content/uploads/learned-to-say-no.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

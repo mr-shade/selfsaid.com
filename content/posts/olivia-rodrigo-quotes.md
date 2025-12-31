@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/olivia-rodrigo-quotes/"
 ---
 
-![Olivia Rodrigo singing live in concert](https://selfsaid.pages.dev/wp-content/uploads/Olivia-Rodrigo-Quotes.webp)
+![Olivia Rodrigo singing live in concert](https://seffsaid.com/wp-content/uploads/Olivia-Rodrigo-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

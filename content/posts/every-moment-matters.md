@@ -10,7 +10,7 @@ original_url: "https://selfsaid.pages.dev/every-moment-matters/"
 
 All [Printable Quotes](/printable-quotes)
 
-![Every Moment Matters](https://selfsaid.pages.dev/wp-content/uploads/SEFFSAID-Every-Moment-Matters-800x800-1.webp)
+![Every Moment Matters](https://seffsaid.com/wp-content/uploads/SEFFSAID-Every-Moment-Matters-800x800-1.webp)
 
 ## “Every Moment Matters” Printable Quote
 

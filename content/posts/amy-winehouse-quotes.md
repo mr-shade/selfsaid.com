@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/amy-winehouse-quotes/"
 ---
 
-![Amy Winehouse](https://selfsaid.pages.dev/wp-content/uploads/Amy-Winehouse-Quotes.webp)
+![Amy Winehouse](https://seffsaid.com/wp-content/uploads/Amy-Winehouse-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

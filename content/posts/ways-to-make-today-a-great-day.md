@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/ways-to-make-today-a-great-day/"
 ---
 
-![Woman having a great day walking along a cliff top by the sea](https://selfsaid.pages.dev/wp-content/uploads/Ways-to-Make-Today-a-Great-Day.webp)
+![Woman having a great day walking along a cliff top by the sea](https://seffsaid.com/wp-content/uploads/Ways-to-Make-Today-a-Great-Day.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

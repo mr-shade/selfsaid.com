@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/5-things-you-should-stop-expecting-from-other-people/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Stop-Expecting.webp)
+![](https://seffsaid.com/wp-content/uploads/Stop-Expecting.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/j-robert-oppenheimer-quotes/"
 ---
 
-![J. Robert Oppenheimer](https://selfsaid.pages.dev/wp-content/uploads/J-Robert-Oppenheimer-Quotes.webp)
+![J. Robert Oppenheimer](https://seffsaid.com/wp-content/uploads/J-Robert-Oppenheimer-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

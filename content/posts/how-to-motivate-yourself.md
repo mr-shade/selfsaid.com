@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-motivate-yourself/"
 ---
 
-![Motivated man running a race](https://selfsaid.pages.dev/wp-content/uploads/How-To-Motivate-Yourself.webp)
+![Motivated man running a race](https://seffsaid.com/wp-content/uploads/How-To-Motivate-Yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

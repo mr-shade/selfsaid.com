@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/everyday-self-care-routine/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Everyday-Self-Care-Routine-webp.webp)
+![](https://seffsaid.com/wp-content/uploads/Everyday-Self-Care-Routine-webp.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

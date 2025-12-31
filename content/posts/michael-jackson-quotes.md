@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/michael-jackson-quotes/"
 ---
 
-![Michael Jackson in concert](https://selfsaid.pages.dev/wp-content/uploads/Michael-Jackson-Quotes.webp)
+![Michael Jackson in concert](https://seffsaid.com/wp-content/uploads/Michael-Jackson-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

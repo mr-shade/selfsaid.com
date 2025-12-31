@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/quotes-about-passion-and-purpose/"
 ---
 
-![Classical guitarist playing his guitar with intense passion](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-passion-and-purpose.webp)
+![Classical guitarist playing his guitar with intense passion](https://seffsaid.com/wp-content/uploads/quotes-about-passion-and-purpose.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/marcus-aurelius-quotes/"
 ---
 
-![Marcus Aurelius](https://selfsaid.pages.dev/wp-content/uploads/Marcus-Aurelius-Quotes.webp)
+![Marcus Aurelius](https://seffsaid.com/wp-content/uploads/Marcus-Aurelius-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

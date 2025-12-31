@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-i-cultivated-a-focused-state-of-mind/"
 ---
 
-![Woman sitting on a beautiful beach meditating.](https://selfsaid.pages.dev/wp-content/uploads/focused-state-of-mind.webp)
+![Woman sitting on a beautiful beach meditating.](https://seffsaid.com/wp-content/uploads/focused-state-of-mind.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

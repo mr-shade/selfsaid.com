@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/inspirational-lessons/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Inspirational-Lessons-600.webp)
+![](https://seffsaid.com/wp-content/uploads/Inspirational-Lessons-600.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

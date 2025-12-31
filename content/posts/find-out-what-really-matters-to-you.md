@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/find-out-what-really-matters-to-you/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/what-really-matters.webp)
+![](https://seffsaid.com/wp-content/uploads/what-really-matters.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/free-spirit-quotes/"
 ---
 
-![Free Spirit Quotes](https://selfsaid.pages.dev/wp-content/uploads/free-spirit-quotes.jpg)
+![Free Spirit Quotes](https://seffsaid.com/wp-content/uploads/free-spirit-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

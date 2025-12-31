@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/the-case-for-doing-nothing/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Case-for-Doing-Nothing.webp)
+![](https://seffsaid.com/wp-content/uploads/Case-for-Doing-Nothing.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

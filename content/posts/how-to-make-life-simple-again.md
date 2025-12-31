@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-make-life-simple-again/"
 ---
 
-![Man relaxing at the beach enjoying the simple life](https://selfsaid.pages.dev/wp-content/uploads/How-to-Make-Life-Simple-Again.webp)
+![Man relaxing at the beach enjoying the simple life](https://seffsaid.com/wp-content/uploads/How-to-Make-Life-Simple-Again.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

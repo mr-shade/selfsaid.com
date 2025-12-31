@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/10-ways-to-step-out-of-your-comfort-zone/"
 ---
 
-![Man happy to have finally stepped out of his comfort zone](https://selfsaid.pages.dev/wp-content/uploads/Step-Out-Of-Your-Comfort-Zone.webp)
+![Man happy to have finally stepped out of his comfort zone](https://seffsaid.com/wp-content/uploads/Step-Out-Of-Your-Comfort-Zone.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

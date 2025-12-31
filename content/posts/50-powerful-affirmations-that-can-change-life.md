@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/50-powerful-affirmations-that-can-change-life/"
 ---
 
-![Woman reciting powerful affirmations](https://selfsaid.pages.dev/wp-content/uploads/Powerful-Affirmations.webp)
+![Woman reciting powerful affirmations](https://seffsaid.com/wp-content/uploads/Powerful-Affirmations.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

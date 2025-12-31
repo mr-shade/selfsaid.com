@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/maya-angelou-quotes/"
 ---
 
-![Maya Angelou Quotes And Sayings](https://selfsaid.pages.dev/wp-content/uploads/Maya-Angelou-Quotes.jpg)
+![Maya Angelou Quotes And Sayings](https://seffsaid.com/wp-content/uploads/Maya-Angelou-Quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

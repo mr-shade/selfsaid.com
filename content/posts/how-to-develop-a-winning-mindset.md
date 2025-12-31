@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-develop-a-winning-mindset/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/How-To-Develop-A-Winning-Mindset.webp)
+![](https://seffsaid.com/wp-content/uploads/How-To-Develop-A-Winning-Mindset.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

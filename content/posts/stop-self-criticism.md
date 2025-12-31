@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/stop-self-criticism/"
 ---
 
-![Woman gazing out of a window on a grey rainy day.](https://selfsaid.pages.dev/wp-content/uploads/Overcome-Self-Criticism.webp)
+![Woman gazing out of a window on a grey rainy day.](https://seffsaid.com/wp-content/uploads/Overcome-Self-Criticism.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

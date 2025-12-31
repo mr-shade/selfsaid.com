@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/dont-want-to-do-anything-anymore/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/how-to-regain-motivation.webp)
+![](https://seffsaid.com/wp-content/uploads/how-to-regain-motivation.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

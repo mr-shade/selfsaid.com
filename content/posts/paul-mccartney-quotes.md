@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/paul-mccartney-quotes/"
 ---
 
-![Paul McCartney on stage with The Beatles](https://selfsaid.pages.dev/wp-content/uploads/Paul-McCartney-Quotes.webp)
+![Paul McCartney on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Paul-McCartney-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

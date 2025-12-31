@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/beatles-quotes/"
 ---
 
-![The Beatles performing live on stage in 1964](https://selfsaid.pages.dev/wp-content/uploads/The-Beatles-Quotes.webp)
+![The Beatles performing live on stage in 1964](https://seffsaid.com/wp-content/uploads/The-Beatles-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

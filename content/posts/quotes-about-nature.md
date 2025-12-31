@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/quotes-about-nature/"
 ---
 
-![Quotes About Nature](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-nature.jpg)
+![Quotes About Nature](https://seffsaid.com/wp-content/uploads/quotes-about-nature.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

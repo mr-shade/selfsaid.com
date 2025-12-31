@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/too-much-to-do/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/too-much-to-do.webp)
+![](https://seffsaid.com/wp-content/uploads/too-much-to-do.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

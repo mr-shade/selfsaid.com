@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-keep-a-positive-outlook-in-life/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/positive-outlook-in-life.webp)
+![](https://seffsaid.com/wp-content/uploads/positive-outlook-in-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

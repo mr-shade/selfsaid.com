@@ -12,7 +12,7 @@ original_url: "https://selfsaid.pages.dev/ebook/"
 
 Subscribe to my weekly Inspirational Newsletter today and receive my 85-page eBook – ’25 Daily Habits That Will Change Your Life’ for FREE!
 
-![](https://selfsaid.pages.dev/wp-content/uploads/25-Daily-Habits-TN.jpg)
+![](https://seffsaid.com/wp-content/uploads/25-Daily-Habits-TN.jpg)
 
 * * *
 

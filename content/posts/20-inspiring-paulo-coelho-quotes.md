@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/20-inspiring-paulo-coelho-quotes/"
 ---
 
-![Paulo Coelho](https://selfsaid.pages.dev/wp-content/uploads/Paulo-Coelho-Quotes.webp)
+![Paulo Coelho](https://seffsaid.com/wp-content/uploads/Paulo-Coelho-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

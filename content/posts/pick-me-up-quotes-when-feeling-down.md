@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/pick-me-up-quotes-when-feeling-down/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/pick-me-up-quotes-webp.webp)
+![](https://seffsaid.com/wp-content/uploads/pick-me-up-quotes-webp.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

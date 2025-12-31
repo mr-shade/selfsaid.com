@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/56-self-care-ideas-for-a-healthy-mind-and-body/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/self-care-ideas-1.webp)
+![](https://seffsaid.com/wp-content/uploads/self-care-ideas-1.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

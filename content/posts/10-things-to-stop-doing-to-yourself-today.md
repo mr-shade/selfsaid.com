@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/10-things-to-stop-doing-to-yourself-today/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Things-To-Stop-Doing-To-Yourself.webp)
+![](https://seffsaid.com/wp-content/uploads/Things-To-Stop-Doing-To-Yourself.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

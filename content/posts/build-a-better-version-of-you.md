@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/build-a-better-version-of-you/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Build-A-Better-Version-Of-You.webp)
+![](https://seffsaid.com/wp-content/uploads/Build-A-Better-Version-Of-You.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

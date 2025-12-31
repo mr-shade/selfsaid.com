@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/the-top-10-confucius-quotes-that-will-change-your-life/"
 ---
 
-![Confucius thinking up another of his life changing quotes](https://selfsaid.pages.dev/wp-content/uploads/Confucius-Quotes.webp)
+![Confucius thinking up another of his life changing quotes](https://seffsaid.com/wp-content/uploads/Confucius-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

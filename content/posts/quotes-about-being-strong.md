@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/quotes-about-being-strong/"
 ---
 
-![Quotes About Being Strong](https://selfsaid.pages.dev/wp-content/uploads/quotes-about-being-strong.jpg)
+![Quotes About Being Strong](https://seffsaid.com/wp-content/uploads/quotes-about-being-strong.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

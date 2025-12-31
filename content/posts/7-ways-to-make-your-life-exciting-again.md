@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/7-ways-to-make-your-life-exciting-again/"
 ---
 
-![Two women excited to see each other chatting on a beach.](https://selfsaid.pages.dev/wp-content/uploads/Ways-To-Make-Your-Life-Exciting-Again.webp)
+![Two women excited to see each other chatting on a beach.](https://seffsaid.com/wp-content/uploads/Ways-To-Make-Your-Life-Exciting-Again.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/doing-one-thing-slowly/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/doing-one-thing-slowly.webp)
+![](https://seffsaid.com/wp-content/uploads/doing-one-thing-slowly.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

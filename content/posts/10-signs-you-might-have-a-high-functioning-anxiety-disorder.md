@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/10-signs-you-might-have-a-high-functioning-anxiety-disorder/"
 ---
 
-![Man with High-Functioning Anxiety Disorder looking out of a window into his garden](https://selfsaid.pages.dev/wp-content/uploads/High-Functioning-Anxiety-Disorder.webp)
+![Man with High-Functioning Anxiety Disorder looking out of a window into his garden](https://seffsaid.com/wp-content/uploads/High-Functioning-Anxiety-Disorder.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/simple-living-how-to-live-a-simple-life/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/How-To-Live-A-Simple-Life.webp)
+![](https://seffsaid.com/wp-content/uploads/How-To-Live-A-Simple-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/why-you-still-feel-overwhelmed/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/why-you-still-feel-overwhelmed.webp)
+![](https://seffsaid.com/wp-content/uploads/why-you-still-feel-overwhelmed.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

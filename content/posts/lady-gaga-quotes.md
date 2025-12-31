@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/lady-gaga-quotes/"
 ---
 
-![Lady Gaga standing in front of a huge audience](https://selfsaid.pages.dev/wp-content/uploads/Lady-Gaga-Quotes.webp)
+![Lady Gaga standing in front of a huge audience](https://seffsaid.com/wp-content/uploads/Lady-Gaga-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

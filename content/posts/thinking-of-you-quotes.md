@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/thinking-of-you-quotes/"
 ---
 
-![Thinking Of You Quotes](https://selfsaid.pages.dev/wp-content/uploads/Thinking-Of-You-Quotes.jpg)
+![Thinking Of You Quotes](https://seffsaid.com/wp-content/uploads/Thinking-Of-You-Quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

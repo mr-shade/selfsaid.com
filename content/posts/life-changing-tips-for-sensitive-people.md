@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/life-changing-tips-for-sensitive-people/"
 ---
 
-![Sensitive person looking at the camera](https://selfsaid.pages.dev/wp-content/uploads/Tips-for-Sensitive-People.webp)
+![Sensitive person looking at the camera](https://seffsaid.com/wp-content/uploads/Tips-for-Sensitive-People.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

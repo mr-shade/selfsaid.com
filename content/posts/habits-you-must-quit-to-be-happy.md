@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/habits-you-must-quit-to-be-happy/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/habits-you-must-quit-to-be-happy.webp)
+![](https://seffsaid.com/wp-content/uploads/habits-you-must-quit-to-be-happy.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

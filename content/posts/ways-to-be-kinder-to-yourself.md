@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/ways-to-be-kinder-to-yourself/"
 ---
 
-![Man sitting on a beautiful beach relaxing.](https://selfsaid.pages.dev/wp-content/uploads/kind-to-self.jpg)
+![Man sitting on a beautiful beach relaxing.](https://seffsaid.com/wp-content/uploads/kind-to-self.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

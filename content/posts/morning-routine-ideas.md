@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/morning-routine-ideas/"
 ---
 
-![Morning Routine Ideas for Productivity and Wellness](https://selfsaid.pages.dev/wp-content/uploads/morning-routine-ideas.jpg)
+![Morning Routine Ideas for Productivity and Wellness](https://seffsaid.com/wp-content/uploads/morning-routine-ideas.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

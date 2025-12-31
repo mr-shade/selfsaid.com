@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/one-word-quotes/"
 ---
 
-![One Word Quotes](https://selfsaid.pages.dev/wp-content/uploads/one-word-quotes.webp)
+![One Word Quotes](https://seffsaid.com/wp-content/uploads/one-word-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 
@@ -22,23 +22,23 @@ This collection underscores the idea that sometimes, all it takes is a single wo
 
 **1\. Strength** – Find your inner strength, as it is the unyielding force that propels you forward against all odds.
 
-![One Word Quote - Strength](https://selfsaid.pages.dev/wp-content/uploads/strength.webp)
+![One Word Quote - Strength](https://seffsaid.com/wp-content/uploads/strength.webp)
 
 **2\. Hope** – Nurture hope in your heart, as it’s the light that guides you through the darkest times.
 
-![One Word Quotes - Hope](https://selfsaid.pages.dev/wp-content/uploads/hope.webp)
+![One Word Quotes - Hope](https://seffsaid.com/wp-content/uploads/hope.webp)
 
 **3\. Resilience** – Build resilience, for it is your inner strength that helps you rebound from life’s setbacks.
 
-![One Word Quotes - Resilience](https://selfsaid.pages.dev/wp-content/uploads/resilience.webp)
+![One Word Quotes - Resilience](https://seffsaid.com/wp-content/uploads/resilience.webp)
 
 **4\. Courage** – Summon courage, for it is the key that unlocks the door to new beginnings and adventures.
 
-![One Word Quotes - Courage](https://selfsaid.pages.dev/wp-content/uploads/courage.webp)
+![One Word Quotes - Courage](https://seffsaid.com/wp-content/uploads/courage.webp)
 
 **5\. Believe** – Believe in yourself, as that belief is the foundation of all success and achievement.
 
-![One Word Quote - Believe](https://selfsaid.pages.dev/wp-content/uploads/believe.webp)
+![One Word Quote - Believe](https://seffsaid.com/wp-content/uploads/believe.webp)
 
 **6\. Love** – Spread love generously, for it returns in abundance and makes the world a better place.
 
@@ -52,7 +52,7 @@ This collection underscores the idea that sometimes, all it takes is a single wo
 
 **11\. Passion** – Fuel your passion, as it ignites the fire that drives you to achieve extraordinary things.
 
-![One Word Quotes- Passion](https://selfsaid.pages.dev/wp-content/uploads/passion.webp)
+![One Word Quotes- Passion](https://seffsaid.com/wp-content/uploads/passion.webp)
 
 **12\. Wisdom** – Seek wisdom, for it is the guiding light that helps navigate the complexities of life.
 
@@ -70,7 +70,7 @@ This collection underscores the idea that sometimes, all it takes is a single wo
 
 **19\. Adventure** – Seek adventure, for it is in new experiences that we truly discover ourselves.
 
-![One Word Quotes - Adventure](https://selfsaid.pages.dev/wp-content/uploads/adventure.webp)
+![One Word Quotes - Adventure](https://seffsaid.com/wp-content/uploads/adventure.webp)
 
 **20\. Gratitude** – Practice gratitude daily, as it transforms your perspective and brings joy to life’s simplest moments.
 
@@ -120,7 +120,7 @@ This collection underscores the idea that sometimes, all it takes is a single wo
 
 **43\. Serenity** – Seek serenity, for in a peaceful mind lies the strength to face life’s hardships.
 
-![One Word Quotes - Serenity](https://selfsaid.pages.dev/wp-content/uploads/serenity.webp)
+![One Word Quotes - Serenity](https://seffsaid.com/wp-content/uploads/serenity.webp)
 
 **44\. Enthusiasm** – Live with enthusiasm, as it turns ordinary days into memorable adventures.
 

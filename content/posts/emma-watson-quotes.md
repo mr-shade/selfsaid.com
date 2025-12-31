@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/emma-watson-quotes/"
 ---
 
-![Emma Watson](https://selfsaid.pages.dev/wp-content/uploads/Emma-Watson-Quotes.webp)
+![Emma Watson](https://seffsaid.com/wp-content/uploads/Emma-Watson-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

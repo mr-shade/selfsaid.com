@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/38-very-short-quotes-about-life/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Very-Short-Quotes-About-Life.webp)
+![](https://seffsaid.com/wp-content/uploads/Very-Short-Quotes-About-Life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

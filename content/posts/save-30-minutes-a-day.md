@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/save-30-minutes-a-day/"
 ---
 
-![Woman relaxing in an armchair enjoying a hot drink](https://selfsaid.pages.dev/wp-content/uploads/ways-to-save-30-minutes-a-day.webp)
+![Woman relaxing in an armchair enjoying a hot drink](https://seffsaid.com/wp-content/uploads/ways-to-save-30-minutes-a-day.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

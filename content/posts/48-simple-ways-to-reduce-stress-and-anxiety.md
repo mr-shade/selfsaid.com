@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/48-simple-ways-to-reduce-stress-and-anxiety/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Reduce-Stress-and-Anxiety.webp)
+![](https://seffsaid.com/wp-content/uploads/Reduce-Stress-and-Anxiety.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

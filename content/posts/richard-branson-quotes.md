@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/richard-branson-quotes/"
 ---
 
-![Richard Branson walking along a desert road](https://selfsaid.pages.dev/wp-content/uploads/richard-branson-quotes.webp)
+![Richard Branson walking along a desert road](https://seffsaid.com/wp-content/uploads/richard-branson-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

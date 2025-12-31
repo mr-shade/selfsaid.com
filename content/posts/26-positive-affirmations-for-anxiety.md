@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/26-positive-affirmations-for-anxiety/"
 ---
 
-![Anxious man using affirmations to control his anxiety](https://selfsaid.pages.dev/wp-content/uploads/Positive-Affirmations-For-Anxiety.webp)
+![Anxious man using affirmations to control his anxiety](https://seffsaid.com/wp-content/uploads/Positive-Affirmations-For-Anxiety.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

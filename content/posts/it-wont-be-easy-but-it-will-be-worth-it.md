@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/it-wont-be-easy-but-it-will-be-worth-it/"
 ---
 
-![It won't be easy, but it will be worth it.](https://selfsaid.pages.dev/wp-content/uploads/It-wont-be-easy-but-it-will-be-worth-it.jpg)
+![It won't be easy, but it will be worth it.](https://seffsaid.com/wp-content/uploads/It-wont-be-easy-but-it-will-be-worth-it.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

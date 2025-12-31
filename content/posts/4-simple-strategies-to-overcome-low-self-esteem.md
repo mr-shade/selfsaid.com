@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/4-simple-strategies-to-overcome-low-self-esteem/"
 ---
 
-![Overcoming Low Self-Esteem](https://selfsaid.pages.dev/wp-content/uploads/overcoming-low-self-esteem.jpg)
+![Overcoming Low Self-Esteem](https://seffsaid.com/wp-content/uploads/overcoming-low-self-esteem.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

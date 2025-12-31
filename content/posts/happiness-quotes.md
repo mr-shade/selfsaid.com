@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/happiness-quotes/"
 ---
 
-![A very happy couple laughing together at the beach](https://selfsaid.pages.dev/wp-content/uploads/happiness-quotes.webp)
+![A very happy couple laughing together at the beach](https://seffsaid.com/wp-content/uploads/happiness-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

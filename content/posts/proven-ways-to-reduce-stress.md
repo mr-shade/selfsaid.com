@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/proven-ways-to-reduce-stress/"
 ---
 
-![Incredibly stressed man](https://selfsaid.pages.dev/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp)
+![Incredibly stressed man](https://seffsaid.com/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

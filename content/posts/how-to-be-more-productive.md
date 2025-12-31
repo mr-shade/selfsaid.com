@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-be-more-productive/"
 ---
 
-![Man sitting at his office desk working productively](https://selfsaid.pages.dev/wp-content/uploads/how-to-be-more-productive.webp)
+![Man sitting at his office desk working productively](https://seffsaid.com/wp-content/uploads/how-to-be-more-productive.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/quotes-about-new-york-city/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/New-York-City-webp.webp)
+![](https://seffsaid.com/wp-content/uploads/New-York-City-webp.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

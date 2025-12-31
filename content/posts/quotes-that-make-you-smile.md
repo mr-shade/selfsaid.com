@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/quotes-that-make-you-smile/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/quotes-that-make-you-smile.webp)
+![](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-smile.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

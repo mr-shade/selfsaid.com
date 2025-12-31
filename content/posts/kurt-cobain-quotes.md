@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/kurt-cobain-quotes/"
 ---
 
-![Kurt Cobain on stage with Nirvana](https://selfsaid.pages.dev/wp-content/uploads/kurt-cobain-quotes.webp)
+![Kurt Cobain on stage with Nirvana](https://seffsaid.com/wp-content/uploads/kurt-cobain-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

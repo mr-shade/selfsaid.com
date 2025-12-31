@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/new-beginning-quotes/"
 ---
 
-![New Beginning Quotes About Starting Over](https://selfsaid.pages.dev/wp-content/uploads/new-beginning-quotes.jpg)
+![New Beginning Quotes About Starting Over](https://seffsaid.com/wp-content/uploads/new-beginning-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

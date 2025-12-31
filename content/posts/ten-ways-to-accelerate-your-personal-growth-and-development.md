@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/ten-ways-to-accelerate-your-personal-growth-and-development/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/Accelerate-Your-Personal-Growth.webp)
+![](https://seffsaid.com/wp-content/uploads/Accelerate-Your-Personal-Growth.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/emotional-healing-quotes/"
 ---
 
-![Emotional Healing Quotes](https://selfsaid.pages.dev/wp-content/uploads/emotional-healing-quotes.webp)
+![Emotional Healing Quotes](https://seffsaid.com/wp-content/uploads/emotional-healing-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

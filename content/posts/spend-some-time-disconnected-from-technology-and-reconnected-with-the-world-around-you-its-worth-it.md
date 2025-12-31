@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it/"
 ---
 
-![Spend Some Time Disconnected From Technology And Reconnected With The World Around You. It’s Worth It.](https://selfsaid.pages.dev/wp-content/uploads/Spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-Its-worth-it-1.jpg)
+![Spend Some Time Disconnected From Technology And Reconnected With The World Around You. It’s Worth It.](https://seffsaid.com/wp-content/uploads/Spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-Its-worth-it-1.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

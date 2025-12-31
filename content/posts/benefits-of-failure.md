@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/benefits-of-failure/"
 ---
 
-![Thomas Edison in his workshop failing 1000 times before successfully inventing the light bulb.](https://selfsaid.pages.dev/wp-content/uploads/benefits-of-failure.webp)
+![Thomas Edison in his workshop failing 1000 times before successfully inventing the light bulb.](https://seffsaid.com/wp-content/uploads/benefits-of-failure.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

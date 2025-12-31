@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/music-quotes/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/music-quotes.webp)
+![](https://seffsaid.com/wp-content/uploads/music-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/easy-ways-to-quickly-improve-your-mood/"
 ---
 
-![Man in a great mood standing on a beach with outstretched arms.](https://selfsaid.pages.dev/wp-content/uploads/ways-to-improve-your-mood.webp)
+![Man in a great mood standing on a beach with outstretched arms.](https://seffsaid.com/wp-content/uploads/ways-to-improve-your-mood.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

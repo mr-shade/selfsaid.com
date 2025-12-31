@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/bill-gates-quotes/"
 ---
 
-![Bill Gates thinking up one of his inspirational quotes.](https://selfsaid.pages.dev/wp-content/uploads/Bill-Gates-Quotes.webp)
+![Bill Gates thinking up one of his inspirational quotes.](https://seffsaid.com/wp-content/uploads/Bill-Gates-Quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

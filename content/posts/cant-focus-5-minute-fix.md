@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/cant-focus-5-minute-fix/"
 ---
 
-![Can’t Focus Lately? Try This 5-Minute Fix](https://selfsaid.pages.dev/wp-content/uploads/cant-focus-5-minute-fix.webp)
+![Can’t Focus Lately? Try This 5-Minute Fix](https://seffsaid.com/wp-content/uploads/cant-focus-5-minute-fix.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

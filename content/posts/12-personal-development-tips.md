@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/12-personal-development-tips/"
 ---
 
-![Woman with outstretched arms facing out to sea on a beautiful sunny day](https://selfsaid.pages.dev/wp-content/uploads/personal-development-tips.webp)
+![Woman with outstretched arms facing out to sea on a beautiful sunny day](https://seffsaid.com/wp-content/uploads/personal-development-tips.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

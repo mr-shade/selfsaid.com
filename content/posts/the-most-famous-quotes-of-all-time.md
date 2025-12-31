@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/the-most-famous-quotes-of-all-time/"
 ---
 
-![Camera flashes from Paparazzi](https://selfsaid.pages.dev/wp-content/uploads/Most-Famous-Quotes-Of-All-Time.webp)
+![Camera flashes from Paparazzi](https://seffsaid.com/wp-content/uploads/Most-Famous-Quotes-Of-All-Time.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

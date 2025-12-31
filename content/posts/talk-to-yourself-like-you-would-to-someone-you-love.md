@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/talk-to-yourself-like-you-would-to-someone-you-love/"
 ---
 
-![Talk to Yourself Like You Would to Someone You Love](https://selfsaid.pages.dev/wp-content/uploads/talk-yourself-love-600.webp)
+![Talk to Yourself Like You Would to Someone You Love](https://seffsaid.com/wp-content/uploads/talk-yourself-love-600.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

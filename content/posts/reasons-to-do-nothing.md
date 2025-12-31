@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/reasons-to-do-nothing/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/reasons-to-do-nothing.webp)
+![](https://seffsaid.com/wp-content/uploads/reasons-to-do-nothing.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

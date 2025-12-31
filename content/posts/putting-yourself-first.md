@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/putting-yourself-first/"
 ---
 
-![Putting Yourself First](https://selfsaid.pages.dev/wp-content/uploads/putting-yourself-first.webp)
+![Putting Yourself First](https://seffsaid.com/wp-content/uploads/putting-yourself-first.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

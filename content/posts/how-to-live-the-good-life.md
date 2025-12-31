@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/how-to-live-the-good-life/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/how-to-live-the-good-life.webp)
+![](https://seffsaid.com/wp-content/uploads/how-to-live-the-good-life.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

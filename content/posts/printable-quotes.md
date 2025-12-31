@@ -14,7 +14,7 @@ Discover the SEFFSAID collection of high-quality, downloadable quote prints that
 
 Each quote print order includes five high-resolution JPGs at 300 DPI, offered in various ratios, making it easy to print out in multiple sizes to suit your framing or hanging needs. Print at home, online, or at your local print shop and enjoy timeless messages that fit perfectly into your life.
 
-[![Dream Big Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/SEFFSAID-Dream-Big.webp)](/dream-big)
+[![Dream Big Printable Quote](https://seffsaid.com/wp-content/uploads/SEFFSAID-Dream-Big.webp)](/dream-big)
 
 ## Dream Big
 
@@ -22,7 +22,7 @@ Each quote print order includes five high-resolution JPGs at 300 DPI, offered in
 
 [ADD TO CART](https://payhip.com/b/y46C8)
 
-[![Never Quit Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/SEFFSAID-Never-Quit.webp)](/never-quit)
+[![Never Quit Printable Quote](https://seffsaid.com/wp-content/uploads/SEFFSAID-Never-Quit.webp)](/never-quit)
 
 ## Never Quit
 
@@ -30,7 +30,7 @@ Each quote print order includes five high-resolution JPGs at 300 DPI, offered in
 
 [ADD TO CART](https://payhip.com/b/KfSPx)
 
-[![Live Your Best Life Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/Live-Your-Best-Life-Printable-Quote.webp)](/live-your-best-life)
+[![Live Your Best Life Printable Quote](https://seffsaid.com/wp-content/uploads/Live-Your-Best-Life-Printable-Quote.webp)](/live-your-best-life)
 
 ## Live Your Best Life
 
@@ -38,7 +38,7 @@ Each quote print order includes five high-resolution JPGs at 300 DPI, offered in
 
 [Add To Cart](https://payhip.com/b/oabZX)
 
-[![You'll Get There Don't Give Up Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/seffsaid-youll-get-there-dont-give-up-300x300-1.webp)](/youll-get-there-dont-give-up)
+[![You'll Get There Don't Give Up Printable Quote](https://seffsaid.com/wp-content/uploads/seffsaid-youll-get-there-dont-give-up-300x300-1.webp)](/youll-get-there-dont-give-up)
 
 ## You’ll Get There.  
 Don’t Give Up
@@ -47,7 +47,7 @@ Don’t Give Up
 
 [ADD TO CART](https://payhip.com/b/97rP2)
 
-[![Seize The Day Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/seffsaid-seize-the-day-300x300-1.webp)](/seize-the-day)
+[![Seize The Day Printable Quote](https://seffsaid.com/wp-content/uploads/seffsaid-seize-the-day-300x300-1.webp)](/seize-the-day)
 
 ## Seize The Day  
 
@@ -55,7 +55,7 @@ Don’t Give Up
 
 [ADD TO CART](https://payhip.com/b/3JyOP)
 
-[![Faith Hope Believe Trust Love Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/seffsaid-FAITH-HOPE-BELIEVE-TRUST-LOVE-300x300-2.webp)](/faith-hope-believe-trust-love)
+[![Faith Hope Believe Trust Love Printable Quote](https://seffsaid.com/wp-content/uploads/seffsaid-FAITH-HOPE-BELIEVE-TRUST-LOVE-300x300-2.webp)](/faith-hope-believe-trust-love)
 
 ## Faith Hope  
 Believe Trust Love
@@ -64,7 +64,7 @@ Believe Trust Love
 
 [ADD TO CART](https://payhip.com/b/9nXFJ)
 
-[![Love Life Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/Love-Life-Printable-Quote-300x300-1.webp)](/love-life)
+[![Love Life Printable Quote](https://seffsaid.com/wp-content/uploads/Love-Life-Printable-Quote-300x300-1.webp)](/love-life)
 
 ## Love Life
 
@@ -72,7 +72,7 @@ Believe Trust Love
 
 [ADD TO CART](https://payhip.com/b/QGUuM)
 
-[![Choose Joy Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/Choose-Joy-Printable-Quote-300x300-1.webp)](/choose-joy)
+[![Choose Joy Printable Quote](https://seffsaid.com/wp-content/uploads/Choose-Joy-Printable-Quote-300x300-1.webp)](/choose-joy)
 
 ## Choose Joy
 
@@ -80,7 +80,7 @@ Believe Trust Love
 
 [ADD TO CART](https://payhip.com/b/WPUX0)
 
-[![Be Happy Printable Quote](https://selfsaid.pages.dev/wp-content/uploads/Be-Happy-Printable-Quote-300x300-1.webp)](/be-happy)
+[![Be Happy Printable Quote](https://seffsaid.com/wp-content/uploads/Be-Happy-Printable-Quote-300x300-1.webp)](/be-happy)
 
 ## Be Happy
 

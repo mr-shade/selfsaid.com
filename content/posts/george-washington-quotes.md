@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/george-washington-quotes/"
 ---
 
-![86 George Washington Quotes on Leadership, Liberty, and Life](https://selfsaid.pages.dev/wp-content/uploads/George-Washington-quotes.jpg)
+![86 George Washington Quotes on Leadership, Liberty, and Life](https://seffsaid.com/wp-content/uploads/George-Washington-quotes.jpg)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

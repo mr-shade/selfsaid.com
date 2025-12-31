@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/powerful-karma-quotes/"
 ---
 
-![Statue of Buddha symbolizing Karma](https://selfsaid.pages.dev/wp-content/uploads/karma-quotes.webp)
+![Statue of Buddha symbolizing Karma](https://seffsaid.com/wp-content/uploads/karma-quotes.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

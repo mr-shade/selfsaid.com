@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/beginners-mindset/"
 ---
 
-![A man using the beginner's mindset to learn to sail a yacht.](https://selfsaid.pages.dev/wp-content/uploads/beginners-mindset.webp)
+![A man using the beginner's mindset to learn to sail a yacht.](https://seffsaid.com/wp-content/uploads/beginners-mindset.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

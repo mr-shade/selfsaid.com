@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/flow-state-of-mind/"
 ---
 
-![Woman running while in a flow state of mind.](https://selfsaid.pages.dev/wp-content/uploads/flow-state-of-mind.webp)
+![Woman running while in a flow state of mind.](https://seffsaid.com/wp-content/uploads/flow-state-of-mind.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 

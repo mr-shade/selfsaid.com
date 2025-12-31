@@ -8,7 +8,7 @@ featured_image: ""
 original_url: "https://selfsaid.pages.dev/tired-but-wired-switch-off/"
 ---
 
-![](https://selfsaid.pages.dev/wp-content/uploads/tired-but-wired-switch-off.webp)
+![](https://seffsaid.com/wp-content/uploads/tired-but-wired-switch-off.webp)
 
 **\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
 
