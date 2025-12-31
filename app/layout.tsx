@@ -1,6 +1,6 @@
 import type { Metadata } from 'next'
 import { Inter } from 'next/font/google'
-import './globals.css'
+import './globals.css'; import Navbar from '@/components/Navbar'; import Footer from '@/components/Footer';
 
 const inter = Inter({ subsets: ['latin'] })
 
@@ -56,21 +56,12 @@ export default function RootLayout({
 }) {
     return (
         <html lang="en">
-            <body className={inter.className}>
-                <div className="min-h-screen flex flex-col">
-                    {/* Header could go here */}
-                    <header className="p-4 border-b bg-white dark:bg-black">
-                        <div className="container mx-auto">
-                            <h1 className="text-2xl font-bold"><a href="/">Seff Said</a></h1>
-                        </div>
-                    </header>
-                    <main className="flex-grow container mx-auto p-4">
-                        {children}
-                    </main>
-                    <footer className="p-4 border-t text-center text-sm text-gray-500">
-                        © {new Date().getFullYear()} Seff Said. All rights reserved.
-                    </footer>
-                </div>
+            <body className={`${inter.className} bg-gray-50 dark:bg-black text-gray-900 dark:text-gray-100 min-h-screen flex flex-col`}>
+                <Navbar />
+                <main className="flex-grow container mx-auto px-4 pt-24 pb-12">
+                    {children}
+                </main>
+                <Footer />
             </body>
         </html>
     )
