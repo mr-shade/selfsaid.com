@@ -10,8 +10,8 @@ const components = {
     // img: (props: any) => <img {...props} className="rounded-lg my-4" />,
 };
 
-interface Props {
-    params: { slug: string }
+type Props = {
+    params: Promise<{ slug: string }>
 }
 
 export async function generateStaticParams() {
@@ -22,7 +22,8 @@ export async function generateStaticParams() {
 }
 
 export async function generateMetadata({ params }: Props): Promise<Metadata> {
-    const post = getPostBySlug(params.slug);
+    const { slug } = await params;
+    const post = getPostBySlug(slug);
     if (!post) return {};
 
     return {
@@ -46,8 +47,9 @@ export async function generateMetadata({ params }: Props): Promise<Metadata> {
     };
 }
 
-export default function PostPage({ params }: Props) {
-    const post = getPostBySlug(params.slug);
+export default async function PostPage({ params }: Props) {
+    const { slug } = await params;
+    const post = getPostBySlug(slug);
 
     if (!post) {
         notFound();
