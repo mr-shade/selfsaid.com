@@ -140,15 +140,15 @@ In this selection of John Wayne quotes, you’ll find wisdom not only from the c
 120.  “Sometimes you have to lose before you win.” – From “Tycoon” (1947)
 121.  “I figure a man’s only as good as his word.” – From “Tall in the Saddle” (1944)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fjohn-wayne-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fjohn-wayne-quotes%2F)
 
-[Pin113](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/john-wayne-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fjohn-wayne-quotes-PIN.jpg&description=Gallop+into+a+world+of+inspiration+with+121+John+Wayne+quotes%2C+the+enduring+symbol+of+American+grit.+via+%40SeffSaid)
+[Pin113](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/john-wayne-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fjohn-wayne-quotes-PIN.jpg&description=Gallop+into+a+world+of+inspiration+with+121+John+Wayne+quotes%2C+the+enduring+symbol+of+American+grit.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=121+John+Wayne+Quotes+That+Inspire+Bold+Living+and+True+Grit&url=https%3A%2F%2Fseffsaid.com%2Fjohn-wayne-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=121+John+Wayne+Quotes+That+Inspire+Bold+Living+and+True+Grit&url=https%3A%2F%2Fselfsaid.30tools.com%2Fjohn-wayne-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fjohn-wayne-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fjohn-wayne-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fjohn-wayne-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fjohn-wayne-quotes%2F)
 
 [More](#)
 

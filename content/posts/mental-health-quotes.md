@@ -96,15 +96,15 @@ This collection of 60 mental health quotes is divided into six calming sections.
 59.  “You don’t have to feel ready. Just willing.” – Unknown
 60.  “One soft step at a time is still a way through.” – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmental-health-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmental-health-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/mental-health-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmental-health-quotes-PIN.jpg&description=Struggling+with+your+mental+health%3F+These+60+mental+health+quotes+are+here+to+help+you+feel+a+little+more+steady+and+supported.+Divided+into+six+sections%2C+this+collection+includes+real%2C+honest+reminders+that+speak+to+anxiety%2C+low+mood%2C+overwhelm%2C+and+healing.+Save+it+for+quiet+moments+when+you+need+words+that+don%E2%80%99t+just+inspire%2C+but+truly+help.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/mental-health-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmental-health-quotes-PIN.jpg&description=Struggling+with+your+mental+health%3F+These+60+mental+health+quotes+are+here+to+help+you+feel+a+little+more+steady+and+supported.+Divided+into+six+sections%2C+this+collection+includes+real%2C+honest+reminders+that+speak+to+anxiety%2C+low+mood%2C+overwhelm%2C+and+healing.+Save+it+for+quiet+moments+when+you+need+words+that+don%E2%80%99t+just+inspire%2C+but+truly+help.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Mental+Health+Quotes+That+Actually+Help&url=https%3A%2F%2Fseffsaid.com%2Fmental-health-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Mental+Health+Quotes+That+Actually+Help&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmental-health-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmental-health-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmental-health-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmental-health-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmental-health-quotes%2F)
 
 [More](#)
 

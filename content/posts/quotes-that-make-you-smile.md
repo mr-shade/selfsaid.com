@@ -69,15 +69,15 @@ A good quote has a way of instantly brightening your day, bringing a smile to yo
 49.  “I used to jog but the ice cubes kept falling out of my glass.” — David Lee Roth
 50.  “May your choices reflect your hopes, not your fears.” — Nelson Mandela
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-that-make-you-smile%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-make-you-smile%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/quotes-that-make-you-smile/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-that-make-you-smile-PIN.jpg&description=Brighten+your+day+instantly+with+these+handpicked+quotes+that+bring+a+smile%2C+laughter%2C+and+a+bit+of+lighthearted+joy+to+any+moment.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/quotes-that-make-you-smile/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-that-make-you-smile-PIN.jpg&description=Brighten+your+day+instantly+with+these+handpicked+quotes+that+bring+a+smile%2C+laughter%2C+and+a+bit+of+lighthearted+joy+to+any+moment.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+That+Make+You+Smile&url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-make-you-smile%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+That+Make+You+Smile&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-make-you-smile%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-make-you-smile%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-make-you-smile%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-make-you-smile%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-make-you-smile%2F)
 
 [More](#)
 

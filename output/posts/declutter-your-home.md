@@ -120,15 +120,15 @@ You might also want to celebrate by inviting friends or family over to enjoy you
 
 Remember, decluttering isn’t just about getting rid of things; it’s about creating a home that supports your lifestyle and well-being. By reaching this step, you’ve done just that. So, give yourself a pat on the back for a job well done. Your effort has transformed your home into a more pleasant and welcoming space.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdeclutter-your-home%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdeclutter-your-home%2F)
 
-[Pin18](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/declutter-your-home/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fdeclutter-your-home-PIN.jpg&description=Transform+your+home+into+a+clutter-free+zone+with+our+straightforward+10-step+guide.+via+%40SeffSaid)
+[Pin18](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/declutter-your-home/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fdeclutter-your-home-PIN.jpg&description=Transform+your+home+into+a+clutter-free+zone+with+our+straightforward+10-step+guide.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Looking+to+declutter+your+home+but+don%27t+know+where+to+start%3F+This+decluttering+list+is+for+you%21+It+will+help+ease+you+into+your+new+clutter-free+lifestyle+by+giving+you+70+decluttering+ideas+you+can+start+implementing+immediately.&url=https%3A%2F%2Fseffsaid.com%2Fdeclutter-your-home%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Looking+to+declutter+your+home+but+don%27t+know+where+to+start%3F+This+decluttering+list+is+for+you%21+It+will+help+ease+you+into+your+new+clutter-free+lifestyle+by+giving+you+70+decluttering+ideas+you+can+start+implementing+immediately.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdeclutter-your-home%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdeclutter-your-home%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdeclutter-your-home%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdeclutter-your-home%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdeclutter-your-home%2F)
 
 [More](#)
 

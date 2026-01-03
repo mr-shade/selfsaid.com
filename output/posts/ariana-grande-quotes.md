@@ -39,15 +39,15 @@ Ariana Grande’s words have inspired millions, not just through her music but a
 
 Enjoyed these quotes? Read more [quotes by famous people](https://seffsaid.com/quotes-by-famous-people/) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fariana-grande-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fariana-grande-quotes%2F)
 
-[Pin7](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/ariana-grande-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FAriana-Grande-Quotes-PIN2.jpg&description=Uncover+the+wisdom+of+Ariana+Grande%27s+in+this+collection+of+her+very+best+quotes.+via+%40SeffSaid)
+[Pin7](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/ariana-grande-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FAriana-Grande-Quotes-PIN2.jpg&description=Uncover+the+wisdom+of+Ariana+Grande%27s+in+this+collection+of+her+very+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Ariana+Grande%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fariana-grande-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Ariana+Grande%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fariana-grande-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fariana-grande-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fariana-grande-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fariana-grande-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fariana-grande-quotes%2F)
 
 [More](#)
 

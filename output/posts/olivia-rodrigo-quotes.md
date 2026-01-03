@@ -65,15 +65,15 @@ In this collection of 50 quotes from Olivia Rodrigo, you’ll find her unique pe
 49.  “Art is the emotional outlet that I didn’t know I needed.” – Olivia Rodrigo
 50.  “Sometimes, being honest can be hard, but it’s always worth it in the end.” – Olivia Rodrigo
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Folivia-rodrigo-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Folivia-rodrigo-quotes%2F)
 
-[Pin27](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/olivia-rodrigo-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FOlivia-Rodrigo-Quotes-PIN.jpg&description=Discover+the+wisdom+of+Olivia+Rodrigo+in+50+of+her+best+quotes+on+life%2C+music+and+growing+up.+via+%40SeffSaid)
+[Pin27](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/olivia-rodrigo-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FOlivia-Rodrigo-Quotes-PIN.jpg&description=Discover+the+wisdom+of+Olivia+Rodrigo+in+50+of+her+best+quotes+on+life%2C+music+and+growing+up.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Olivia+Rodrigo+Quotes+on+Life%2C+Music+and+Growing+Up&url=https%3A%2F%2Fseffsaid.com%2Folivia-rodrigo-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Olivia+Rodrigo+Quotes+on+Life%2C+Music+and+Growing+Up&url=https%3A%2F%2Fselfsaid.30tools.com%2Folivia-rodrigo-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Folivia-rodrigo-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Folivia-rodrigo-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Folivia-rodrigo-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Folivia-rodrigo-quotes%2F)
 
 [More](#)
 

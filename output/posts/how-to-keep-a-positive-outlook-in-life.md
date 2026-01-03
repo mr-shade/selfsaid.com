@@ -64,15 +64,15 @@ In doing this, the mind was trained to drag attention away from the frowning fac
 
 Studies suggest that just a few small changes in our habits, combined with effort and awareness, can truly change our outlook in life, and in so doing, benefit our health both physically and mentally. Why not make today the day to start implementing these small consistent changes to foster a sunnier, happier attitude and to lead a healthier and more fulfilling life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-keep-a-positive-outlook-in-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-keep-a-positive-outlook-in-life%2F)
 
 Pin10
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Keep+A+Positive+Outlook+In+Life&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-keep-a-positive-outlook-in-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Keep+A+Positive+Outlook+In+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-keep-a-positive-outlook-in-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-keep-a-positive-outlook-in-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-keep-a-positive-outlook-in-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-keep-a-positive-outlook-in-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-keep-a-positive-outlook-in-life%2F)
 
 [More](#)
 

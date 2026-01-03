@@ -81,15 +81,15 @@ These ten skills form a foundation for success in any area of life. By developin
 
 Developing these ten essential life skills can significantly enhance your ability to succeed in various areas of life. These skills are not only valuable in professional settings but also enrich [personal growth and development](/ten-ways-to-accelerate-your-personal-growth-and-development).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fessential-life-skills%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fessential-life-skills%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/essential-life-skills/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fessential-life-skills-PIN.jpg&description=Developing+these+ten+essential+life+skills+can+significantly+enhance+your+ability+to+succeed+in+all+areas+of+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/essential-life-skills/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fessential-life-skills-PIN.jpg&description=Developing+these+ten+essential+life+skills+can+significantly+enhance+your+ability+to+succeed+in+all+areas+of+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Essential+Life+Skills+You+Need+to+Succeed+at+Anything&url=https%3A%2F%2Fseffsaid.com%2Fessential-life-skills%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Essential+Life+Skills+You+Need+to+Succeed+at+Anything&url=https%3A%2F%2Fselfsaid.30tools.com%2Fessential-life-skills%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fessential-life-skills%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fessential-life-skills%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fessential-life-skills%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fessential-life-skills%2F)
 
 [More](#)
 

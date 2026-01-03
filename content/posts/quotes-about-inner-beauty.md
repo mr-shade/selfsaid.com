@@ -142,15 +142,15 @@ Inner beauty shines when you have a [positive attitude](/easy-ways-to-develop-a-
 
 “The real beauty of a person is not in their face or appearance, but in their heart and soul.” – Anonymous
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-inner-beauty%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-inner-beauty%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/quotes-about-inner-beauty/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-about-inner-beauty-PIN.jpg&description=These+quotes+about+inner+beauty+offer+simple+reminders+of+the+deeper+beauty+that+shines+through+a+person%E2%80%99s+character+and+actions.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/quotes-about-inner-beauty/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-about-inner-beauty-PIN.jpg&description=These+quotes+about+inner+beauty+offer+simple+reminders+of+the+deeper+beauty+that+shines+through+a+person%E2%80%99s+character+and+actions.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Quotes+About+Inner+Beauty&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-inner-beauty%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Quotes+About+Inner+Beauty&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-inner-beauty%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-inner-beauty%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-inner-beauty%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-inner-beauty%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-inner-beauty%2F)
 
 [More](#)
 

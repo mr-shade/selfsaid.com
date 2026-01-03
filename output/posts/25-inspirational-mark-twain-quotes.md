@@ -77,15 +77,15 @@ Best regards,
 
 Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F25-inspirational-mark-twain-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F25-inspirational-mark-twain-quotes%2F)
 
-[Pin5.58K](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/25-inspirational-mark-twain-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmark-twain-quotes-PIN.jpg&description=Explore+this+collection+of+50+of+the+most+famous+Mark+Twain+quotes+and+immerse+yourself+in+the+wit+and+wisdom+of+a+literary+icon.+via+%40SeffSaid)
+[Pin5.58K](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/25-inspirational-mark-twain-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmark-twain-quotes-PIN.jpg&description=Explore+this+collection+of+50+of+the+most+famous+Mark+Twain+quotes+and+immerse+yourself+in+the+wit+and+wisdom+of+a+literary+icon.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Famous+Mark+Twain+Quotes+and+Sayings&url=https%3A%2F%2Fseffsaid.com%2F25-inspirational-mark-twain-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Famous+Mark+Twain+Quotes+and+Sayings&url=https%3A%2F%2Fselfsaid.30tools.com%2F25-inspirational-mark-twain-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F25-inspirational-mark-twain-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F25-inspirational-mark-twain-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F25-inspirational-mark-twain-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F25-inspirational-mark-twain-quotes%2F)
 
 [More](#)
 

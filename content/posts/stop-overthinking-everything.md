@@ -64,15 +64,15 @@ This will be different for everyone but we can all find small specific things fo
 
 A mind that overthinks is very common but we can all use small habits every day to gradually install a more relaxed and mindful state that will improve our mental and physical health. Try out these tips and I hope they will help you find a more peaceful existence.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstop-overthinking-everything%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-overthinking-everything%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/stop-overthinking-everything/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FStop-Overthinking-Everything-PIN.jpg&description=Six+ways+to+stop+overthinking+that+have+helped+me+to+relax+and+take+my+overactive+brain+from+a+chronic+state+of+stress+to+a+calmer+place.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/stop-overthinking-everything/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FStop-Overthinking-Everything-PIN.jpg&description=Six+ways+to+stop+overthinking+that+have+helped+me+to+relax+and+take+my+overactive+brain+from+a+chronic+state+of+stress+to+a+calmer+place.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Stop+Overthinking+Everything&url=https%3A%2F%2Fseffsaid.com%2Fstop-overthinking-everything%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Stop+Overthinking+Everything&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-overthinking-everything%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstop-overthinking-everything%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-overthinking-everything%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstop-overthinking-everything%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-overthinking-everything%2F)
 
 [More](#)
 

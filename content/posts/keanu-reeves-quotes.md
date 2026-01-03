@@ -67,15 +67,15 @@ Keanu Reeves is known not only for his iconic roles in films but also for his th
 49.  “You can have a spiritual awakening and discover a new side of you at any age. And best of all, love can happen at any age. Life can just start to get exciting when you’re in your 40s and 50s. You have to believe that.” – Keanu Reeves
 50.  “I believe that there’s no improvement if you have an inferiority complex and victim mentality.” – Keanu Reeves
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fkeanu-reeves-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fkeanu-reeves-quotes%2F)
 
-[Pin868](https://pinterest.com/pin/create/button/?url=/keanu-reeves-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fkeanu-reeves-quotes-PIN.jpg&description=50+powerful+quotes+from+Keanu+Reeves+that+capture+his+philosophy%2C+kindness%2C+and+unique+outlook+on+life.+via+%40SeffSaid)
+[Pin868](https://pinterest.com/pin/create/button/?url=/keanu-reeves-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fkeanu-reeves-quotes-PIN.jpg&description=50+powerful+quotes+from+Keanu+Reeves+that+capture+his+philosophy%2C+kindness%2C+and+unique+outlook+on+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Powerful+Quotes+From+Keanu+Reeves&url=https%3A%2F%2Fseffsaid.com%2Fkeanu-reeves-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Powerful+Quotes+From+Keanu+Reeves&url=https%3A%2F%2Fselfsaid.30tools.com%2Fkeanu-reeves-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fkeanu-reeves-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkeanu-reeves-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fkeanu-reeves-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkeanu-reeves-quotes%2F)
 
 [More](#)
 

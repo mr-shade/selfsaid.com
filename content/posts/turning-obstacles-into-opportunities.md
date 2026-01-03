@@ -73,15 +73,15 @@ Growth also comes from reflection. Taking time to think about what worked and wh
 
 Life’s struggles do not have to be roadblocks. They can be used as tools for learning and growth. By staying resilient, maintaining a [positive outlook](/how-to-keep-a-positive-outlook-in-life), and taking action, even the hardest situations can lead to something better. Every obstacle carries a lesson, and those who recognize this will continue to [move forward with confidence](/quotes-about-getting-back-up-and-moving-forwards-after-failure). Growth, persistence, and adaptability turn challenges into opportunities for success.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fturning-obstacles-into-opportunities%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fturning-obstacles-into-opportunities%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/turning-obstacles-into-opportunities/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fturning-obstacles-into-opportunities-PIN.jpg&description=Learn+how+to+turn+life%27s+toughest+moments+into+valuable+opportunities.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/turning-obstacles-into-opportunities/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fturning-obstacles-into-opportunities-PIN.jpg&description=Learn+how+to+turn+life%27s+toughest+moments+into+valuable+opportunities.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Turning+Life%27s+Obstacles+Into+Opportunities&url=https%3A%2F%2Fseffsaid.com%2Fturning-obstacles-into-opportunities%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Turning+Life%27s+Obstacles+Into+Opportunities&url=https%3A%2F%2Fselfsaid.30tools.com%2Fturning-obstacles-into-opportunities%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fturning-obstacles-into-opportunities%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fturning-obstacles-into-opportunities%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fturning-obstacles-into-opportunities%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fturning-obstacles-into-opportunities%2F)
 
 [More](#)
 

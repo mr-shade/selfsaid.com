@@ -79,15 +79,15 @@ Letting go of people-pleasing does not mean caring less about others. It means r
 
 There is nothing wrong with helping others, but it should never come at the cost of self-worth. Prioritizing well-being leads to stronger relationships, better [mental health](/mental-health-quotes), and a greater sense of fulfillment.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstop-being-a-people-pleaser%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-being-a-people-pleaser%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/stop-being-a-people-pleaser/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fstop-being-a-people-pleaser-PIN.jpg&description=Discover+the+ways+people-pleasing+destroys+your+mental+well-being+while+keeping+you+stuck+in+a+cycle+of+self-sacrifice.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/stop-being-a-people-pleaser/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fstop-being-a-people-pleaser-PIN.jpg&description=Discover+the+ways+people-pleasing+destroys+your+mental+well-being+while+keeping+you+stuck+in+a+cycle+of+self-sacrifice.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Reasons+To+Stop+Being+A+People+Pleaser+-+The+Ugly+Truth&url=https%3A%2F%2Fseffsaid.com%2Fstop-being-a-people-pleaser%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Reasons+To+Stop+Being+A+People+Pleaser+-+The+Ugly+Truth&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-being-a-people-pleaser%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstop-being-a-people-pleaser%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-being-a-people-pleaser%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstop-being-a-people-pleaser%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-being-a-people-pleaser%2F)
 
 [More](#)
 

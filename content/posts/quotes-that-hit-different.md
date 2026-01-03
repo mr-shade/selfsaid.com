@@ -118,15 +118,15 @@ Life begins at the end of your [comfort zone.”](/10-ways-to-step-out-of-your-c
 
 “To love and be loved is to feel the sun from both sides.” — David Viscott
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-that-hit-different%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-hit-different%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/quotes-that-hit-different/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-that-hit-different-PIN.jpg&description=%27Quotes+That+Hit+Different%27+resonate+deeper+or+more+personally+than+usual.+Here+are+50+powerful+quotes+that+hit+different.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/quotes-that-hit-different/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-that-hit-different-PIN.jpg&description=%27Quotes+That+Hit+Different%27+resonate+deeper+or+more+personally+than+usual.+Here+are+50+powerful+quotes+that+hit+different.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+That+Hit+Different&url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-hit-different%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+That+Hit+Different&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-hit-different%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-hit-different%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-hit-different%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-hit-different%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-hit-different%2F)
 
 [More](#)
 

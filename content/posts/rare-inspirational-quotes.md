@@ -207,15 +207,15 @@ Each quote in this list offers a unique perspective, shedding light on various a
 187.  “The only person you are destined to become is the person you decide to be.” – Ralph Waldo Emerson
 188.  “Go confidently in the direction of your dreams. Live the life you’ve imagined.” – Henry David Thoreau
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Frare-inspirational-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Frare-inspirational-quotes%2F)
 
-[Pin12](https://pinterest.com/pin/create/button/?url=/rare-inspirational-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Frare-quotes-pin.jpg&description=Fed+up+reading+the+same+old+quotes%3F+Here%27s+a+collection+of+188+rare+quotes+that+you%27ve+probably+never+heard+before.+via+%40SeffSaid)
+[Pin12](https://pinterest.com/pin/create/button/?url=/rare-inspirational-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Frare-quotes-pin.jpg&description=Fed+up+reading+the+same+old+quotes%3F+Here%27s+a+collection+of+188+rare+quotes+that+you%27ve+probably+never+heard+before.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=188+Rare+Quotes+You%27ve+Probably+Never+Heard+Before&url=https%3A%2F%2Fseffsaid.com%2Frare-inspirational-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=188+Rare+Quotes+You%27ve+Probably+Never+Heard+Before&url=https%3A%2F%2Fselfsaid.30tools.com%2Frare-inspirational-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Frare-inspirational-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Frare-inspirational-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Frare-inspirational-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Frare-inspirational-quotes%2F)
 
 [More](#)
 

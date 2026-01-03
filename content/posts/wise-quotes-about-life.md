@@ -175,15 +175,15 @@ This collection has expanded from an initial 38 to a remarkable 156 wise quotes 
 155.  “The only impossible journey is the one you never begin.” – Tony Robbins
 156.  “Go confidently in the direction of your dreams! Live the life you’ve imagined.” – Henry David Thoreau
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fwise-quotes-about-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fwise-quotes-about-life%2F)
 
-[Pin480](https://pinterest.com/pin/create/button/?url=/wise-quotes-about-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fwise-quotes-about-life-PIN.jpg&description=A+collection+of+156+wise+quotes+about+life+offering+profound+wisdom+and+perspective+for+whatever+lies+ahead.+via+%40SeffSaid)
+[Pin480](https://pinterest.com/pin/create/button/?url=/wise-quotes-about-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fwise-quotes-about-life-PIN.jpg&description=A+collection+of+156+wise+quotes+about+life+offering+profound+wisdom+and+perspective+for+whatever+lies+ahead.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Dive+into+this+collection+of+156+wise+quotes+about+life+and+discover+wisdom+for+any+situation.&url=https%3A%2F%2Fseffsaid.com%2Fwise-quotes-about-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Dive+into+this+collection+of+156+wise+quotes+about+life+and+discover+wisdom+for+any+situation.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fwise-quotes-about-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fwise-quotes-about-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwise-quotes-about-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fwise-quotes-about-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwise-quotes-about-life%2F)
 
 [More](#)
 

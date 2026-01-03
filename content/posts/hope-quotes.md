@@ -79,15 +79,15 @@ Finding hope can be a powerful way to move forward, especially during uncertain 
 *   “Hope sees the potential of tomorrow despite the trials of today.” — Unknown
 *   “It is because of hope that you suffer. It is through hope that you’ll change things.” — Maxime Lagacé
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhope-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhope-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/hope-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhope-quotes-PIN.jpg&description=Discover+a+collection+of+60+hope+quotes+that+will+uplift+your+spirit+and+inspire+you+to+look+toward+a+brighter+tomorrow+with+renewed+optimism.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/hope-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhope-quotes-PIN.jpg&description=Discover+a+collection+of+60+hope+quotes+that+will+uplift+your+spirit+and+inspire+you+to+look+toward+a+brighter+tomorrow+with+renewed+optimism.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Hope+Quotes+For+A+Brighter+Tomorrow&url=https%3A%2F%2Fseffsaid.com%2Fhope-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Hope+Quotes+For+A+Brighter+Tomorrow&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhope-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhope-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhope-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhope-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhope-quotes%2F)
 
 [More](#)
 

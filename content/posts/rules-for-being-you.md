@@ -66,15 +66,15 @@ Recognize and celebrate your achievements, no matter how small they may seem. Th
 
 By following these rules, you can [live a more fulfilling and authentic life](/live-life-to-the-fullest). Being yourself is about understanding who you are and making choices that reflect your true self. These rules are not about perfection but about making progress and finding contentment in who you are today.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Frules-for-being-you%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Frules-for-being-you%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/rules-for-being-you/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FRules-for-Being-YOU-PIN.jpg&description=Discover+12+practical+steps+you+can+take+to+stay+grounded%2C+authentic+and+be+yourself+every+day.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/rules-for-being-you/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FRules-for-Being-YOU-PIN.jpg&description=Discover+12+practical+steps+you+can+take+to+stay+grounded%2C+authentic+and+be+yourself+every+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=12+Rules+for+Being+YOU&url=https%3A%2F%2Fseffsaid.com%2Frules-for-being-you%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=12+Rules+for+Being+YOU&url=https%3A%2F%2Fselfsaid.30tools.com%2Frules-for-being-you%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Frules-for-being-you%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Frules-for-being-you%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Frules-for-being-you%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Frules-for-being-you%2F)
 
 [More](#)
 

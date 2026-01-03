@@ -82,15 +82,15 @@ Decluttering is not about creating a perfect home. It is about creating breathin
 
 You do not need to do it all at once. Start small, and let progress build over time. Even the smallest changes make a difference.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F14-ways-to-declutter-your-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F14-ways-to-declutter-your-life%2F)
 
-[Pin22](https://pinterest.com/pin/create/button/?url=/14-ways-to-declutter-your-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F06%2Fhow-to-declutter-your-life-1.jpg&description=Feeling+overwhelmed+by+clutter%3F+Discover+14+simple+ways+to+declutter+your+life%2C+clear+space+in+your+home+and+mind%2C+and+create+more+calm+each+day.+via+%40SeffSaid)
+[Pin22](https://pinterest.com/pin/create/button/?url=/14-ways-to-declutter-your-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F06%2Fhow-to-declutter-your-life-1.jpg&description=Feeling+overwhelmed+by+clutter%3F+Discover+14+simple+ways+to+declutter+your+life%2C+clear+space+in+your+home+and+mind%2C+and+create+more+calm+each+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=14+Ways+To+Declutter+Your+Life&url=https%3A%2F%2Fseffsaid.com%2F14-ways-to-declutter-your-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=14+Ways+To+Declutter+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2F14-ways-to-declutter-your-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F14-ways-to-declutter-your-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F14-ways-to-declutter-your-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F14-ways-to-declutter-your-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F14-ways-to-declutter-your-life%2F)
 
 [More](#)
 

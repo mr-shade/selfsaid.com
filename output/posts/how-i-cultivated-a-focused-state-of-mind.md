@@ -54,15 +54,15 @@ Hobbies are a wonderful way to effortlessly get ‘into the flow’. They have t
 
 Whether we call it flow or mindfulness, whether we reach this focused state of mind through intent or through the intense focus we bring to activities we love, the benefits of this state of mind are undoubtable. We breathe better and deeper, we relax, we forget our worries and we find a new appreciation of things that can otherwise become laborious chores. Just trying one or two simple techniques can lift your day-to-day routine out of the ordinary and into a beautiful relaxing experience. Thanks for reading!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-i-cultivated-a-focused-state-of-mind%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cultivated-a-focused-state-of-mind%2F)
 
 Pin18
 
-[Tweet](https://twitter.com/intent/tweet?text=Click+through+to+discover+how+I+have+attained+a+focused+state+of+mind+using+just+a+few+simple+mindful+meditation+techniques.&url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cultivated-a-focused-state-of-mind%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Click+through+to+discover+how+I+have+attained+a+focused+state+of+mind+using+just+a+few+simple+mindful+meditation+techniques.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cultivated-a-focused-state-of-mind%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cultivated-a-focused-state-of-mind%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cultivated-a-focused-state-of-mind%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cultivated-a-focused-state-of-mind%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cultivated-a-focused-state-of-mind%2F)
 
 [More](#)
 

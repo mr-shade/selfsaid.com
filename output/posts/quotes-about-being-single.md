@@ -200,15 +200,15 @@ Being single is a time rich with potential, a time where you can discover the jo
 184.  “Singlehood is a personal journey of discovery beyond societal norms.” – Unknown
 185.  “Embracing singlehood is embracing a world of possibilities and self-growth.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-being-single%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-being-single%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/quotes-about-being-single/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-about-being-single-PIN.jpg&description=185+inspirational+quotes+about+being+single%2C+a+collection+that+celebrates+the+strength+and+freedom+of+embracing+life+on+your+own+terms.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/quotes-about-being-single/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-about-being-single-PIN.jpg&description=185+inspirational+quotes+about+being+single%2C+a+collection+that+celebrates+the+strength+and+freedom+of+embracing+life+on+your+own+terms.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=185+Quotes+About+Being+Single&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-being-single%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=185+Quotes+About+Being+Single&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-being-single%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-being-single%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-being-single%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-being-single%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-being-single%2F)
 
 [More](#)
 

@@ -112,15 +112,15 @@ While developing a winning mindset can undoubtedly lead to career success and ac
 
 Remember that developing a winning mindset is a journey, not a destination. It requires ongoing effort, self-reflection, and a commitment to growth. Along the way, you’ll encounter challenges and setbacks, but these are opportunities for learning and [personal development](/12-personal-development-tips). Embrace them with optimism and persistence, and you’ll discover the [incredible potential](/simple-steps-for-maximizing-your-potential-every-day) that lies within you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-develop-a-winning-mindset%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-develop-a-winning-mindset%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/how-to-develop-a-winning-mindset/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FHow-To-Develop-A-Winning-Mindset-PIN.jpg&description=Learn+how+to+develop+a+winning+mindset+that+will+not+only+help+you+reach+your+goals+but+also+transform+your+entire+approach+to+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/how-to-develop-a-winning-mindset/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FHow-To-Develop-A-Winning-Mindset-PIN.jpg&description=Learn+how+to+develop+a+winning+mindset+that+will+not+only+help+you+reach+your+goals+but+also+transform+your+entire+approach+to+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Develop+A+Winning+Mindset&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-develop-a-winning-mindset%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Develop+A+Winning+Mindset&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-develop-a-winning-mindset%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-develop-a-winning-mindset%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-develop-a-winning-mindset%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-develop-a-winning-mindset%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-develop-a-winning-mindset%2F)
 
 [More](#)
 

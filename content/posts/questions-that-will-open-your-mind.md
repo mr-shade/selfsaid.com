@@ -58,15 +58,15 @@ By identifying activities, people, or experiences that bring true happiness, you
 
 These questions are not designed for quick answers. Each one invites thoughtful contemplation, allowing you to explore new perspectives. Asking yourself meaningful questions can lead to clarity, stronger relationships, and a deeper understanding of your priorities. Keep these questions in mind as tools to challenge yourself and grow.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquestions-that-will-open-your-mind%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-that-will-open-your-mind%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/questions-that-will-open-your-mind/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FQuestions-Open-Mind-PIN.jpg&description=Open+your+mind+to+new+possibilities+with+10+questions+that+inspire+growth+and+clarity.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/questions-that-will-open-your-mind/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FQuestions-Open-Mind-PIN.jpg&description=Open+your+mind+to+new+possibilities+with+10+questions+that+inspire+growth+and+clarity.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+That+Will+Open+Your+Mind&url=https%3A%2F%2Fseffsaid.com%2Fquestions-that-will-open-your-mind%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+That+Will+Open+Your+Mind&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-that-will-open-your-mind%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquestions-that-will-open-your-mind%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-that-will-open-your-mind%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquestions-that-will-open-your-mind%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-that-will-open-your-mind%2F)
 
 [More](#)
 

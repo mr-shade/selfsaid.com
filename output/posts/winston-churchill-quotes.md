@@ -109,15 +109,15 @@ This collection of 89 Winston Churchill quotes brings together a mix of his most
 89.  “Attitude is a little thing that makes a big difference.” – Winston Churchill
 90.  “Difficulties mastered are opportunities won.” – Winston Churchill
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fwinston-churchill-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fwinston-churchill-quotes%2F)
 
-[Pin317](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/winston-churchill-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fwinston-churchill-quotes-PINTEREST.jpg&description=Discover+the+wisdom%2C+resilience%2C+and+wit+of+a+legendary+leader+with+this+collection+of+Winston+Churchill%27s+90+most+memorable+quotes.+via+%40SeffSaid)
+[Pin317](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/winston-churchill-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fwinston-churchill-quotes-PINTEREST.jpg&description=Discover+the+wisdom%2C+resilience%2C+and+wit+of+a+legendary+leader+with+this+collection+of+Winston+Churchill%27s+90+most+memorable+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Winston+Churchill%27s+90+Most+Memorable+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fwinston-churchill-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Winston+Churchill%27s+90+Most+Memorable+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fwinston-churchill-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fwinston-churchill-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwinston-churchill-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fwinston-churchill-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwinston-churchill-quotes%2F)
 
 [More](#)
 

@@ -62,15 +62,15 @@ Growth is ongoing, and it doesn’t stop as you get older. Keep pushing yourself
 
 [Living life well](https://seffsaid.com/how-to-live-your-best-life/) is about balance. It’s about making the most of your experiences, treating yourself and others with kindness, and staying connected to what truly matters. There’s no perfect way to live, but by focusing on these core principles, you can lead a life that feels fulfilling, meaningful, and true to yourself.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-life%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/how-to-live-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhow-to-live-life-PIN.jpg&description=This+guide+provides+simple%2C+practical+advice+on+how+to+create+a+more+fulfilling+and+purposeful+life.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/how-to-live-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhow-to-live-life-PIN.jpg&description=This+guide+provides+simple%2C+practical+advice+on+how+to+create+a+more+fulfilling+and+purposeful+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Live+Life&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Live+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-life%2F)
 
 [More](#)
 

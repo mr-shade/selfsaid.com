@@ -102,15 +102,15 @@ Each suggestion offers a way to tweak your daily routine, making it more efficie
 
 Start with one or two changes and see how they impact your life. You might be surprised at how much more you can do and enjoy with just a little time management.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsave-30-minutes-a-day%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsave-30-minutes-a-day%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/save-30-minutes-a-day/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F20-ways-to-save-30-minutes-a-day-PIN.jpg&description=Get+More+Out+of+Your+Day%21+Our+20+tips+will+help+you+save+30+minutes+a+day+so+you+can+relax+more%2C+stress+less%2C+and+enjoy+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/save-30-minutes-a-day/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F20-ways-to-save-30-minutes-a-day-PIN.jpg&description=Get+More+Out+of+Your+Day%21+Our+20+tips+will+help+you+save+30+minutes+a+day+so+you+can+relax+more%2C+stress+less%2C+and+enjoy+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=20+Ways+to+Save+30+Minutes+a+Day&url=https%3A%2F%2Fseffsaid.com%2Fsave-30-minutes-a-day%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=20+Ways+to+Save+30+Minutes+a+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsave-30-minutes-a-day%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsave-30-minutes-a-day%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsave-30-minutes-a-day%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsave-30-minutes-a-day%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsave-30-minutes-a-day%2F)
 
 [More](#)
 

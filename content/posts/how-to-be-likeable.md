@@ -68,15 +68,15 @@ Being likeable isn’t about performance. It’s about presence. It’s about tr
 
 You don’t need to force conversation or smooth over silences. You don’t need to shape yourself to match what others expect. You’re already enough as you are. And when you show up with honesty, care, and self-respect, that’s when real connection begins.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-likeable%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-likeable%2F)
 
 Pin110
 
-[Tweet](https://twitter.com/intent/tweet?text=How+to+Feel+More+at+Ease+and+Connected+with+Others&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-likeable%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+to+Feel+More+at+Ease+and+Connected+with+Others&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-likeable%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-likeable%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-likeable%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-likeable%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-likeable%2F)
 
 [More](#)
 

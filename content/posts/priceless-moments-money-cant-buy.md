@@ -58,15 +58,15 @@ Life is full of experiences that can’t be measured by the size of your bank ac
 
 These moments remind us that the best things in life are often the simplest and most ordinary. They can’t be bought or owned, but they can be cherished and remembered for a lifetime.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fpriceless-moments-money-cant-buy%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fpriceless-moments-money-cant-buy%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/priceless-moments-money-cant-buy/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fpriceless-moments-PIN.jpg&description=Discover+20+priceless+moments+that+no+amount+of+money+can+ever+purchase+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/priceless-moments-money-cant-buy/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fpriceless-moments-PIN.jpg&description=Discover+20+priceless+moments+that+no+amount+of+money+can+ever+purchase+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=20+Priceless+Moments+Money+Can%E2%80%99t+Buy&url=https%3A%2F%2Fseffsaid.com%2Fpriceless-moments-money-cant-buy%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=20+Priceless+Moments+Money+Can%E2%80%99t+Buy&url=https%3A%2F%2Fselfsaid.30tools.com%2Fpriceless-moments-money-cant-buy%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fpriceless-moments-money-cant-buy%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpriceless-moments-money-cant-buy%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fpriceless-moments-money-cant-buy%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpriceless-moments-money-cant-buy%2F)
 
 [More](#)
 

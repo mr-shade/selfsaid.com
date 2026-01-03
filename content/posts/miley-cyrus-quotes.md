@@ -49,15 +49,15 @@ A collection of Miley Cyrus’s best quotes on life, success, and personal growt
 
 Read more [quotes by famous artists](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmiley-cyrus-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmiley-cyrus-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/miley-cyrus-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMiley-Cyrus-Quotes-PIN.jpg&description=A+collection+of+Miley+Cyrus%27s+best+quotes+on+life%2C+success%2C+and+personal+growth.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/miley-cyrus-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMiley-Cyrus-Quotes-PIN.jpg&description=A+collection+of+Miley+Cyrus%27s+best+quotes+on+life%2C+success%2C+and+personal+growth.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Miley+Cyrus%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fmiley-cyrus-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Miley+Cyrus%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmiley-cyrus-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmiley-cyrus-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmiley-cyrus-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmiley-cyrus-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmiley-cyrus-quotes%2F)
 
 [More](#)
 

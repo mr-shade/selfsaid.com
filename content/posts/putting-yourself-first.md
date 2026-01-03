@@ -96,15 +96,15 @@ This collection is divided into six calm and steady sections. Each one offers a 
 59.  “You don’t need to sacrifice your peace to be a good person.” – Seff Bray
 60.  “Put yourself first. Not always, but often enough to stay whole.” – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fputting-yourself-first%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fputting-yourself-first%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/putting-yourself-first/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fputting-yourself-first-PIN.jpg&description=Struggling+to+put+yourself+first+without+feeling+guilty%3F+This+collection+of+60+quotes+offers+calm%2C+steady+reminders+that+your+needs+matter+too.+Divided+into+six+thoughtful+sections%2C+these+quotes+help+reframe+self-care+as+strength%2C+not+selfishness.+Save+this+post+to+remind+yourself+that+taking+care+of+your+own+well-being+is+part+of+living+a+grounded%2C+intentional+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/putting-yourself-first/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fputting-yourself-first-PIN.jpg&description=Struggling+to+put+yourself+first+without+feeling+guilty%3F+This+collection+of+60+quotes+offers+calm%2C+steady+reminders+that+your+needs+matter+too.+Divided+into+six+thoughtful+sections%2C+these+quotes+help+reframe+self-care+as+strength%2C+not+selfishness.+Save+this+post+to+remind+yourself+that+taking+care+of+your+own+well-being+is+part+of+living+a+grounded%2C+intentional+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Quotes+About+Putting+Yourself+First+Without+Guilt&url=https%3A%2F%2Fseffsaid.com%2Fputting-yourself-first%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Quotes+About+Putting+Yourself+First+Without+Guilt&url=https%3A%2F%2Fselfsaid.30tools.com%2Fputting-yourself-first%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fputting-yourself-first%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fputting-yourself-first%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fputting-yourself-first%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fputting-yourself-first%2F)
 
 [More](#)
 

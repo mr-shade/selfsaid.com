@@ -118,15 +118,15 @@ Discover 50 [powerful quotes](/keanu-reeves-quotes) that will lift your spirits 
 
 “Everything will be okay as long as you keep fighting.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Feverything-will-be-ok-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Feverything-will-be-ok-quotes%2F)
 
-[Pin15](https://pinterest.com/pin/create/button/?url=/everything-will-be-ok-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Feverything-will-be-ok-quotes-PIN.jpg&description=Discover+50+powerful+quotes+that+will+lift+your+spirits+and+remind+you+that+no+matter+the+situation%2C+everything+will+be+ok.+via+%40SeffSaid)
+[Pin15](https://pinterest.com/pin/create/button/?url=/everything-will-be-ok-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Feverything-will-be-ok-quotes-PIN.jpg&description=Discover+50+powerful+quotes+that+will+lift+your+spirits+and+remind+you+that+no+matter+the+situation%2C+everything+will+be+ok.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Everything+Will+Be+OK+Quotes&url=https%3A%2F%2Fseffsaid.com%2Feverything-will-be-ok-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Everything+Will+Be+OK+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Feverything-will-be-ok-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Feverything-will-be-ok-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Feverything-will-be-ok-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Feverything-will-be-ok-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Feverything-will-be-ok-quotes%2F)
 
 [More](#)
 

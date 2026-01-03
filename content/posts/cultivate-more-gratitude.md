@@ -58,15 +58,15 @@ Practicing gratitude regularly can shift the way life is experienced. Keeping a 
 
 It is important to pause and recognize the moments, people, and experiences that bring comfort and happiness. By making gratitude a consistent practice, it becomes easier to recognize the good that exists all around. Over time, this simple yet powerful approach can lead to a greater sense of fulfillment and inner peace.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcultivate-more-gratitude%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcultivate-more-gratitude%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/cultivate-more-gratitude/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FCultivate-More-Gratitude-PIN.jpg&description=Want+to+feel+more+thankful%3F+Start+with+these+ten+powerful+questions.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/cultivate-more-gratitude/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FCultivate-More-Gratitude-PIN.jpg&description=Want+to+feel+more+thankful%3F+Start+with+these+ten+powerful+questions.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Help+You+Cultivate+More+Gratitude&url=https%3A%2F%2Fseffsaid.com%2Fcultivate-more-gratitude%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Help+You+Cultivate+More+Gratitude&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcultivate-more-gratitude%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcultivate-more-gratitude%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcultivate-more-gratitude%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcultivate-more-gratitude%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcultivate-more-gratitude%2F)
 
 [More](#)
 

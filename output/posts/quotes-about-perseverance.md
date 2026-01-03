@@ -150,15 +150,15 @@ Welcome to this collection of 135 quotes about perseverance and never giving up.
 134.  “The road to perseverance lies by doubt.” – Francis Quarles
 135.  “Success seems to be largely a matter of hanging on after others have let go.” – William Feather
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-perseverance%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-perseverance%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/quotes-about-perseverance/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-about-perseverance-PIN.jpg&description=Discover+the+power+of+resilience+in+these+135+quotes+about+perseverance+that+will+encourage+you+to+keep+pushing+forward+and+never+give+up.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/quotes-about-perseverance/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-about-perseverance-PIN.jpg&description=Discover+the+power+of+resilience+in+these+135+quotes+about+perseverance+that+will+encourage+you+to+keep+pushing+forward+and+never+give+up.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=135+Quotes+About+Perseverance+and+Never+Giving+Up&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-perseverance%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=135+Quotes+About+Perseverance+and+Never+Giving+Up&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-perseverance%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-perseverance%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-perseverance%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-perseverance%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-perseverance%2F)
 
 [More](#)
 

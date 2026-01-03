@@ -118,15 +118,15 @@ In the end, we will remember not the words of our enemies, but the silence of ou
 
 “We don’t see things as they are, we see them as we are.” — Anaïs Nin
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-that-hit-hard%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-hit-hard%2F)
 
-[Pin43](https://pinterest.com/pin/create/button/?url=/quotes-that-hit-hard/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-that-hit-hard-PIN.jpg&description=50+quotes+that+hit+hard+that+challenge+your+perspective+and+make+you+think+deeply+about+life%2C+love%2C+and+resilience.+via+%40SeffSaid)
+[Pin43](https://pinterest.com/pin/create/button/?url=/quotes-that-hit-hard/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-that-hit-hard-PIN.jpg&description=50+quotes+that+hit+hard+that+challenge+your+perspective+and+make+you+think+deeply+about+life%2C+love%2C+and+resilience.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+That+Hit+Hard&url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-hit-hard%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+That+Hit+Hard&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-hit-hard%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-hit-hard%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-hit-hard%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-hit-hard%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-hit-hard%2F)
 
 [More](#)
 

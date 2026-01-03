@@ -66,15 +66,15 @@ If you’re curious about what drives one of the most influential tech leaders o
 49.  “Your mind is like a parachute, it doesn’t work if it is not open.” – Elon Musk
 50.  “I think there should be regulations on social media to the degree that it negatively affects the public good.” – Elon Musk
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Felon-musk-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Felon-musk-quotes%2F)
 
-[Pin159](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/elon-musk-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FElon-Musk-Quotes-PIN.jpg&description=Explore+the+mind+behind+SpaceX+and+Tesla+with+this+collection+of+Elon+Musk%27s+50+best+quotes.+via+%40SeffSaid)
+[Pin159](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/elon-musk-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FElon-Musk-Quotes-PIN.jpg&description=Explore+the+mind+behind+SpaceX+and+Tesla+with+this+collection+of+Elon+Musk%27s+50+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Elon+Musk%27s+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Felon-musk-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Elon+Musk%27s+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Felon-musk-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Felon-musk-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Felon-musk-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Felon-musk-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Felon-musk-quotes%2F)
 
 [More](#)
 

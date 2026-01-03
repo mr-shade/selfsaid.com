@@ -67,15 +67,15 @@ Amy Winehouse left a lasting mark on the music world, not just with her songs bu
 49.  “I don’t want to say it, but I’m a natural born guitarist.” – Amy Winehouse
 50.  “There is no point in saying anything but the truth.” – Amy Winehouse
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Famy-winehouse-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Famy-winehouse-quotes%2F)
 
-[Pin16](https://pinterest.com/pin/create/button/?url=/amy-winehouse-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FAmy-Winehouse-Quotes-PIN.jpg&description=Discover+the+wisdom+of+Amy+Winehouse+through+this+collection+of+her+50+best+quotes.+via+%40SeffSaid)
+[Pin16](https://pinterest.com/pin/create/button/?url=/amy-winehouse-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FAmy-Winehouse-Quotes-PIN.jpg&description=Discover+the+wisdom+of+Amy+Winehouse+through+this+collection+of+her+50+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Amy+Winehouse%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Famy-winehouse-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Amy+Winehouse%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Famy-winehouse-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Famy-winehouse-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Famy-winehouse-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Famy-winehouse-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Famy-winehouse-quotes%2F)
 
 [More](#)
 

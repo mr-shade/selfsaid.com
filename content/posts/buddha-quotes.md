@@ -112,15 +112,15 @@ The [mind is everything](/train-your-mind-to-see-the-good-in-everything). What y
 
 Take what resonates. Leave the rest. And let these quiet reminders offer you space, clarity, and a moment to come back to yourself, whenever you need it.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbuddha-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbuddha-quotes%2F)
 
-[Pin60](https://pinterest.com/pin/create/button/?url=/buddha-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fbuddha-quotes-PIN2.jpg&description=Peaceful+Buddha+quotes+that+feel+like+a+deep+breath.+Thoughtful+reminders+for+self-trust%2C+letting+go%2C+and+finding+stillness+in+everyday+life.+via+%40SeffSaid)
+[Pin60](https://pinterest.com/pin/create/button/?url=/buddha-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fbuddha-quotes-PIN2.jpg&description=Peaceful+Buddha+quotes+that+feel+like+a+deep+breath.+Thoughtful+reminders+for+self-trust%2C+letting+go%2C+and+finding+stillness+in+everyday+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Buddha+Quotes+That+Feel+Like+Self-Care&url=https%3A%2F%2Fseffsaid.com%2Fbuddha-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Buddha+Quotes+That+Feel+Like+Self-Care&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuddha-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbuddha-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuddha-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbuddha-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuddha-quotes%2F)
 
 [More](#)
 

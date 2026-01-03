@@ -167,15 +167,15 @@ Taking care of yourself is important, and these 150 quotes on self-care offer th
 149.  “Rest isn’t a reward; it’s a right.” – Unknown
 150.  “Take care of yourself so you can take care of what you love.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-on-self-care%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-on-self-care%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/quotes-on-self-care/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FQuotes-On-Self-Care-PIN.jpg&description=150+quotes+on+self-care+that+offer+the+wisdom+and+encouragement+to+help+you+prioritize+your+well-being.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/quotes-on-self-care/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FQuotes-On-Self-Care-PIN.jpg&description=150+quotes+on+self-care+that+offer+the+wisdom+and+encouragement+to+help+you+prioritize+your+well-being.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=150+Quotes+On+Self-Care&url=https%3A%2F%2Fseffsaid.com%2Fquotes-on-self-care%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=150+Quotes+On+Self-Care&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-on-self-care%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-on-self-care%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-on-self-care%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-on-self-care%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-on-self-care%2F)
 
 [More](#)
 

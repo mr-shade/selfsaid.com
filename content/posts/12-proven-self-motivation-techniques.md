@@ -82,15 +82,15 @@ The [benefits of reading](/8-benefits-of-reading-books) are immense. Reading upl
 
 This is a great way to get motivated. Before you start a dreaded task, decide on the reward you’ll receive when you’ve finished! If it’s a small job, maybe sitting down with a cup of coffee and a biscuit (chocolate biscuit of course!) is enough motivation. For a larger job, maybe buy yourself something, take yourself out for lunch or visit the cinema.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F12-proven-self-motivation-techniques%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F12-proven-self-motivation-techniques%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/12-proven-self-motivation-techniques/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2018%2F06%2F12-Proven-Self-Motivation-Techniques.jpg&description=12+proven+self-motivation+techniques+that+will+push+your+motivation+levels+through+the+roof%21+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/12-proven-self-motivation-techniques/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2018%2F06%2F12-Proven-Self-Motivation-Techniques.jpg&description=12+proven+self-motivation+techniques+that+will+push+your+motivation+levels+through+the+roof%21+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=12+proven+self+motivation+techniques+that+are+guaranteed+to+push+your+motivation+levels+through+the+roof%21&url=https%3A%2F%2Fseffsaid.com%2F12-proven-self-motivation-techniques%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=12+proven+self+motivation+techniques+that+are+guaranteed+to+push+your+motivation+levels+through+the+roof%21&url=https%3A%2F%2Fselfsaid.30tools.com%2F12-proven-self-motivation-techniques%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F12-proven-self-motivation-techniques%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F12-proven-self-motivation-techniques%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F12-proven-self-motivation-techniques%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F12-proven-self-motivation-techniques%2F)
 
 [More](#)
 

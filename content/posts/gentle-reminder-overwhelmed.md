@@ -58,15 +58,15 @@ With care,
 
 Seff
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fgentle-reminder-overwhelmed%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgentle-reminder-overwhelmed%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/gentle-reminder-overwhelmed/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fgentle-reminder-overwhelmed-PIN.jpg&description=Feeling+overwhelmed+and+emotionally+drained%3F+This+article+from+Seff+Bray+at+Everyday+Self-Care+offers+soft%2C+grounding+reminders+to+help+you+slow+down%2C+breathe+deeply%2C+and+care+for+yourself+in+quiet%2C+sustainable+ways.+It%E2%80%99s+a+calming%2C+minimalist+approach+to+emotional+self-care+and+slow+living+-+perfect+for+anyone+who+feels+overstretched+or+anxious.+Save+this+for+the+days+when+you+need+a+kind+word+and+a+reason+to+pause.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/gentle-reminder-overwhelmed/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fgentle-reminder-overwhelmed-PIN.jpg&description=Feeling+overwhelmed+and+emotionally+drained%3F+This+article+from+Seff+Bray+at+Everyday+Self-Care+offers+soft%2C+grounding+reminders+to+help+you+slow+down%2C+breathe+deeply%2C+and+care+for+yourself+in+quiet%2C+sustainable+ways.+It%E2%80%99s+a+calming%2C+minimalist+approach+to+emotional+self-care+and+slow+living+-+perfect+for+anyone+who+feels+overstretched+or+anxious.+Save+this+for+the+days+when+you+need+a+kind+word+and+a+reason+to+pause.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=A+Gentle+Reminder+for+When+You%E2%80%99re+Overwhelmed&url=https%3A%2F%2Fseffsaid.com%2Fgentle-reminder-overwhelmed%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=A+Gentle+Reminder+for+When+You%E2%80%99re+Overwhelmed&url=https%3A%2F%2Fselfsaid.30tools.com%2Fgentle-reminder-overwhelmed%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fgentle-reminder-overwhelmed%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgentle-reminder-overwhelmed%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fgentle-reminder-overwhelmed%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgentle-reminder-overwhelmed%2F)
 
 [More](#)
 

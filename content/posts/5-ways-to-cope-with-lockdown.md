@@ -36,15 +36,15 @@ Some of us have more time during lockdown or self-isolation and this can be a gi
 
 No one is saying that these are easy times. Family and health concerns and financial worries loom for most people, but a few small techniques and ideas can help you cope better from day to day. Stay safe and [stay strong](/how-to-stay-strong)!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F5-ways-to-cope-with-lockdown%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F5-ways-to-cope-with-lockdown%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2F5-ways-to-cope-with-lockdown%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-ways-to-cope-with-lockdown%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=Here+are+a+few+ways+to+help+you+cope+with+lockdown%2C+this+enforced+me-time%2C+and+some+ideas+on+how+to+make+the+most+of+it%2C+perhaps+even+enjoy+it.&url=https%3A%2F%2Fseffsaid.com%2F5-ways-to-cope-with-lockdown%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Here+are+a+few+ways+to+help+you+cope+with+lockdown%2C+this+enforced+me-time%2C+and+some+ideas+on+how+to+make+the+most+of+it%2C+perhaps+even+enjoy+it.&url=https%3A%2F%2Fselfsaid.30tools.com%2F5-ways-to-cope-with-lockdown%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F5-ways-to-cope-with-lockdown%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-ways-to-cope-with-lockdown%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F5-ways-to-cope-with-lockdown%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-ways-to-cope-with-lockdown%2F)
 
 [More](#)
 

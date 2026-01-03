@@ -69,15 +69,15 @@ original_url: 'https://selfsaid.pages.dev/dolly-parton-quotes/'
 
 Enjoyed this page? Discover more [quotes by famous people](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdolly-parton-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdolly-parton-quotes%2F)
 
-[Pin114](https://pinterest.com/pin/create/button/?url=/dolly-parton-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FDolly-Parton-Quotes-PIN.jpg&description=Discover+the+wit+and+wisdom+of+Dolly+Parton+in+this+collection+of+her+50+best+quotes.+via+%40SeffSaid)
+[Pin114](https://pinterest.com/pin/create/button/?url=/dolly-parton-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FDolly-Parton-Quotes-PIN.jpg&description=Discover+the+wit+and+wisdom+of+Dolly+Parton+in+this+collection+of+her+50+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Dolly+Parton%27s+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fdolly-parton-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Dolly+Parton%27s+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdolly-parton-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdolly-parton-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdolly-parton-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdolly-parton-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdolly-parton-quotes%2F)
 
 [More](#)
 

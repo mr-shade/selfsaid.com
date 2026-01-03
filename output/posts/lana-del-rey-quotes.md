@@ -67,15 +67,15 @@ Lana Del Rey’s quotes offer a glimpse into her unique perspective on life and 
 
 Read more [quotes by famous singers](https://seffsaid.com/quotes-by-famous-people/) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flana-del-rey-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flana-del-rey-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/lana-del-rey-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FLana-Del-Rey-quotes-PIN.jpg&description=Explore+the+poetic+brilliance+and+heartfelt+reflections+of+Lana+Del+Rey+with+this+collection+of+her+most+iconic+quotes.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/lana-del-rey-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FLana-Del-Rey-quotes-PIN.jpg&description=Explore+the+poetic+brilliance+and+heartfelt+reflections+of+Lana+Del+Rey+with+this+collection+of+her+most+iconic+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Lana+Del+Rey%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Flana-del-rey-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Lana+Del+Rey%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Flana-del-rey-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flana-del-rey-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flana-del-rey-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flana-del-rey-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flana-del-rey-quotes%2F)
 
 [More](#)
 

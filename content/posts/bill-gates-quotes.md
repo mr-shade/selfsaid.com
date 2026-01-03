@@ -67,15 +67,15 @@ This collection of Bill Gates’s best quotes offers a glimpse into the mind of 
 49.  “The future of advertising is the Internet.” – Bill Gates
 50.  “The vision is really about empowering workers, giving them all the information about what’s going on so they can do a lot more than they’ve done in the past.” – Bill Gates
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbill-gates-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbill-gates-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/bill-gates-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBill-Gates-Quotes-PIN.jpg&description=Bill+Gates%E2%80%99s+50+best+quotes+that+offer+a+glimpse+into+the+mind+of+one+of+the+world%E2%80%99s+most+successful+entrepreneurs+and+philanthropists.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/bill-gates-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBill-Gates-Quotes-PIN.jpg&description=Bill+Gates%E2%80%99s+50+best+quotes+that+offer+a+glimpse+into+the+mind+of+one+of+the+world%E2%80%99s+most+successful+entrepreneurs+and+philanthropists.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Bill+Gates%27s+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fbill-gates-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Bill+Gates%27s+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbill-gates-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbill-gates-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbill-gates-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbill-gates-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbill-gates-quotes%2F)
 
 [More](#)
 

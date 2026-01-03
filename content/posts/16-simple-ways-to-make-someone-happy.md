@@ -84,15 +84,15 @@ Many people go through life wondering if they make any difference. Remind them t
 
 Making someone happy doesn’t require effort or planning. It begins with attention. When you notice others, listen with care, and offer small kindnesses, you help create a world that feels a little more human. And as you lift others, you’ll often find your own day feels lighter too.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F16-simple-ways-to-make-someone-happy%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F16-simple-ways-to-make-someone-happy%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/16-simple-ways-to-make-someone-happy/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2017%2F11%2FHow-To-Make-Someone-Happy.gif&description=Want+to+make+someone%E2%80%99s+day+a+little+brighter%3F+Try+these+sixteen+simple+ways+to+bring+more+happiness%2C+kindness%2C+and+connection+into+everyday+life.+Small+acts+can+make+a+big+difference.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/16-simple-ways-to-make-someone-happy/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2017%2F11%2FHow-To-Make-Someone-Happy.gif&description=Want+to+make+someone%E2%80%99s+day+a+little+brighter%3F+Try+these+sixteen+simple+ways+to+bring+more+happiness%2C+kindness%2C+and+connection+into+everyday+life.+Small+acts+can+make+a+big+difference.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=16+Simple+Ways+To+Make+Someone+Happy&url=https%3A%2F%2Fseffsaid.com%2F16-simple-ways-to-make-someone-happy%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=16+Simple+Ways+To+Make+Someone+Happy&url=https%3A%2F%2Fselfsaid.30tools.com%2F16-simple-ways-to-make-someone-happy%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F16-simple-ways-to-make-someone-happy%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F16-simple-ways-to-make-someone-happy%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F16-simple-ways-to-make-someone-happy%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F16-simple-ways-to-make-someone-happy%2F)
 
 [More](#)
 

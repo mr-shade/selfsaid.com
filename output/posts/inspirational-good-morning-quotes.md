@@ -183,15 +183,15 @@ If you find these quotes uplifting, don’t miss out on our collection of 218 [h
 163.  “Today is a beautiful day and I will attract good things into my life.” – Unknown
 164.  “Wake up every morning with the thought that something wonderful is about to happen.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Finspirational-good-morning-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-good-morning-quotes%2F)
 
 Pin57
 
-[Tweet](https://twitter.com/intent/tweet?text=Start+your+mornings+with+inspiration%21+Explore+our+164+Good+Morning+Quotes+to+kickstart+a+day+filled+with+positivity.&url=https%3A%2F%2Fseffsaid.com%2Finspirational-good-morning-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Start+your+mornings+with+inspiration%21+Explore+our+164+Good+Morning+Quotes+to+kickstart+a+day+filled+with+positivity.&url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-good-morning-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Finspirational-good-morning-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-good-morning-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Finspirational-good-morning-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-good-morning-quotes%2F)
 
 [More](#)
 

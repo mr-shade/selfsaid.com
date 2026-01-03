@@ -105,15 +105,15 @@ You don’t need to have a five-year plan. You don’t need to hit every milesto
 
 I stopped chasing goals. And what I found was a quieter kind of progress. One that doesn’t demand proof. Just presence.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstop-chasing-goals%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-chasing-goals%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/stop-chasing-goals/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fstop-chasing-goals-PIN.jpg&description=Always+chasing+goals+but+still+feeling+overwhelmed%3F+This+article+explores+what+happened+when+I+stopped+focusing+on+outcomes+and+started+living+with+intention+instead.+A+must-read+for+anyone+craving+slower+living%2C+emotional+clarity%2C+and+more+peace+in+their+everyday+routine.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/stop-chasing-goals/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fstop-chasing-goals-PIN.jpg&description=Always+chasing+goals+but+still+feeling+overwhelmed%3F+This+article+explores+what+happened+when+I+stopped+focusing+on+outcomes+and+started+living+with+intention+instead.+A+must-read+for+anyone+craving+slower+living%2C+emotional+clarity%2C+and+more+peace+in+their+everyday+routine.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=I+Stopped+Chasing+Goals+and+Found+Something+Better&url=https%3A%2F%2Fseffsaid.com%2Fstop-chasing-goals%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=I+Stopped+Chasing+Goals+and+Found+Something+Better&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-chasing-goals%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstop-chasing-goals%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-chasing-goals%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstop-chasing-goals%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-chasing-goals%2F)
 
 [More](#)
 

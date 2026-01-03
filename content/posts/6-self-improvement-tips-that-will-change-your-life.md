@@ -56,15 +56,15 @@ Reading self-help, personal development, inspirational, motivational and self-im
 
 Studies have shown that people who visit SEFFSAID every day achieve more and live happier and more fulfilled lives than those who don’t. Alright, I admit I made that up, but don’t forget to bookmark and come back again to read my latest self-help articles. Even better, join my mailing list and I’ll send you an email once a week with links to my latest articles.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F6-self-improvement-tips-that-will-change-your-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F6-self-improvement-tips-that-will-change-your-life%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/6-self-improvement-tips-that-will-change-your-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2017%2F04%2F22-jpg85.jpg&description=6+simple+yet+powerful+self-improvement+tips+that+will+change+your+life+for+the+better.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/6-self-improvement-tips-that-will-change-your-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2017%2F04%2F22-jpg85.jpg&description=6+simple+yet+powerful+self-improvement+tips+that+will+change+your+life+for+the+better.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=6+Self-Improvement+Tips+That+Will+Change+Your+Life&url=https%3A%2F%2Fseffsaid.com%2F6-self-improvement-tips-that-will-change-your-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=6+Self-Improvement+Tips+That+Will+Change+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2F6-self-improvement-tips-that-will-change-your-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F6-self-improvement-tips-that-will-change-your-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F6-self-improvement-tips-that-will-change-your-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F6-self-improvement-tips-that-will-change-your-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F6-self-improvement-tips-that-will-change-your-life%2F)
 
 [More](#)
 

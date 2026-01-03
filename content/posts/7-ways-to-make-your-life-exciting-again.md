@@ -99,15 +99,15 @@ Bringing excitement back into your life is all about taking small steps and bein
 
 Remember, the goal isn’t to overhaul your life overnight but to introduce changes that reignite your passion and curiosity. So, start with one or two ideas from this list that resonate with you and see where they lead. Life is full of surprises and opportunities for growth and happiness. By staying curious and open-minded, you’ll find countless ways to make each day more exciting and fulfilling.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F7-ways-to-make-your-life-exciting-again%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F7-ways-to-make-your-life-exciting-again%2F)
 
 Pin3.45K
 
-[Tweet](https://twitter.com/intent/tweet?text=Feeling+bored%3F+Discover+7+ways+to+brighten+up+your+day+and+start+feeling+like+life+is+worth+living+again.&url=https%3A%2F%2Fseffsaid.com%2F7-ways-to-make-your-life-exciting-again%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Feeling+bored%3F+Discover+7+ways+to+brighten+up+your+day+and+start+feeling+like+life+is+worth+living+again.&url=https%3A%2F%2Fselfsaid.30tools.com%2F7-ways-to-make-your-life-exciting-again%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F7-ways-to-make-your-life-exciting-again%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F7-ways-to-make-your-life-exciting-again%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F7-ways-to-make-your-life-exciting-again%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F7-ways-to-make-your-life-exciting-again%2F)
 
 [More](#)
 

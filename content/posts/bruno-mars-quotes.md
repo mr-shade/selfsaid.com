@@ -69,15 +69,15 @@ Bruno Mars has inspired millions with his talent and charisma. These quotes capt
 49.  “Your work is going to fill a large part of your life. The only way to be truly satisfied is to do what you believe is great work.” – Bruno Mars
 50.  “Be yourself and be honest, and you’ll attract people who are meant to be in your life.” – Bruno Mars
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbruno-mars-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbruno-mars-quotes%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/bruno-mars-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBruno-Mars-Quotes-PIN.jpg&description=Discover+what+drives+Bruno+Mars+with+this+collection+of+his+50+best+quotes%2C+filled+with+humor%2C+inspiration%2C+and+life+lessons.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/bruno-mars-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBruno-Mars-Quotes-PIN.jpg&description=Discover+what+drives+Bruno+Mars+with+this+collection+of+his+50+best+quotes%2C+filled+with+humor%2C+inspiration%2C+and+life+lessons.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Bruno+Mars%27+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fbruno-mars-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Bruno+Mars%27+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruno-mars-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbruno-mars-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruno-mars-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbruno-mars-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruno-mars-quotes%2F)
 
 [More](#)
 

@@ -118,15 +118,15 @@ Even a brief encounter with a toxic person is enough to have a negative impact o
 
 Mix with people who encourage you, respect you and make you happy. As Jim Rohn said: “You are the average of the five people you spend the most time with.” If you surround yourself with positive people, those qualities will help push you to be better, achieve more, and live a fulfilling life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flive-life-to-the-fullest%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flive-life-to-the-fullest%2F)
 
 Pin17
 
-[Tweet](https://twitter.com/intent/tweet?text=22+Ways+To+Live+Life+To+The+Fullest&url=https%3A%2F%2Fseffsaid.com%2Flive-life-to-the-fullest%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=22+Ways+To+Live+Life+To+The+Fullest&url=https%3A%2F%2Fselfsaid.30tools.com%2Flive-life-to-the-fullest%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flive-life-to-the-fullest%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flive-life-to-the-fullest%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flive-life-to-the-fullest%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flive-life-to-the-fullest%2F)
 
 [More](#)
 

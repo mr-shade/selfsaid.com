@@ -127,15 +127,15 @@ Self-care does not always require long stretches of time. Even ten minutes is en
 
 Try choosing one or two of these activities during your day. Notice how you feel afterward, and remind yourself that small [acts of care](/simple-acts-of-kindness-that-can-make-us-live-longer) are never wasted. Over time, they become steady habits that help you meet life with more calm and balance.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F)
 
-[Pin24](https://pinterest.com/pin/create/button/?url=/self-care-activities-that-you-can-do-in-10-minutes-or-less/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F10-Minute-Self-Care-Activities-PIN.jpg&description=25+self-care+activities+you+can+do+in+10+minutes+or+less.+Quick%2C+calming+ideas+to+ease+stress%2C+boost+energy%2C+and+bring+balance+to+your+day.+via+%40SeffSaid)
+[Pin24](https://pinterest.com/pin/create/button/?url=/self-care-activities-that-you-can-do-in-10-minutes-or-less/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F10-Minute-Self-Care-Activities-PIN.jpg&description=25+self-care+activities+you+can+do+in+10+minutes+or+less.+Quick%2C+calming+ideas+to+ease+stress%2C+boost+energy%2C+and+bring+balance+to+your+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=25+Self-Care+Activities+That+You+Can+Do+In+10+Minutes+Or+Less&url=https%3A%2F%2Fseffsaid.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=25+Self-Care+Activities+That+You+Can+Do+In+10+Minutes+Or+Less&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F)
 
 [More](#)
 

@@ -107,15 +107,15 @@ Washington’s words resonate with a clarity that inspires and challenges, urgin
 85.  “Truth will ultimately prevail where there is pains to bring it to light.” – George Washington
 86.  “When we assumed the Soldier, we did not lay aside the Citizen.” – George Washington
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fgeorge-washington-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgeorge-washington-quotes%2F)
 
-[Pin43](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/george-washington-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FGeorge-Washington-quotes-PIN.jpg&description=Explore+the+profound+depth+of+leadership%2C+life+and+character+with+these+86+George+Washington+quotes%2C+and+allow+their+timeless+wisdom+to+guide+your+path+to+personal+and+professional+growth.+via+%40SeffSaid)
+[Pin43](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/george-washington-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FGeorge-Washington-quotes-PIN.jpg&description=Explore+the+profound+depth+of+leadership%2C+life+and+character+with+these+86+George+Washington+quotes%2C+and+allow+their+timeless+wisdom+to+guide+your+path+to+personal+and+professional+growth.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=86+George+Washington+Quotes+on+Leadership%2C+Liberty%2C+and+Life&url=https%3A%2F%2Fseffsaid.com%2Fgeorge-washington-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=86+George+Washington+Quotes+on+Leadership%2C+Liberty%2C+and+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fgeorge-washington-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fgeorge-washington-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgeorge-washington-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fgeorge-washington-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgeorge-washington-quotes%2F)
 
 [More](#)
 

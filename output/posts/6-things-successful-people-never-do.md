@@ -40,15 +40,15 @@ To achieve a high level of success you have to be able to ignore pessimists and 
 
 You can’t say yes to everything all the time. It’s not possible to please everybody and successful people know this and don’t bother trying. Trying to please everyone can cause you to lose sight of your goals and only leads to frustration, stress and failure.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F6-things-successful-people-never-do%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F6-things-successful-people-never-do%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/6-things-successful-people-never-do/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FThings-Successful-People-Never-Do-PIN.jpg&description=Want+to+be+successful%3F+Discover+the+6+things+that+highly+successful+people+never+ever+do.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/6-things-successful-people-never-do/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FThings-Successful-People-Never-Do-PIN.jpg&description=Want+to+be+successful%3F+Discover+the+6+things+that+highly+successful+people+never+ever+do.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=6+Things+Successful+People+Never+Do&url=https%3A%2F%2Fseffsaid.com%2F6-things-successful-people-never-do%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=6+Things+Successful+People+Never+Do&url=https%3A%2F%2Fselfsaid.30tools.com%2F6-things-successful-people-never-do%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F6-things-successful-people-never-do%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F6-things-successful-people-never-do%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F6-things-successful-people-never-do%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F6-things-successful-people-never-do%2F)
 
 [More](#)
 

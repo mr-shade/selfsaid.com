@@ -64,15 +64,15 @@ Letting go of the need to control every aspect of life can bring relief. Accepti
 
 By quitting these habits, you can create more space for happiness to thrive. Small changes can have a big impact, and you’ll find life feeling lighter and more fulfilling once you let go of what no longer serves you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhabits-you-must-quit-to-be-happy%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-you-must-quit-to-be-happy%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/habits-you-must-quit-to-be-happy/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhabits-you-must-quit-to-be-happy-PIN.jpg&description=Discover+the+12+habits+standing+between+you+and+a+truly+happy+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/habits-you-must-quit-to-be-happy/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhabits-you-must-quit-to-be-happy-PIN.jpg&description=Discover+the+12+habits+standing+between+you+and+a+truly+happy+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=12+Habits+You+Must+Quit+To+Be+Truly+Happy&url=https%3A%2F%2Fseffsaid.com%2Fhabits-you-must-quit-to-be-happy%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=12+Habits+You+Must+Quit+To+Be+Truly+Happy&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-you-must-quit-to-be-happy%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhabits-you-must-quit-to-be-happy%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-you-must-quit-to-be-happy%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhabits-you-must-quit-to-be-happy%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-you-must-quit-to-be-happy%2F)
 
 [More](#)
 

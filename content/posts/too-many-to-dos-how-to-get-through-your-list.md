@@ -42,15 +42,15 @@ To-do lists grow fast when you say yes to everything. If new requests come in, d
 
 The goal is not to finish every single task as quickly as possible. The goal is to end the day knowing you spent your time on what mattered most. Your list will never be truly empty, but it can feel calmer, clearer, and more under control. And that is how you finally get through it, one choice at a time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftoo-many-to-dos-how-to-get-through-your-list%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftoo-many-to-dos-how-to-get-through-your-list%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/too-many-to-dos-how-to-get-through-your-list/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftoo-many-to-dos-PIN.jpg&description=Too+many+to-dos+and+never+enough+time%3F+Learn+practical+ways+to+prioritise%2C+simplify%2C+and+finally+get+through+your+to+do+list.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/too-many-to-dos-how-to-get-through-your-list/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftoo-many-to-dos-PIN.jpg&description=Too+many+to-dos+and+never+enough+time%3F+Learn+practical+ways+to+prioritise%2C+simplify%2C+and+finally+get+through+your+to+do+list.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Too+Many+To-Dos%3F+How+to+Finally+Get+Through+Your+List&url=https%3A%2F%2Fseffsaid.com%2Ftoo-many-to-dos-how-to-get-through-your-list%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Too+Many+To-Dos%3F+How+to+Finally+Get+Through+Your+List&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftoo-many-to-dos-how-to-get-through-your-list%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftoo-many-to-dos-how-to-get-through-your-list%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftoo-many-to-dos-how-to-get-through-your-list%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftoo-many-to-dos-how-to-get-through-your-list%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftoo-many-to-dos-how-to-get-through-your-list%2F)
 
 [More](#)
 

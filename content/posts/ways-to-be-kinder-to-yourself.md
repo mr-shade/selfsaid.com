@@ -62,15 +62,15 @@ Self-kindness is not something you master once and never think about again. It i
 
 Kindness toward yourself will not erase every challenge, but it will give you the steadiness to meet those challenges with more balance, strength, and peace.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fways-to-be-kinder-to-yourself%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-be-kinder-to-yourself%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/ways-to-be-kinder-to-yourself/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fkind-to-self-PIN.jpg&description=9+simple+ways+to+be+kinder+to+yourself.+Practical+tips+to+ease+self-criticism%2C+set+healthy+boundaries%2C+and+build+self-compassion+every+day.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/ways-to-be-kinder-to-yourself/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fkind-to-self-PIN.jpg&description=9+simple+ways+to+be+kinder+to+yourself.+Practical+tips+to+ease+self-criticism%2C+set+healthy+boundaries%2C+and+build+self-compassion+every+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=9+Simple+Ways+To+Be+Kinder+To+Yourself&url=https%3A%2F%2Fseffsaid.com%2Fways-to-be-kinder-to-yourself%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=9+Simple+Ways+To+Be+Kinder+To+Yourself&url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-be-kinder-to-yourself%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fways-to-be-kinder-to-yourself%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-be-kinder-to-yourself%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fways-to-be-kinder-to-yourself%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-be-kinder-to-yourself%2F)
 
 [More](#)
 

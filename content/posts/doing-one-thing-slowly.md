@@ -59,15 +59,15 @@ But it helps. Every time.
 
 \> For more simple, grounding practices like this, check out [The Everyday Self-Care Routine: 7 Habits That Actually Stick](/everyday-self-care-routine).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdoing-one-thing-slowly%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdoing-one-thing-slowly%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/doing-one-thing-slowly/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fdoing-one-thing-slowly-PIN.jpg&description=If+your+brain+feels+like+it%E2%80%99s+always+in+fast-forward%2C+this+simple+practice+might+help.+I+started+doing+just+one+thing+a+day+slowly%2C+drinking+tea%2C+brushing+my+teeth%2C+folding+clothes%2C+and+it+changed+the+way+I+move+through+my+day.+It%E2%80%99s+a+grounding+self-care+habit+that+takes+just+minutes%2C+and+it+might+be+the+reset+your+busy+mind+needs.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/doing-one-thing-slowly/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fdoing-one-thing-slowly-PIN.jpg&description=If+your+brain+feels+like+it%E2%80%99s+always+in+fast-forward%2C+this+simple+practice+might+help.+I+started+doing+just+one+thing+a+day+slowly%2C+drinking+tea%2C+brushing+my+teeth%2C+folding+clothes%2C+and+it+changed+the+way+I+move+through+my+day.+It%E2%80%99s+a+grounding+self-care+habit+that+takes+just+minutes%2C+and+it+might+be+the+reset+your+busy+mind+needs.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Doing+One+Thing+Slowly%3A+A+Self-Care+Practice+for+Busy+Minds&url=https%3A%2F%2Fseffsaid.com%2Fdoing-one-thing-slowly%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Doing+One+Thing+Slowly%3A+A+Self-Care+Practice+for+Busy+Minds&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdoing-one-thing-slowly%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdoing-one-thing-slowly%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdoing-one-thing-slowly%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdoing-one-thing-slowly%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdoing-one-thing-slowly%2F)
 
 [More](#)
 

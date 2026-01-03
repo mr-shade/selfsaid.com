@@ -78,15 +78,15 @@ Life is a process, and it’s okay not to have all the answers. You’re constan
 
 By letting go of these limiting factors, you give yourself the gift of starting fresh. The more you release what no longer serves you, the more room you make for what will. As you step into another year of life, be kind to yourself and focus on what truly brings you peace and joy.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthings-to-let-go-of-before-your-next-birthday%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-to-let-go-of-before-your-next-birthday%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/things-to-let-go-of-before-your-next-birthday/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FThings-To-Let-Go-Of-PIN.jpg&description=Find+out+how+releasing+the+unnecessary+can+help+you+enter+your+next+year+feeling+lighter%2C+freer%2C+and+more+focused.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/things-to-let-go-of-before-your-next-birthday/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FThings-To-Let-Go-Of-PIN.jpg&description=Find+out+how+releasing+the+unnecessary+can+help+you+enter+your+next+year+feeling+lighter%2C+freer%2C+and+more+focused.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=15+Things+To+Let+Go+Of+Before+Your+Next+Birthday&url=https%3A%2F%2Fseffsaid.com%2Fthings-to-let-go-of-before-your-next-birthday%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=15+Things+To+Let+Go+Of+Before+Your+Next+Birthday&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-to-let-go-of-before-your-next-birthday%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthings-to-let-go-of-before-your-next-birthday%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-to-let-go-of-before-your-next-birthday%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthings-to-let-go-of-before-your-next-birthday%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-to-let-go-of-before-your-next-birthday%2F)
 
 [More](#)
 

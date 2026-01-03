@@ -85,15 +85,15 @@ If you’re ready for a few practical ways to begin, you might like this:
 
 You deserve care, too, the kind that begins on the inside.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fwhat-is-emotional-self-care%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fwhat-is-emotional-self-care%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/what-is-emotional-self-care/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Femotional-self-care-PIN.jpg&description=Emotional+self-care+is+more+than+a+trend%2C+it%E2%80%99s+a+daily+practice+of+noticing%2C+honoring%2C+and+supporting+your+feelings.+Learn+what+it+really+means%2C+why+it+matters%2C+and+how+it+can+gently+transform+your+inner+life.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/what-is-emotional-self-care/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Femotional-self-care-PIN.jpg&description=Emotional+self-care+is+more+than+a+trend%2C+it%E2%80%99s+a+daily+practice+of+noticing%2C+honoring%2C+and+supporting+your+feelings.+Learn+what+it+really+means%2C+why+it+matters%2C+and+how+it+can+gently+transform+your+inner+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=What+Is+Emotional+Self-Care%3F+%28And+Why+It+Matters+More+Than+You+Think%29&url=https%3A%2F%2Fseffsaid.com%2Fwhat-is-emotional-self-care%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=What+Is+Emotional+Self-Care%3F+%28And+Why+It+Matters+More+Than+You+Think%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhat-is-emotional-self-care%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fwhat-is-emotional-self-care%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhat-is-emotional-self-care%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fwhat-is-emotional-self-care%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhat-is-emotional-self-care%2F)
 
 [More](#)
 

@@ -72,15 +72,15 @@ Many of us feel that we never have enough time for everything in our lives. We g
 
 These ten tips, applied regularly and consistently, will gradually bring you a more optimistic mindset. The ripples will infiltrate into all areas of your life, pouring sunshine into those dark corners and helping your days to be filled with positivity, happiness and optimism.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-optimistic%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-optimistic%2F)
 
 Pin24
 
-[Tweet](https://twitter.com/intent/tweet?text=Ten+Easy+Ways+to+Boost+Your+Optimism&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-optimistic%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Ten+Easy+Ways+to+Boost+Your+Optimism&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-optimistic%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-optimistic%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-optimistic%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-optimistic%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-optimistic%2F)
 
 [More](#)
 

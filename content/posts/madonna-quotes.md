@@ -69,15 +69,15 @@ Madonna has been a cultural icon for decades, and her words often reflect her bo
 49.  “I think that everyone should get married at least once, so you can see what a silly, outdated institution it is.” — Madonna
 50.  “I want to be remembered as a revolutionary who triggered an explosion of human imagination and creativity.” — Madonna
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmadonna-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmadonna-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/madonna-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMadonna-Quotes-PIN.jpg&description=Discover+the+wisdom+of+Madonna+with+this+compilation+of+her+most+significant+and+inspiring+quotes.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/madonna-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMadonna-Quotes-PIN.jpg&description=Discover+the+wisdom+of+Madonna+with+this+compilation+of+her+most+significant+and+inspiring+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Madonna%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fmadonna-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Madonna%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmadonna-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmadonna-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmadonna-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmadonna-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmadonna-quotes%2F)
 
 [More](#)
 

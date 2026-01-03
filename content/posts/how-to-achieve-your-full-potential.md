@@ -61,15 +61,15 @@ Perfection can be paralyzing. Instead, aim to show up and do your best regularly
 
 Reaching your full capacity is a lifelong process. It requires a combination of self-awareness, determination, and action. By applying these principles, you can create a life that reflects your values, goals, and potential. Every step forward counts.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-achieve-your-full-potential%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-achieve-your-full-potential%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/how-to-achieve-your-full-potential/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhow-to-achieve-your-full-potential-PIN.jpg&description=Discover+the+essential+habits+and+mindset+shifts+that+will+help+you+progress+effectively+and+help+you+achieve+your+full+potential.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/how-to-achieve-your-full-potential/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhow-to-achieve-your-full-potential-PIN.jpg&description=Discover+the+essential+habits+and+mindset+shifts+that+will+help+you+progress+effectively+and+help+you+achieve+your+full+potential.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Achieve+Your+Full+Potential&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-achieve-your-full-potential%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Achieve+Your+Full+Potential&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-achieve-your-full-potential%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-achieve-your-full-potential%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-achieve-your-full-potential%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-achieve-your-full-potential%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-achieve-your-full-potential%2F)
 
 [More](#)
 

@@ -96,15 +96,15 @@ Self-compassion not only makes the journey of overcoming obstacles more manageab
 
 Obstacles are an inevitable part of life, but they don’t have to be insurmountable roadblocks. Remember that every challenge you face is an opportunity for growth and learning, and by implementing these strategies, you can navigate the twists and turns of life’s journey with resilience and determination.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fproven-ways-to-overcome-obstacles%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fproven-ways-to-overcome-obstacles%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/proven-ways-to-overcome-obstacles/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FHow-To-Overcome-Obstacles-PIN.jpg&description=Discover+6+proven+strategies+with+actionable+advice+on+how+to+overcome+obstacles+in+your+life.+Learn+how+to+overcome+life%27s+challenges+today%21+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/proven-ways-to-overcome-obstacles/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FHow-To-Overcome-Obstacles-PIN.jpg&description=Discover+6+proven+strategies+with+actionable+advice+on+how+to+overcome+obstacles+in+your+life.+Learn+how+to+overcome+life%27s+challenges+today%21+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=6+Proven+Ways+To+Overcome+Obstacles&url=https%3A%2F%2Fseffsaid.com%2Fproven-ways-to-overcome-obstacles%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=6+Proven+Ways+To+Overcome+Obstacles&url=https%3A%2F%2Fselfsaid.30tools.com%2Fproven-ways-to-overcome-obstacles%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fproven-ways-to-overcome-obstacles%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproven-ways-to-overcome-obstacles%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fproven-ways-to-overcome-obstacles%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproven-ways-to-overcome-obstacles%2F)
 
 [More](#)
 

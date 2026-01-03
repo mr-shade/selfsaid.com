@@ -69,15 +69,15 @@ Lennon had a unique way of expressing complex ideas in a straightforward manner,
 49.  “Limitless undying love which shines around me like a million suns, it calls me on and on across the universe.” – John Lennon
 50.  “You have to be a bastard to make it, and that’s a fact.” – John Lennon
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fjohn-lennon-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fjohn-lennon-quotes%2F)
 
-[Pin75](https://pinterest.com/pin/create/button/?url=/john-lennon-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FJohn-Lennon-Quotes-PIN.jpg&description=Let+these+John+Lennon+quotes+inspire+your+day+and+influence+your+thoughts+on+peace%2C+love%2C+and+life.++via+%40SeffSaid)
+[Pin75](https://pinterest.com/pin/create/button/?url=/john-lennon-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FJohn-Lennon-Quotes-PIN.jpg&description=Let+these+John+Lennon+quotes+inspire+your+day+and+influence+your+thoughts+on+peace%2C+love%2C+and+life.++via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+John+Lennon+Quotes+On+Peace%2C+Life+and+Love&url=https%3A%2F%2Fseffsaid.com%2Fjohn-lennon-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+John+Lennon+Quotes+On+Peace%2C+Life+and+Love&url=https%3A%2F%2Fselfsaid.30tools.com%2Fjohn-lennon-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fjohn-lennon-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fjohn-lennon-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fjohn-lennon-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fjohn-lennon-quotes%2F)
 
 [More](#)
 

@@ -67,15 +67,15 @@ This article lists 50 of Richard Branson’s most memorable quotes reflecting hi
 49.  “Entrepreneurs must be willing to be misunderstood for long periods of time.” – Richard Branson
 50.  “Ridiculous yachts and private planes and big limousines won’t make people enjoy life more, and it sends out terrible messages to the people who work for them. It would be so much better if that money was spent in Africa—and it’s about getting a balance.” – Richard Branson
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Frichard-branson-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Frichard-branson-quotes%2F)
 
-[Pin9](https://pinterest.com/pin/create/button/?url=/richard-branson-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Frichard-branson-quotes-PIN.jpg&description=50+Richard+Branson+quotes+on+entrepreneurship%2C+adventure%2C+learning%2C+risk-taking%2C+and+life+in+general.+via+%40SeffSaid)
+[Pin9](https://pinterest.com/pin/create/button/?url=/richard-branson-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Frichard-branson-quotes-PIN.jpg&description=50+Richard+Branson+quotes+on+entrepreneurship%2C+adventure%2C+learning%2C+risk-taking%2C+and+life+in+general.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Richard+Branson+Quotes+On+Just+About+Everything&url=https%3A%2F%2Fseffsaid.com%2Frichard-branson-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Richard+Branson+Quotes+On+Just+About+Everything&url=https%3A%2F%2Fselfsaid.30tools.com%2Frichard-branson-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Frichard-branson-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Frichard-branson-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Frichard-branson-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Frichard-branson-quotes%2F)
 
 [More](#)
 

@@ -65,15 +65,15 @@ Here are 50 quotes attributed to Princess Diana that encapsulate her empathy, se
 49.  “I don’t think many people will want me to be queen. Actually, when I say many people, I mean the establishment that I married into, because they have decided that I’m a non-starter.” – Princess Diana
 50.  “The world is a better place when we remember to smile.” – Princess Diana
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fprincess-diana-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fprincess-diana-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/princess-diana-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FPrincess-Diana-Quotes-PIN.jpg&description=Discover+the+wisdom+and+warmth+of+Princess+Diana+by+reading+through+this+collection+of+50+of+her+best+quotes.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/princess-diana-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FPrincess-Diana-Quotes-PIN.jpg&description=Discover+the+wisdom+and+warmth+of+Princess+Diana+by+reading+through+this+collection+of+50+of+her+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Best+Princess+Diana+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fprincess-diana-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Best+Princess+Diana+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fprincess-diana-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fprincess-diana-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fprincess-diana-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fprincess-diana-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fprincess-diana-quotes%2F)
 
 [More](#)
 

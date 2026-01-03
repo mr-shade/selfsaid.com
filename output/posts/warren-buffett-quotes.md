@@ -65,15 +65,15 @@ Warren Buffett’s wisdom is timeless and practical, offering valuable insights 
 *   “I am a better investor because I am a businessman, and a better businessman because I am an investor.” — Warren Buffett
 *   “You cannot build a reputation on what you are going to do.” — Warren Buffett
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fwarren-buffett-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fwarren-buffett-quotes%2F)
 
-[Pin70](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/warren-buffett-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fwarren-buffett-quotes-PIN.jpg&description=Unlock+the+secrets+to+successful+investing+and+business+strategies+with+our+collection+of+Warren+Buffett%27s+best+quotes.+via+%40SeffSaid)
+[Pin70](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/warren-buffett-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fwarren-buffett-quotes-PIN.jpg&description=Unlock+the+secrets+to+successful+investing+and+business+strategies+with+our+collection+of+Warren+Buffett%27s+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Warren+Buffett%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fwarren-buffett-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Warren+Buffett%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fwarren-buffett-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fwarren-buffett-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwarren-buffett-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fwarren-buffett-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwarren-buffett-quotes%2F)
 
 [More](#)
 

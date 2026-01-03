@@ -71,15 +71,15 @@ Productivity is key to achieving your goals and managing your time effectively. 
 
 With these tips, you can improve your productivity and make the most out of your time. A few small changes can have a big impact on how you approach your work and manage your day.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fproductivity-advice%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fproductivity-advice%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/productivity-advice/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fproductivity-advice-PIN.jpg&description=Here+are+50+pieces+of+productivity+advice%2C+all+in+five+words+or+less%2C+to+help+you+work+smarter+and+get+more+done.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/productivity-advice/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fproductivity-advice-PIN.jpg&description=Here+are+50+pieces+of+productivity+advice%2C+all+in+five+words+or+less%2C+to+help+you+work+smarter+and+get+more+done.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Productivity+Advice+In+5+Words+Or+Less&url=https%3A%2F%2Fseffsaid.com%2Fproductivity-advice%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Productivity+Advice+In+5+Words+Or+Less&url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductivity-advice%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fproductivity-advice%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductivity-advice%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fproductivity-advice%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductivity-advice%2F)
 
 [More](#)
 

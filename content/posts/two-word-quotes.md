@@ -121,15 +121,15 @@ These quotes have the power to inspire you, to help you face challenges, and to 
 99.  **Unveil Potential** – Every day is an opportunity to unveil and embrace your full potential.
 100.  **Visualize Success** – Visualize your success and then work tirelessly to make it a reality.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftwo-word-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftwo-word-quotes%2F)
 
-[Pin20](https://pinterest.com/pin/create/button/?url=/two-word-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftwo-word-quotes-PIN-1.jpg&description=Turn+to+these+100+powerful+two-word+quotes+for+a+quick%2C+uplifting+boost+anytime+you+are+in+need+of+a+burst+of+inspiration.+via+%40SeffSaid)
+[Pin20](https://pinterest.com/pin/create/button/?url=/two-word-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftwo-word-quotes-PIN-1.jpg&description=Turn+to+these+100+powerful+two-word+quotes+for+a+quick%2C+uplifting+boost+anytime+you+are+in+need+of+a+burst+of+inspiration.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=100+Powerful+Two+Word+Quotes+For+Every+Life+Situation&url=https%3A%2F%2Fseffsaid.com%2Ftwo-word-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=100+Powerful+Two+Word+Quotes+For+Every+Life+Situation&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftwo-word-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftwo-word-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftwo-word-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftwo-word-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftwo-word-quotes%2F)
 
 [More](#)
 

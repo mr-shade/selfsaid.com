@@ -132,15 +132,15 @@ This collection of 115 quotes about nature is a tribute to the beauty and wonder
 114.  “The landscape belongs to the person who looks at it.” – Ralph Waldo Emerson
 115.  “The Earth does not belong to us: we belong to the Earth.” – Marlee Matlin
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-nature%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-nature%2F)
 
-[Pin14](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/quotes-about-nature/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-about-nature-PIN.jpg&description=Let+the+natural+world+inspire+you+by+reading+through+these+115+incredibly+uplifting+quotes+about+nature.+via+%40SeffSaid)
+[Pin14](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/quotes-about-nature/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-about-nature-PIN.jpg&description=Let+the+natural+world+inspire+you+by+reading+through+these+115+incredibly+uplifting+quotes+about+nature.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=115+Uplifting+Quotes+About+Nature&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-nature%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=115+Uplifting+Quotes+About+Nature&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-nature%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-nature%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-nature%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-nature%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-nature%2F)
 
 [More](#)
 

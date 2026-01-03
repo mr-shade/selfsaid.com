@@ -75,15 +75,15 @@ So don’t delay, begin constructing your future with the following 50 powerful 
 
 Affirmations, if used correctly, can help cultivate the necessary mindset to enable you to accomplish your dreams. So begin saying them, writing them down or even singing them several times a day and [start changing your life for the better](/change-your-life-for-the-better).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F50-powerful-affirmations-that-can-change-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F50-powerful-affirmations-that-can-change-life%2F)
 
 Pin1.28K
 
-[Tweet](https://twitter.com/intent/tweet?text=Begin+constructing+your+future+today+with+these+50+powerful+affirmations+that+have+the+power+to+change+your+life+forever.&url=https%3A%2F%2Fseffsaid.com%2F50-powerful-affirmations-that-can-change-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Begin+constructing+your+future+today+with+these+50+powerful+affirmations+that+have+the+power+to+change+your+life+forever.&url=https%3A%2F%2Fselfsaid.30tools.com%2F50-powerful-affirmations-that-can-change-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F50-powerful-affirmations-that-can-change-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F50-powerful-affirmations-that-can-change-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F50-powerful-affirmations-that-can-change-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F50-powerful-affirmations-that-can-change-life%2F)
 
 [More](#)
 

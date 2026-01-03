@@ -58,15 +58,15 @@ Remember: “No” doesn’t make you selfish. It makes you honest. And honesty 
 
 \> This practice is part of my broader [Everyday Self-Care Routine](/everyday-self-care-routine), which is all about small, sustainable habits that help you come back to yourself.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-say-no-without-guilt%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-say-no-without-guilt%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-say-no-without-guilt/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Flearned-to-say-no-PIN.jpg&description=If+saying+no+makes+you+feel+guilty%2C+you%E2%80%99re+not+alone.+I+used+to+say+yes+to+everything+until+it+led+to+burnout+and+resentment.+This+post+shares+how+I+started+saying+no+without+over-explaining%2C+without+guilt%2C+and+why+it+became+one+of+the+most+empowering+self-care+habits+I%E2%80%99ve+ever+practiced.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-say-no-without-guilt/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Flearned-to-say-no-PIN.jpg&description=If+saying+no+makes+you+feel+guilty%2C+you%E2%80%99re+not+alone.+I+used+to+say+yes+to+everything+until+it+led+to+burnout+and+resentment.+This+post+shares+how+I+started+saying+no+without+over-explaining%2C+without+guilt%2C+and+why+it+became+one+of+the+most+empowering+self-care+habits+I%E2%80%99ve+ever+practiced.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+I+Learned+to+Say+No+Without+Feeling+Guilty&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-say-no-without-guilt%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+I+Learned+to+Say+No+Without+Feeling+Guilty&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-say-no-without-guilt%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-say-no-without-guilt%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-say-no-without-guilt%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-say-no-without-guilt%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-say-no-without-guilt%2F)
 
 [More](#)
 

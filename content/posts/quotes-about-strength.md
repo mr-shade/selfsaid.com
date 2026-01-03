@@ -68,15 +68,15 @@ If you are currently suffering, I really hope these [great quotes](/the-greatest
 *   “The pain you feel today is the strength you feel tomorrow. For every challenge encountered there is the opportunity for growth.” – Anonymous
 *   “When nothing goes right, go left.” – Martha Cecilia
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-strength%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-strength%2F)
 
-[Pin144](https://pinterest.com/pin/create/button/?url=/quotes-about-strength/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-about-strength-PIN.jpg&description=Struggling+through+difficult+times+and+need+help+in+facing+your+hardships%3F+Read+these+44+powerful+quotes+about+strength+and+resilience.+via+%40SeffSaid)
+[Pin144](https://pinterest.com/pin/create/button/?url=/quotes-about-strength/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-about-strength-PIN.jpg&description=Struggling+through+difficult+times+and+need+help+in+facing+your+hardships%3F+Read+these+44+powerful+quotes+about+strength+and+resilience.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=44+Quotes+About+Strength+To+Comfort+You+During+Hard+Times&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-strength%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=44+Quotes+About+Strength+To+Comfort+You+During+Hard+Times&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-strength%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-strength%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-strength%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-strength%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-strength%2F)
 
 [More](#)
 

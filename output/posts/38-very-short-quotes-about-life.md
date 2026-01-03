@@ -94,15 +94,15 @@ So, if you are in need of a pick me up, here’s a collection of extremely power
 
 38\. “Dreams don’t work unless you do.” – John C. Maxwell
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F38-very-short-quotes-about-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F38-very-short-quotes-about-life%2F)
 
 Pin2.17K
 
-[Tweet](https://twitter.com/intent/tweet?text=38+very+short+powerful+quotes+about+life.+Prepare+to+be+filled+with+wisdom%2C+deeply+inspired%2C+and+thoroughly+motivated.&url=https%3A%2F%2Fseffsaid.com%2F38-very-short-quotes-about-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=38+very+short+powerful+quotes+about+life.+Prepare+to+be+filled+with+wisdom%2C+deeply+inspired%2C+and+thoroughly+motivated.&url=https%3A%2F%2Fselfsaid.30tools.com%2F38-very-short-quotes-about-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F38-very-short-quotes-about-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F38-very-short-quotes-about-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F38-very-short-quotes-about-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F38-very-short-quotes-about-life%2F)
 
 [More](#)
 

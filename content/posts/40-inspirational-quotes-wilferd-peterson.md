@@ -85,15 +85,15 @@ As well as writing for respected magazines and publishing books, Wilferd Peterso
 59.  “Opportunities are like sunrises. If you wait too long, you miss them.” – Wilferd Peterson
 60.  “We find what we look for in life.” – Wilferd Peterson
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F40-inspirational-quotes-wilferd-peterson%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F40-inspirational-quotes-wilferd-peterson%2F)
 
-[Pin21](https://pinterest.com/pin/create/button/?url=/40-inspirational-quotes-wilferd-peterson/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fwilferd-peterson-quotes-PIN.jpg&description=60+inspirational+quotes+from+Wilferd+Peterson+whose+inspirational+essays%2C+books%2C+and+poems+have+inspired+generations.+via+%40SeffSaid)
+[Pin21](https://pinterest.com/pin/create/button/?url=/40-inspirational-quotes-wilferd-peterson/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fwilferd-peterson-quotes-PIN.jpg&description=60+inspirational+quotes+from+Wilferd+Peterson+whose+inspirational+essays%2C+books%2C+and+poems+have+inspired+generations.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Incredibly+Inspirational+Wilferd+Peterson+Quotes&url=https%3A%2F%2Fseffsaid.com%2F40-inspirational-quotes-wilferd-peterson%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Incredibly+Inspirational+Wilferd+Peterson+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2F40-inspirational-quotes-wilferd-peterson%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F40-inspirational-quotes-wilferd-peterson%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F40-inspirational-quotes-wilferd-peterson%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F40-inspirational-quotes-wilferd-peterson%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F40-inspirational-quotes-wilferd-peterson%2F)
 
 [More](#)
 

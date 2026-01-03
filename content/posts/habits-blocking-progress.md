@@ -58,15 +58,15 @@ Regular self-assessment is [essential for growth](/essential-life-skills). Are y
 
 By answering these questions honestly, you can identify the habits that may be slowing your progress. Each question offers an opportunity to pinpoint specific areas for improvement, helping you move closer to your goals. The key is not to judge yourself harshly but to view this process as a way to refine your actions and create a stronger foundation for success.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhabits-blocking-progress%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-blocking-progress%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/habits-blocking-progress/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhabits-blocking-progress-PIN.jpg&description=Could+these+ten+questions+be+the+key+to+breaking+free+from+the+habits+limiting+your+progress%3F+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/habits-blocking-progress/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhabits-blocking-progress-PIN.jpg&description=Could+these+ten+questions+be+the+key+to+breaking+free+from+the+habits+limiting+your+progress%3F+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Identify+The+Habits+Blocking+Your+Progress&url=https%3A%2F%2Fseffsaid.com%2Fhabits-blocking-progress%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Identify+The+Habits+Blocking+Your+Progress&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-blocking-progress%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhabits-blocking-progress%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-blocking-progress%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhabits-blocking-progress%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-blocking-progress%2F)
 
 [More](#)
 

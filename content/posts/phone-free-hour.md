@@ -55,15 +55,15 @@ You don’t have to do it every day. Just enough to remember what it feels like 
 
 \> This is one of several habits in my [Everyday Self-Care Routine](/everyday-self-care-routine), alongside other gentle practices like a [five-minute morning reset](/5-minute-morning-reset) and [the case for doing nothing](/the-case-for-doing-nothing).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fphone-free-hour%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fphone-free-hour%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/phone-free-hour/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fphone-free-hour-PIN.jpg&description=Addicted+to+your+phone+but+craving+peace%3F+I+started+with+just+one+phone-free+hour+a+day%2C+and+it+changed+everything.+This+post+shares+how+I+made+it+doable+%28and+actually+enjoyable%29%2C+even+with+a+short+attention+span+and+no+desire+to+quit+tech+cold+turkey.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/phone-free-hour/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fphone-free-hour-PIN.jpg&description=Addicted+to+your+phone+but+craving+peace%3F+I+started+with+just+one+phone-free+hour+a+day%2C+and+it+changed+everything.+This+post+shares+how+I+made+it+doable+%28and+actually+enjoyable%29%2C+even+with+a+short+attention+span+and+no+desire+to+quit+tech+cold+turkey.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+to+Start+a+Phone-Free+Hour+%28Even+If+You%E2%80%99re+Addicted%29&url=https%3A%2F%2Fseffsaid.com%2Fphone-free-hour%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+to+Start+a+Phone-Free+Hour+%28Even+If+You%E2%80%99re+Addicted%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Fphone-free-hour%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fphone-free-hour%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fphone-free-hour%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fphone-free-hour%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fphone-free-hour%2F)
 
 [More](#)
 

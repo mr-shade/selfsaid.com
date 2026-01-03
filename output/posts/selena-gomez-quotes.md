@@ -65,15 +65,15 @@ Selena Gomez is not only a talented singer and actress but also a source of insp
 49.  “I love to laugh and have a good time.” – Selena Gomez
 50.  “I want to be known for my heart.” – Selena Gomez
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fselena-gomez-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fselena-gomez-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/selena-gomez-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fselena-gomez-quotes-PIN.jpg&description=Get+a+glimpse+into+Selena+Gomez%27s+perspective+on+life+and+love+with+this+exclusive+compilation+of+her+most+heartfelt+and+profound+quotes.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/selena-gomez-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fselena-gomez-quotes-PIN.jpg&description=Get+a+glimpse+into+Selena+Gomez%27s+perspective+on+life+and+love+with+this+exclusive+compilation+of+her+most+heartfelt+and+profound+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Selena+Gomez%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fselena-gomez-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Selena+Gomez%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fselena-gomez-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fselena-gomez-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fselena-gomez-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fselena-gomez-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fselena-gomez-quotes%2F)
 
 [More](#)
 

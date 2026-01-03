@@ -75,15 +75,15 @@ Tracking progress is a fantastic way to gain a real sense of achievement as well
 
 Personal growth and personal development is a life-long project, ebbing and flowing with our other life challenges and goals, but should always be a priority. It gives us a sense of true purpose in life, letting us discover what we are all capable of.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ften-ways-to-accelerate-your-personal-growth-and-development%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ften-ways-to-accelerate-your-personal-growth-and-development%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/ten-ways-to-accelerate-your-personal-growth-and-development/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FAccelerate-Your-Personal-Growth-PIN.jpg&description=You+can+accelerate+your+personal+growth+by+making+small+lifestyle+changes%2C+and+here+are+10+ways+to+start+today.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/ten-ways-to-accelerate-your-personal-growth-and-development/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FAccelerate-Your-Personal-Growth-PIN.jpg&description=You+can+accelerate+your+personal+growth+by+making+small+lifestyle+changes%2C+and+here+are+10+ways+to+start+today.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Ten+Ways+To+Accelerate+Your+Personal+Growth&url=https%3A%2F%2Fseffsaid.com%2Ften-ways-to-accelerate-your-personal-growth-and-development%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Ten+Ways+To+Accelerate+Your+Personal+Growth&url=https%3A%2F%2Fselfsaid.30tools.com%2Ften-ways-to-accelerate-your-personal-growth-and-development%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ften-ways-to-accelerate-your-personal-growth-and-development%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ften-ways-to-accelerate-your-personal-growth-and-development%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ften-ways-to-accelerate-your-personal-growth-and-development%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ften-ways-to-accelerate-your-personal-growth-and-development%2F)
 
 [More](#)
 

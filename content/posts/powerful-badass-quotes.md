@@ -112,15 +112,15 @@ Looking for the most powerful Badass Quotes of all time? Quotes that are so Bada
      
 48.  “It’s not the size of the dog in the fight, it’s the size of the fight in the dog.” – Mark Twain
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fpowerful-badass-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fpowerful-badass-quotes%2F)
 
-[Pin6.29K](https://pinterest.com/pin/create/button/?url=/powerful-badass-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fbadass-quotes-PIN.jpg&description=A+collection+of+badass+quotes+to+help+build+a+fearsome+positive+attitude+and+make+you+relentless+in+working+towards+your+goals+and+dreams.+via+%40SeffSaid)
+[Pin6.29K](https://pinterest.com/pin/create/button/?url=/powerful-badass-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fbadass-quotes-PIN.jpg&description=A+collection+of+badass+quotes+to+help+build+a+fearsome+positive+attitude+and+make+you+relentless+in+working+towards+your+goals+and+dreams.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=48+Badass+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fpowerful-badass-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=48+Badass+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fpowerful-badass-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fpowerful-badass-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpowerful-badass-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fpowerful-badass-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpowerful-badass-quotes%2F)
 
 [More](#)
 

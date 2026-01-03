@@ -64,15 +64,15 @@ Self-care is not about neglecting others, it is about recognising that your well
 
 Start small. Pick one of these reasons that speaks to you most and take one action today – rest, move, breathe, or reflect. Over time, these small choices build into a life that feels more balanced, calm, and joyful.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-care-priority%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-priority%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/self-care-priority/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Freasons-self-care-priority-PIN.jpg&description=Discover+10+powerful+reasons+why+self-care+should+be+your+top+priority%2C+from+boosting+health+and+clarity+to+bringing+more+joy+into+life.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/self-care-priority/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Freasons-self-care-priority-PIN.jpg&description=Discover+10+powerful+reasons+why+self-care+should+be+your+top+priority%2C+from+boosting+health+and+clarity+to+bringing+more+joy+into+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Reasons+Why+Self-Care+Should+Be+Your+Top+Priority&url=https%3A%2F%2Fseffsaid.com%2Fself-care-priority%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Reasons+Why+Self-Care+Should+Be+Your+Top+Priority&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-priority%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-care-priority%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-priority%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-care-priority%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-priority%2F)
 
 [More](#)
 

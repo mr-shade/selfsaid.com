@@ -67,15 +67,15 @@ Paul McCartney, the legendary singer, songwriter and bass player from The Beatle
 49.  “Life is what happens to you while you’re busy making other plans.” – Paul McCartney
 50.  “We all have our moments of brilliance and glory, and this was mine.” – Paul McCartney
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fpaul-mccartney-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fpaul-mccartney-quotes%2F)
 
-[Pin30](https://pinterest.com/pin/create/button/?url=/paul-mccartney-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FPaul-McCartney-Quotes-PIN.jpg&description=This+compilation+of+Paul+McCartney%27s+50+best+quotes+reveals+the+soul+behind+the+songs+that+defined+a+generation.+via+%40SeffSaid)
+[Pin30](https://pinterest.com/pin/create/button/?url=/paul-mccartney-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FPaul-McCartney-Quotes-PIN.jpg&description=This+compilation+of+Paul+McCartney%27s+50+best+quotes+reveals+the+soul+behind+the+songs+that+defined+a+generation.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Paul+McCartney%27s+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fpaul-mccartney-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Paul+McCartney%27s+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fpaul-mccartney-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fpaul-mccartney-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpaul-mccartney-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fpaul-mccartney-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpaul-mccartney-quotes%2F)
 
 [More](#)
 

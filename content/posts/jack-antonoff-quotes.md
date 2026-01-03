@@ -71,15 +71,15 @@ These Jack Antonoff quotes encompass themes of vulnerability, creativity, authen
 
 Read more quotes from [famous people](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fjack-antonoff-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fjack-antonoff-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/jack-antonoff-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FJack-Antonoff-Quotes-PIN.jpg&description=Jack+Antonoff+quotes+on+music%2C+art%2C+life%2C+love%2C+creativity%2C+authenticity%2C+self-discovery%2C+emotional+connection%2C+and+staying+true+to+oneself.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/jack-antonoff-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FJack-Antonoff-Quotes-PIN.jpg&description=Jack+Antonoff+quotes+on+music%2C+art%2C+life%2C+love%2C+creativity%2C+authenticity%2C+self-discovery%2C+emotional+connection%2C+and+staying+true+to+oneself.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Jack+Antonoff+Quotes+On+Music%2C+Life%2C+Love%2C+And+Creativity&url=https%3A%2F%2Fseffsaid.com%2Fjack-antonoff-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Jack+Antonoff+Quotes+On+Music%2C+Life%2C+Love%2C+And+Creativity&url=https%3A%2F%2Fselfsaid.30tools.com%2Fjack-antonoff-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fjack-antonoff-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fjack-antonoff-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fjack-antonoff-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fjack-antonoff-quotes%2F)
 
 [More](#)
 

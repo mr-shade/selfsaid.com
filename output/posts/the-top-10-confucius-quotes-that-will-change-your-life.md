@@ -65,15 +65,15 @@ Confucius (551 B.C. – 479 B.C.) was a Chinese teacher, political theorist and 
 49.  “Virtuous people often revenge themselves for the constraints to which they submit by the boredom which they inspire.” — Confucius
 50.  “The superior man makes the difficulty to be overcome his first interest; success only comes later.” — Confucius
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthe-top-10-confucius-quotes-that-will-change-your-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-top-10-confucius-quotes-that-will-change-your-life%2F)
 
-[Pin911](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/the-top-10-confucius-quotes-that-will-change-your-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FConfucius-Quotes-PIN.jpg&description=Discover+the+timeless+wisdom+of+Confucius+with+our+list+of+his+50+best+quotes.+via+%40SeffSaid)
+[Pin911](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/the-top-10-confucius-quotes-that-will-change-your-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FConfucius-Quotes-PIN.jpg&description=Discover+the+timeless+wisdom+of+Confucius+with+our+list+of+his+50+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+50+Best+Confucius+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fthe-top-10-confucius-quotes-that-will-change-your-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+50+Best+Confucius+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-top-10-confucius-quotes-that-will-change-your-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthe-top-10-confucius-quotes-that-will-change-your-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-top-10-confucius-quotes-that-will-change-your-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthe-top-10-confucius-quotes-that-will-change-your-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-top-10-confucius-quotes-that-will-change-your-life%2F)
 
 [More](#)
 

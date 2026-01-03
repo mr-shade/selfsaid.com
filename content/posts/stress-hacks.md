@@ -93,15 +93,15 @@ In a world that moves fast and asks a lot, these are my gentle ways of saying: _
 
 \> For more calming, real-life self-care habits, visit my [Everyday Self-Care Routine](/everyday-self-care-routine) or explore how [doing one thing slowly](/doing-one-thing-slowly) can change your entire day.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstress-hacks%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-hacks%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/stress-hacks/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Feveryday-stress-hacks-PIN.jpg&description=Stressed%2C+scattered%2C+and+short+on+time%3F+These+15+everyday+stress+hacks+are+simple+things+I+do+when+I%E2%80%99m+overwhelmed+but+don%E2%80%99t+have+the+energy+for+a+full+routine.+No+pressure%2C+no+perfection%2C+just+quiet+ways+to+soften+your+shoulders+and+catch+your+breath.+Try+one+and+feel+the+shift.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/stress-hacks/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Feveryday-stress-hacks-PIN.jpg&description=Stressed%2C+scattered%2C+and+short+on+time%3F+These+15+everyday+stress+hacks+are+simple+things+I+do+when+I%E2%80%99m+overwhelmed+but+don%E2%80%99t+have+the+energy+for+a+full+routine.+No+pressure%2C+no+perfection%2C+just+quiet+ways+to+soften+your+shoulders+and+catch+your+breath.+Try+one+and+feel+the+shift.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=15+Everyday+Stress+Hacks+That+Actually+Help+%28and+Don%E2%80%99t+Feel+Like+Work%29&url=https%3A%2F%2Fseffsaid.com%2Fstress-hacks%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=15+Everyday+Stress+Hacks+That+Actually+Help+%28and+Don%E2%80%99t+Feel+Like+Work%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-hacks%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstress-hacks%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-hacks%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstress-hacks%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-hacks%2F)
 
 [More](#)
 

@@ -56,15 +56,15 @@ Your curiosity is often linked to your strengths. Subjects or activities that dr
 
 Answering these questions thoughtfully can illuminate abilities that have been overshadowed by day-to-day responsibilities. By identifying these talents, you can focus your energy on developing them further, enriching your life and the lives of those around you. These hidden strengths might just become the foundation for your next big success.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdiscover-your-hidden-talents%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdiscover-your-hidden-talents%2F)
 
-[Pin7](https://pinterest.com/pin/create/button/?url=/discover-your-hidden-talents/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fdiscover-your-hidden-talents-PIN.jpg&description=These+ten+simple+yet+thought-provoking+questions+can+help+you+uncover+hidden+talents+and+abilities+you+didn%E2%80%99t+know+you+had.+via+%40SeffSaid)
+[Pin7](https://pinterest.com/pin/create/button/?url=/discover-your-hidden-talents/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fdiscover-your-hidden-talents-PIN.jpg&description=These+ten+simple+yet+thought-provoking+questions+can+help+you+uncover+hidden+talents+and+abilities+you+didn%E2%80%99t+know+you+had.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Discover+Your+Hidden+Talents&url=https%3A%2F%2Fseffsaid.com%2Fdiscover-your-hidden-talents%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Discover+Your+Hidden+Talents&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdiscover-your-hidden-talents%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdiscover-your-hidden-talents%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdiscover-your-hidden-talents%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdiscover-your-hidden-talents%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdiscover-your-hidden-talents%2F)
 
 [More](#)
 

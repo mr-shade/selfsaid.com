@@ -111,15 +111,15 @@ Quotes have a unique way of striking a chord with us. They can inspire, challeng
 95.  “It’s not what you look at that matters, it’s what you see.” – Henry David Thoreau
 96.  “The only real failure in life is not to be true to the best one knows.” – Buddha
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthe-most-famous-quotes-of-all-time%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-most-famous-quotes-of-all-time%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/the-most-famous-quotes-of-all-time/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMost-Famous-Quotes-Of-All-Time-PIN.jpg&description=See+the+world+through+the+eyes+of+philosophers%2C+leaders%2C+and+visionaries+with+this+collection+of+The+96+Most+Famous+Quotes+Of+All+Time.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/the-most-famous-quotes-of-all-time/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMost-Famous-Quotes-Of-All-Time-PIN.jpg&description=See+the+world+through+the+eyes+of+philosophers%2C+leaders%2C+and+visionaries+with+this+collection+of+The+96+Most+Famous+Quotes+Of+All+Time.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+96+Most+Famous+Quotes+Of+All+Time&url=https%3A%2F%2Fseffsaid.com%2Fthe-most-famous-quotes-of-all-time%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+96+Most+Famous+Quotes+Of+All+Time&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-most-famous-quotes-of-all-time%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthe-most-famous-quotes-of-all-time%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-most-famous-quotes-of-all-time%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthe-most-famous-quotes-of-all-time%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-most-famous-quotes-of-all-time%2F)
 
 [More](#)
 

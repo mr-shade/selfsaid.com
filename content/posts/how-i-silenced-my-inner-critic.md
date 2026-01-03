@@ -38,15 +38,15 @@ And so what exactly was my small shift of perspective that I was initially talki
 
 If you’ve enjoyed this article on how to silence your inner critic, please share it on Facebook. Thanks for reading!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-i-silenced-my-inner-critic%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-silenced-my-inner-critic%2F)
 
 Pin11
 
-[Tweet](https://twitter.com/intent/tweet?text=The+inner+critic+is+the+inner+voice+that+expresses+criticism+or+disapproval+for+our+actions+and+decisions.+Read+how+I+finally+managed+to+silence+my+inner+critic.&url=https%3A%2F%2Fseffsaid.com%2Fhow-i-silenced-my-inner-critic%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+inner+critic+is+the+inner+voice+that+expresses+criticism+or+disapproval+for+our+actions+and+decisions.+Read+how+I+finally+managed+to+silence+my+inner+critic.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-silenced-my-inner-critic%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-i-silenced-my-inner-critic%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-silenced-my-inner-critic%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-i-silenced-my-inner-critic%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-silenced-my-inner-critic%2F)
 
 [More](#)
 

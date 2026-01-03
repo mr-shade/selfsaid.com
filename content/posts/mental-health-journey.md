@@ -96,15 +96,15 @@ This collection is divided into six sections to meet you wherever you are. Let t
 59.  “You are worthy of the life you’re still learning to believe in.” – Seff Bray
 60.  “There is always a way forward. Even if it’s small.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmental-health-journey%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmental-health-journey%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/mental-health-journey/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMental-Health-Journey-PIN.jpg&description=Looking+for+words+that+meet+you+where+you+are%3F+This+collection+of+60+quotes+gently+supports+your+mental+health+journey+with+encouragement%2C+perspective%2C+and+quiet+strength.+Divided+into+six++sections%2C+these+quotes+help+you+feel+understood%2C+stay+grounded%2C+and+reconnect+with+your+own+progress.+Save+this+post+for+the+days+when+you+need+something+that+actually+helps.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/mental-health-journey/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMental-Health-Journey-PIN.jpg&description=Looking+for+words+that+meet+you+where+you+are%3F+This+collection+of+60+quotes+gently+supports+your+mental+health+journey+with+encouragement%2C+perspective%2C+and+quiet+strength.+Divided+into+six++sections%2C+these+quotes+help+you+feel+understood%2C+stay+grounded%2C+and+reconnect+with+your+own+progress.+Save+this+post+for+the+days+when+you+need+something+that+actually+helps.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Quotes+to+Support+Your+Mental+Health+Journey&url=https%3A%2F%2Fseffsaid.com%2Fmental-health-journey%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Quotes+to+Support+Your+Mental+Health+Journey&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmental-health-journey%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmental-health-journey%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmental-health-journey%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmental-health-journey%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmental-health-journey%2F)
 
 [More](#)
 

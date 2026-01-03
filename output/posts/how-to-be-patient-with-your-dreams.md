@@ -71,15 +71,15 @@ The Harry Potter series went on to become a global phenomenon, selling over 500 
 
 In the fast-paced world we live in, patience can often feel like a scarce commodity. However, when it comes to pursuing your dreams, patience is not just a virtue; it’s a necessity. Your dreams are worth the time and effort it takes to achieve them, and patience is the key that unlocks their potential.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-patient-with-your-dreams%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-patient-with-your-dreams%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/how-to-be-patient-with-your-dreams/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBe-Patient-with-Your-Dreams-PIN.jpg&description=Learn+why+patience+matters%2C+how+to+cultivate+it%2C+and+practical+strategies+to+stay+patient+even+when+faced+with+setbacks+and+obstacles+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/how-to-be-patient-with-your-dreams/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBe-Patient-with-Your-Dreams-PIN.jpg&description=Learn+why+patience+matters%2C+how+to+cultivate+it%2C+and+practical+strategies+to+stay+patient+even+when+faced+with+setbacks+and+obstacles+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Be+Patient+With+Your+Dreams&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-patient-with-your-dreams%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Be+Patient+With+Your+Dreams&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-patient-with-your-dreams%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-patient-with-your-dreams%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-patient-with-your-dreams%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-patient-with-your-dreams%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-patient-with-your-dreams%2F)
 
 [More](#)
 

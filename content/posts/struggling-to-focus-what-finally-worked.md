@@ -30,15 +30,15 @@ If you are struggling to focus, try starting with one small change. Turn off a f
 
 Focus is not about willpower alone. It is about making it easier for your mind to stay where you want it to be. And sometimes, a few simple shifts are all it takes to find that space again.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstruggling-to-focus-what-finally-worked%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstruggling-to-focus-what-finally-worked%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/struggling-to-focus-what-finally-worked/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fstruggling-to-focus-PIN.jpg&description=Finding+it+hard+to+focus%3F+This+article+shares+the+simple%2C+doable+changes+that+finally+helped+me+to+get+things+done.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/struggling-to-focus-what-finally-worked/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fstruggling-to-focus-PIN.jpg&description=Finding+it+hard+to+focus%3F+This+article+shares+the+simple%2C+doable+changes+that+finally+helped+me+to+get+things+done.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Struggling+To+Focus%3F+Here%E2%80%99s+What+Finally+Worked+For+Me&url=https%3A%2F%2Fseffsaid.com%2Fstruggling-to-focus-what-finally-worked%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Struggling+To+Focus%3F+Here%E2%80%99s+What+Finally+Worked+For+Me&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstruggling-to-focus-what-finally-worked%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstruggling-to-focus-what-finally-worked%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstruggling-to-focus-what-finally-worked%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstruggling-to-focus-what-finally-worked%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstruggling-to-focus-what-finally-worked%2F)
 
 [More](#)
 

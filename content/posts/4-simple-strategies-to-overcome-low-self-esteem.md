@@ -227,15 +227,15 @@ Best regards,
 
 Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F4-simple-strategies-to-overcome-low-self-esteem%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F4-simple-strategies-to-overcome-low-self-esteem%2F)
 
-[Pin11](https://pinterest.com/pin/create/button/?url=/4-simple-strategies-to-overcome-low-self-esteem/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2017%2F03%2Fovercome-low-self-esteem.png&description=Ready+to+feel+better+about+yourself%3F+This+guide+on+overcoming+low+self-esteem+offers+practical+advice+and+strategies+to+boost+your+confidence+starting+today.+via+%40SeffSaid)
+[Pin11](https://pinterest.com/pin/create/button/?url=/4-simple-strategies-to-overcome-low-self-esteem/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2017%2F03%2Fovercome-low-self-esteem.png&description=Ready+to+feel+better+about+yourself%3F+This+guide+on+overcoming+low+self-esteem+offers+practical+advice+and+strategies+to+boost+your+confidence+starting+today.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Ready+to+feel+better+about+yourself%3F+This+guide+on+overcoming+low+self-esteem+offers+practical+advice+and+strategies+to+boost+your+confidence.&url=https%3A%2F%2Fseffsaid.com%2F4-simple-strategies-to-overcome-low-self-esteem%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Ready+to+feel+better+about+yourself%3F+This+guide+on+overcoming+low+self-esteem+offers+practical+advice+and+strategies+to+boost+your+confidence.&url=https%3A%2F%2Fselfsaid.30tools.com%2F4-simple-strategies-to-overcome-low-self-esteem%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F4-simple-strategies-to-overcome-low-self-esteem%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F4-simple-strategies-to-overcome-low-self-esteem%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F4-simple-strategies-to-overcome-low-self-esteem%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F4-simple-strategies-to-overcome-low-self-esteem%2F)
 
 [More](#)
 

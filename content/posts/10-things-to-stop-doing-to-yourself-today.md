@@ -88,15 +88,15 @@ Letting go of old habits does not happen overnight. You may notice yourself fall
 
 Start small. Choose one of these habits and practice releasing it this week. With time, those small choices add up to big shifts. You will find yourself moving through life with more calm, more balance, and a deeper sense that you are worthy of care today, and every day.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F10-things-to-stop-doing-to-yourself-today%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F10-things-to-stop-doing-to-yourself-today%2F)
 
-[Pin15](https://pinterest.com/pin/create/button/?url=/10-things-to-stop-doing-to-yourself-today/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F06%2Fthings-to-stop-doing-to-yourself.jpg&description=Discover+10+things+to+stop+doing+to+yourself+today+and+start+living+with+more+peace%2C+balance%2C+and+self-kindness.+via+%40SeffSaid)
+[Pin15](https://pinterest.com/pin/create/button/?url=/10-things-to-stop-doing-to-yourself-today/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F06%2Fthings-to-stop-doing-to-yourself.jpg&description=Discover+10+things+to+stop+doing+to+yourself+today+and+start+living+with+more+peace%2C+balance%2C+and+self-kindness.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Things+To+Stop+Doing+To+Yourself+Today&url=https%3A%2F%2Fseffsaid.com%2F10-things-to-stop-doing-to-yourself-today%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Things+To+Stop+Doing+To+Yourself+Today&url=https%3A%2F%2Fselfsaid.30tools.com%2F10-things-to-stop-doing-to-yourself-today%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F10-things-to-stop-doing-to-yourself-today%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-things-to-stop-doing-to-yourself-today%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F10-things-to-stop-doing-to-yourself-today%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-things-to-stop-doing-to-yourself-today%2F)
 
 [More](#)
 

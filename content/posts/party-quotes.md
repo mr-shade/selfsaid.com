@@ -218,15 +218,15 @@ Whether you’re in need of a little [pick-me-up](/pick-me-up-quotes-when-feelin
 200.  “In life’s grand parade, be the one who stands out in happiness.” – Unknown
 201.  “Life is a spontaneous celebration, a spontaneous joy.” – Osho
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fparty-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fparty-quotes%2F)
 
 Pin16
 
-[Tweet](https://twitter.com/intent/tweet?text=201+Party+Quotes+to+Make+Every+Day+a+Party+Day%21&url=https%3A%2F%2Fseffsaid.com%2Fparty-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=201+Party+Quotes+to+Make+Every+Day+a+Party+Day%21&url=https%3A%2F%2Fselfsaid.30tools.com%2Fparty-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fparty-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fparty-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fparty-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fparty-quotes%2F)
 
 [More](#)
 

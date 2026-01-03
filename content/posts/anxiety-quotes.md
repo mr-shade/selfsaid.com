@@ -98,15 +98,15 @@ Each section offers a different kind of calm, whether you’re looking for reass
 59.  “You are capable, even when you don’t feel it.” – Unknown
 60.  “You don’t have to win the moment. Just stay with it.” – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fanxiety-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fanxiety-quotes%2F)
 
-[Pin9](https://pinterest.com/pin/create/button/?url=/anxiety-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fanxiety-quotes-PIN.jpg&description=When+your+thoughts+are+racing+and+everything+feels+too+loud%2C+this+collection+of+60+anxiety+quotes+can+help+bring+you+back+to+center.+These+calming+words+are+divided+into+six+soothing+sections%2C+offering+reassurance%2C+present-moment+grounding%2C+and+strength+for+anyone+feeling+overwhelmed.+Save+this+post+for+the+days+when+your+mind+won%E2%80%99t+settle.+via+%40SeffSaid)
+[Pin9](https://pinterest.com/pin/create/button/?url=/anxiety-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fanxiety-quotes-PIN.jpg&description=When+your+thoughts+are+racing+and+everything+feels+too+loud%2C+this+collection+of+60+anxiety+quotes+can+help+bring+you+back+to+center.+These+calming+words+are+divided+into+six+soothing+sections%2C+offering+reassurance%2C+present-moment+grounding%2C+and+strength+for+anyone+feeling+overwhelmed.+Save+this+post+for+the+days+when+your+mind+won%E2%80%99t+settle.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Anxiety+Quotes+That+Calm+the+Mind&url=https%3A%2F%2Fseffsaid.com%2Fanxiety-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Anxiety+Quotes+That+Calm+the+Mind&url=https%3A%2F%2Fselfsaid.30tools.com%2Fanxiety-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fanxiety-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fanxiety-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fanxiety-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fanxiety-quotes%2F)
 
 [More](#)
 

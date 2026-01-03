@@ -116,15 +116,15 @@ Here’s a list of 99 New Beginning Quotes that focus on optimism, resilience, a
 98.  “You are never too old to set another goal or to dream a new dream.” – C.S. Lewis
 99.  “Let your first success be just a beginning. Let your dreams chase you.” – Amit Ahlawat
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fnew-beginning-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fnew-beginning-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/new-beginning-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fnew-beginning-quotes-PIN.jpg&description=Find+your+inspiration+for+a+fresh+start+among+these+99+powerful+New+Beginning+Quotes+about+starting+over.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/new-beginning-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fnew-beginning-quotes-PIN.jpg&description=Find+your+inspiration+for+a+fresh+start+among+these+99+powerful+New+Beginning+Quotes+about+starting+over.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=99+New+Beginning+Quotes+About+Starting+Over&url=https%3A%2F%2Fseffsaid.com%2Fnew-beginning-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=99+New+Beginning+Quotes+About+Starting+Over&url=https%3A%2F%2Fselfsaid.30tools.com%2Fnew-beginning-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fnew-beginning-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fnew-beginning-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fnew-beginning-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fnew-beginning-quotes%2F)
 
 [More](#)
 

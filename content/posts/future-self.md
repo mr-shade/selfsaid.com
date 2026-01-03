@@ -75,15 +75,15 @@ Marriage, moving house, changing jobs and so many more big decisions require a l
 
 I hope this list will give you some food for thought over your daily decisions. We’re all different of course and have different circumstances and paths in life, but maybe some of this can help you to adopt some healthy and happy habits for the long term in life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ffuture-self%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ffuture-self%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=/future-self/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FChoices-Your-Future-Self-Will-Thank-You-For-PIN.jpg&description=Discover+10+simple+things+you+can+do+today+that+will+enrich+your+life+enormously+and+your+future+self+will+thank+you+for.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=/future-self/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FChoices-Your-Future-Self-Will-Thank-You-For-PIN.jpg&description=Discover+10+simple+things+you+can+do+today+that+will+enrich+your+life+enormously+and+your+future+self+will+thank+you+for.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Choices+Your+Future+Self+Will+Thank+You+For&url=https%3A%2F%2Fseffsaid.com%2Ffuture-self%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Choices+Your+Future+Self+Will+Thank+You+For&url=https%3A%2F%2Fselfsaid.30tools.com%2Ffuture-self%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ffuture-self%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffuture-self%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ffuture-self%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffuture-self%2F)
 
 [More](#)
 

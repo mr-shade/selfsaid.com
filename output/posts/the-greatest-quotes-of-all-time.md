@@ -102,15 +102,15 @@ Discover a hand-picked collection of the greatest quotes of all time from some o
     
 *   “Don’t let the expectations and opinions of other people affect your decisions. It’s your life, not theirs. Do what matters most to you; do what makes you feel alive and happy.” – Roy T. Bennett
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthe-greatest-quotes-of-all-time%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-greatest-quotes-of-all-time%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/the-greatest-quotes-of-all-time/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fgreatest-quotes-PIN.jpg&description=Discover+a+hand-picked+collection+of+the+greatest+quotes+of+all+time+from+some+of+the+greatest+authors+who+have+ever+lived.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/the-greatest-quotes-of-all-time/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fgreatest-quotes-PIN.jpg&description=Discover+a+hand-picked+collection+of+the+greatest+quotes+of+all+time+from+some+of+the+greatest+authors+who+have+ever+lived.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+Greatest+Quotes+Of+All+Time&url=https%3A%2F%2Fseffsaid.com%2Fthe-greatest-quotes-of-all-time%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+Greatest+Quotes+Of+All+Time&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-greatest-quotes-of-all-time%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthe-greatest-quotes-of-all-time%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-greatest-quotes-of-all-time%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthe-greatest-quotes-of-all-time%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-greatest-quotes-of-all-time%2F)
 
 [More](#)
 

@@ -23,15 +23,15 @@ The quote “Mindset Is What Separates The Best From The Rest” emphasizes the 
 
 In summary, the quote asserts that the key difference between highly successful individuals and others is not necessarily innate ability or external circumstances, but rather the attitude and mental approach they adopt. This implies that cultivating the right mindset is essential for achieving high levels of success and excellence.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmindset-is-what-separates-the-best-from-the-rest%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmindset-is-what-separates-the-best-from-the-rest%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/mindset-is-what-separates-the-best-from-the-rest/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMindset-is-what-separates-the-best-from-the-rest.jpg&description=Mindset+Is+What+Separates+The+Best+From+The+Rest+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/mindset-is-what-separates-the-best-from-the-rest/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMindset-is-what-separates-the-best-from-the-rest.jpg&description=Mindset+Is+What+Separates+The+Best+From+The+Rest+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Mindset+Is+What+Separates+The+Best+From+The+Rest&url=https%3A%2F%2Fseffsaid.com%2Fmindset-is-what-separates-the-best-from-the-rest%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Mindset+Is+What+Separates+The+Best+From+The+Rest&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmindset-is-what-separates-the-best-from-the-rest%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmindset-is-what-separates-the-best-from-the-rest%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmindset-is-what-separates-the-best-from-the-rest%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmindset-is-what-separates-the-best-from-the-rest%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmindset-is-what-separates-the-best-from-the-rest%2F)
 
 [More](#)
 

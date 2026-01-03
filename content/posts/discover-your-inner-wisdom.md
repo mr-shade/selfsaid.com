@@ -68,15 +68,15 @@ Wisdom is not something that is gained all at once. It develops over time, throu
 
 By making space for stillness, trusting instincts, and learning from both personal experiences and the wisdom of others, this natural source of knowledge becomes clearer.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdiscover-your-inner-wisdom%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdiscover-your-inner-wisdom%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/discover-your-inner-wisdom/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fdiscover-your-inner-wisdom-PIN.jpg&description=Discover+the+secret+to+tapping+into+your+inner+wisdom+with+simple+and+effective+techniques+that+anyone+can+use.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/discover-your-inner-wisdom/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fdiscover-your-inner-wisdom-PIN.jpg&description=Discover+the+secret+to+tapping+into+your+inner+wisdom+with+simple+and+effective+techniques+that+anyone+can+use.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Discover+Your+Inner+Wisdom&url=https%3A%2F%2Fseffsaid.com%2Fdiscover-your-inner-wisdom%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Discover+Your+Inner+Wisdom&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdiscover-your-inner-wisdom%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdiscover-your-inner-wisdom%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdiscover-your-inner-wisdom%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdiscover-your-inner-wisdom%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdiscover-your-inner-wisdom%2F)
 
 [More](#)
 

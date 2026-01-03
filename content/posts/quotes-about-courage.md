@@ -165,15 +165,15 @@ Courage is a quality that helps you face challenges and take on new opportunitie
 145.  “Courage is contagious. When a brave man takes a stand, the spines of others are often stiffened.” – Billy Graham
 146.  “The opposite of courage in our society is not cowardice, it’s conformity.” – Rollo May
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-courage%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-courage%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/quotes-about-courage/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FQuotes-About-Courage-PIN.jpg&description=146+Courage+Quotes+to+ignite+your+bravery%2C+inner+strength+and+resilience+in+facing+life%27s+challenges.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/quotes-about-courage/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FQuotes-About-Courage-PIN.jpg&description=146+Courage+Quotes+to+ignite+your+bravery%2C+inner+strength+and+resilience+in+facing+life%27s+challenges.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=146+Quotes+About+Courage&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-courage%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=146+Quotes+About+Courage&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-courage%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-courage%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-courage%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-courage%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-courage%2F)
 
 [More](#)
 

@@ -97,15 +97,15 @@ Some of these ideas take five minutes. Some take a little longer. None require y
 
 **Final Thought:** Self-care doesn’t have to look impressive. The quiet, tiny things often matter the most. You’re not behind. You’re not broken. You’re allowed to feel better, in your own way, one moment at a time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F56-self-care-ideas-for-a-healthy-mind-and-body%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F56-self-care-ideas-for-a-healthy-mind-and-body%2F)
 
 Pin20
 
-[Tweet](https://twitter.com/intent/tweet?text=56+Self-Care+Ideas+For+A+Healthy+Mind+And+Body&url=https%3A%2F%2Fseffsaid.com%2F56-self-care-ideas-for-a-healthy-mind-and-body%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=56+Self-Care+Ideas+For+A+Healthy+Mind+And+Body&url=https%3A%2F%2Fselfsaid.30tools.com%2F56-self-care-ideas-for-a-healthy-mind-and-body%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F56-self-care-ideas-for-a-healthy-mind-and-body%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F56-self-care-ideas-for-a-healthy-mind-and-body%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F56-self-care-ideas-for-a-healthy-mind-and-body%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F56-self-care-ideas-for-a-healthy-mind-and-body%2F)
 
 [More](#)
 

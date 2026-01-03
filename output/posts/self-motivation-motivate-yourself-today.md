@@ -46,15 +46,15 @@ If you’re not able to get out in nature as much as you would like, try adding 
 
 These are simple ways to improve your levels of self-motivation gently. Ironically, keeping motivated takes motivation, so these small tips can give you enough of a push to keep going and achieve your goals, day in and day out. Try them and see the results for yourself!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-motivation-motivate-yourself-today%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-motivation-motivate-yourself-today%2F)
 
 Pin16
 
-[Tweet](https://twitter.com/intent/tweet?text=In+need+of+some+motivation%3F+This+article+reveals+5+powerful+ways+you+can+motivate+yourself+to+do+anything+starting+from+today.&url=https%3A%2F%2Fseffsaid.com%2Fself-motivation-motivate-yourself-today%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=In+need+of+some+motivation%3F+This+article+reveals+5+powerful+ways+you+can+motivate+yourself+to+do+anything+starting+from+today.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-motivation-motivate-yourself-today%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-motivation-motivate-yourself-today%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-motivation-motivate-yourself-today%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-motivation-motivate-yourself-today%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-motivation-motivate-yourself-today%2F)
 
 [More](#)
 

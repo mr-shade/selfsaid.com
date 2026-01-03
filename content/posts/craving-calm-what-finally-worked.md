@@ -32,15 +32,15 @@ If you’ve been craving calm, try this today: Look for one place where you coul
 
 You don’t need a perfect life to feel more calm. You just need a few clear choices, made consistently and without apology. That’s what finally worked for me. Maybe it will for you too.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcraving-calm-what-finally-worked%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcraving-calm-what-finally-worked%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/craving-calm-what-finally-worked/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fcraving-calm-PIN.jpg&description=Craving+a+calmer+life+but+nothing+seems+to+work%3F+These+simple+shifts+helped+me+feel+more+at+ease+and+they+might+help+you+too.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/craving-calm-what-finally-worked/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fcraving-calm-PIN.jpg&description=Craving+a+calmer+life+but+nothing+seems+to+work%3F+These+simple+shifts+helped+me+feel+more+at+ease+and+they+might+help+you+too.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Craving+Calm%3F+Here%E2%80%99s+What+Finally+Worked+for+Me&url=https%3A%2F%2Fseffsaid.com%2Fcraving-calm-what-finally-worked%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Craving+Calm%3F+Here%E2%80%99s+What+Finally+Worked+for+Me&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcraving-calm-what-finally-worked%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcraving-calm-what-finally-worked%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcraving-calm-what-finally-worked%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcraving-calm-what-finally-worked%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcraving-calm-what-finally-worked%2F)
 
 [More](#)
 

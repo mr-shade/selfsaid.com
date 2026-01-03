@@ -192,15 +192,15 @@ Life can be as challenging as it is rewarding, and sometimes, a few words can of
 174.  “Your life is a result of the choices you make. If you don’t like your life, it is time to start making better choices.” – Anonymous
 175.  “We all make choices, but in the end our choices make us.” – Ken Levine
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdeep-quotes-about-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdeep-quotes-about-life%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/deep-quotes-about-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fdeep-quotes-about-life-PIN.jpg&description=A+collection+of+175+deep+quotes+about+life+that+have+the+power+to+change+the+way+you+think.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/deep-quotes-about-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fdeep-quotes-about-life-PIN.jpg&description=A+collection+of+175+deep+quotes+about+life+that+have+the+power+to+change+the+way+you+think.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=175+Deep+Quotes+About+Life&url=https%3A%2F%2Fseffsaid.com%2Fdeep-quotes-about-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=175+Deep+Quotes+About+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdeep-quotes-about-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdeep-quotes-about-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdeep-quotes-about-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdeep-quotes-about-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdeep-quotes-about-life%2F)
 
 [More](#)
 

@@ -68,15 +68,15 @@ Overcoming self-criticism is not about silencing your inner voice overnight. It 
 
 You will not get it right [every day](/slay-the-day), and that is okay. Progress comes from practice, not perfection. Start small by replacing one critical thought with a kinder one, forgiving one mistake, or celebrating one win. These choices add up. Over time, you will create a gentler, calmer relationship with yourself.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstop-self-criticism%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-self-criticism%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/stop-self-criticism/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FOvercome-Self-Criticism-PIN.jpg&description=Discover+7+simple+ways+to+overcome+self-criticism%2C+build+self-kindness%2C+and+create+a+calmer%2C+more+supportive+inner+voice.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/stop-self-criticism/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FOvercome-Self-Criticism-PIN.jpg&description=Discover+7+simple+ways+to+overcome+self-criticism%2C+build+self-kindness%2C+and+create+a+calmer%2C+more+supportive+inner+voice.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=7+Simple+Ways+To+Overcome+Self-Criticism&url=https%3A%2F%2Fseffsaid.com%2Fstop-self-criticism%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=7+Simple+Ways+To+Overcome+Self-Criticism&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-self-criticism%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstop-self-criticism%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-self-criticism%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstop-self-criticism%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-self-criticism%2F)
 
 [More](#)
 

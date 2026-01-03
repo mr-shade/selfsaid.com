@@ -72,15 +72,15 @@ The decisions that shape your life rarely arrive with certainty. They’re built
   
 Over time, these small, intentional choices gather into something powerful. You’ll look back one day and realise these were the moments that built your peace, your purpose, and your calm.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fkey-decisions%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fkey-decisions%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/key-decisions/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fkey-decisions-PIN.jpg&description=The+choices+you+make+today+matter.+Discover+eight+key+decisions+that+will+lead+to+more+peace%2C+purpose%2C+and+gratitude+in+the+years+ahead.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/key-decisions/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fkey-decisions-PIN.jpg&description=The+choices+you+make+today+matter.+Discover+eight+key+decisions+that+will+lead+to+more+peace%2C+purpose%2C+and+gratitude+in+the+years+ahead.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Key+Decisions+You%E2%80%99ll+Be+Thankful+You+Made+Earlier&url=https%3A%2F%2Fseffsaid.com%2Fkey-decisions%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Key+Decisions+You%E2%80%99ll+Be+Thankful+You+Made+Earlier&url=https%3A%2F%2Fselfsaid.30tools.com%2Fkey-decisions%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fkey-decisions%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkey-decisions%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fkey-decisions%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkey-decisions%2F)
 
 [More](#)
 

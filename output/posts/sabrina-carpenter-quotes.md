@@ -45,15 +45,15 @@ Sabrina Carpenter’s best quotes that capture her thoughts on self-love, indivi
 *   “The best part of life is the journey, not the destination.” – Sabrina Carpenter
 *   [“Life is too short](https://seffsaid.com/the-26-best-short-life-quotes/) to not take risks and chase your dreams.” – Sabrina Carpenter
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsabrina-carpenter-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsabrina-carpenter-quotes%2F)
 
-[Pin20](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/sabrina-carpenter-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSabrina-Carpenter-Quotes-PIN.jpg&description=Sabrina+Carpenter%27s+best+quotes+that+capture+her+thoughts+on+self-love%2C+individuality%2C+perseverance%2C+and+personal+growth.+via+%40SeffSaid)
+[Pin20](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/sabrina-carpenter-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSabrina-Carpenter-Quotes-PIN.jpg&description=Sabrina+Carpenter%27s+best+quotes+that+capture+her+thoughts+on+self-love%2C+individuality%2C+perseverance%2C+and+personal+growth.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Sabrina+Carpenter%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fsabrina-carpenter-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Sabrina+Carpenter%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsabrina-carpenter-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsabrina-carpenter-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsabrina-carpenter-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsabrina-carpenter-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsabrina-carpenter-quotes%2F)
 
 [More](#)
 

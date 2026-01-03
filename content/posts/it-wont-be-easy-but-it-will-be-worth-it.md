@@ -36,15 +36,15 @@ The quote “It Won’t Be Easy, But It Will Be Worth It” is a powerful statem
 
 In summary, “It Won’t Be Easy, But It Will Be Worth It” is a powerful expression of resilience, hope, and the reward that comes from enduring challenges. It’s a reminder that while the path to our goals may be difficult, the satisfaction and fulfillment derived from reaching them are what make the journey worthwhile.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fit-wont-be-easy-but-it-will-be-worth-it%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fit-wont-be-easy-but-it-will-be-worth-it%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=/it-wont-be-easy-but-it-will-be-worth-it/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FIt-wont-be-easy-but-it-will-be-worth-it.jpg&description=Discover+the+essence+of+perseverance+in+our+overview+of+the+motivational+quote+%27It+Won%27t+Be+Easy%2C+But+It+Will+Be+Worth+It.%27+via+%40SeffSaid)
+[Pin](https://pinterest.com/pin/create/button/?url=/it-wont-be-easy-but-it-will-be-worth-it/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FIt-wont-be-easy-but-it-will-be-worth-it.jpg&description=Discover+the+essence+of+perseverance+in+our+overview+of+the+motivational+quote+%27It+Won%27t+Be+Easy%2C+But+It+Will+Be+Worth+It.%27+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=It+Won%27t+Be+Easy%2C+But+It+Will+Be+Worth+It.&url=https%3A%2F%2Fseffsaid.com%2Fit-wont-be-easy-but-it-will-be-worth-it%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=It+Won%27t+Be+Easy%2C+But+It+Will+Be+Worth+It.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fit-wont-be-easy-but-it-will-be-worth-it%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fit-wont-be-easy-but-it-will-be-worth-it%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fit-wont-be-easy-but-it-will-be-worth-it%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fit-wont-be-easy-but-it-will-be-worth-it%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fit-wont-be-easy-but-it-will-be-worth-it%2F)
 
 [More](#)
 

@@ -58,15 +58,15 @@ Helping others can create a ripple effect of positivity in your life. [Acts of k
 
 By following these steps, you can create an environment where good things are more likely to happen. It takes effort, patience, and a [positive mindset](/always-keep-a-positive-mindset), but the rewards are worth it. With clear goals, consistent action, and a focus on growth, you’ll be well on your way to achieving the good things you desire.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-good-things-happen%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-good-things-happen%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/how-to-make-good-things-happen/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhow-to-make-good-things-happen-PIN.jpg&description=Learn+the+secrets+to+making+good+things+happen+in+your+life+by+applying+these+simple%2C+effective+strategies+every+day.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/how-to-make-good-things-happen/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhow-to-make-good-things-happen-PIN.jpg&description=Learn+the+secrets+to+making+good+things+happen+in+your+life+by+applying+these+simple%2C+effective+strategies+every+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Make+Good+Things+Happen&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-good-things-happen%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Make+Good+Things+Happen&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-good-things-happen%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-good-things-happen%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-good-things-happen%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-good-things-happen%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-good-things-happen%2F)
 
 [More](#)
 

@@ -58,15 +58,15 @@ End your day with a routine that helps you relax and transition to rest. This mi
 
 By integrating these strategies into your daily routine, you can create pockets of time to recharge and refocus. Each small step brings you closer to a day that feels balanced and fulfilling, allowing you to reclaim control of how you spend your time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftake-back-time-for-yourself%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftake-back-time-for-yourself%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/take-back-time-for-yourself/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhacks-to-take-back-time-PIN.jpg&description=Learn+how+to+reclaim+time+for+yourself+with+10+simple+daily+hacks+that+really+work.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/take-back-time-for-yourself/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhacks-to-take-back-time-PIN.jpg&description=Learn+how+to+reclaim+time+for+yourself+with+10+simple+daily+hacks+that+really+work.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Simple+Hacks+To+Take+Back+Time+For+Yourself&url=https%3A%2F%2Fseffsaid.com%2Ftake-back-time-for-yourself%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Simple+Hacks+To+Take+Back+Time+For+Yourself&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftake-back-time-for-yourself%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftake-back-time-for-yourself%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftake-back-time-for-yourself%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftake-back-time-for-yourself%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftake-back-time-for-yourself%2F)
 
 [More](#)
 

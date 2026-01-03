@@ -58,15 +58,15 @@ Effective communication is key to maintaining your boundaries. Think about the l
 
 Defining boundaries is a personal and ongoing process. By exploring these questions, you create a foundation for relationships and experiences that honor your needs and values. Healthy boundaries empower you to protect your well-being while fostering respect and harmony with others.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdefine-your-boundaries%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdefine-your-boundaries%2F)
 
-[Pin11](https://pinterest.com/pin/create/button/?url=/define-your-boundaries/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FDefine-Your-Boundaries-PIN.jpg&description=Take+control+of+your+life+by+asking+yourself+these+ten+powerful+questions+to+better+define+your+personal+boundaries.+via+%40SeffSaid)
+[Pin11](https://pinterest.com/pin/create/button/?url=/define-your-boundaries/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FDefine-Your-Boundaries-PIN.jpg&description=Take+control+of+your+life+by+asking+yourself+these+ten+powerful+questions+to+better+define+your+personal+boundaries.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Help+You+Define+Your+Boundaries&url=https%3A%2F%2Fseffsaid.com%2Fdefine-your-boundaries%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Help+You+Define+Your+Boundaries&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdefine-your-boundaries%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdefine-your-boundaries%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdefine-your-boundaries%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdefine-your-boundaries%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdefine-your-boundaries%2F)
 
 [More](#)
 

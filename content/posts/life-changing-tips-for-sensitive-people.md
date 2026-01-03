@@ -64,15 +64,15 @@ Living as a sensitive person in a fast and noisy world is not always easy, but y
 
 You do not have to try everything at once. Start with one or two of these tips and make them part of your routine. With time, you will see that your sensitivity does not need to weigh you down. Instead, it can become one of your greatest strengths, shaping a life filled with meaning, connection, and authenticity.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flife-changing-tips-for-sensitive-people%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flife-changing-tips-for-sensitive-people%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/life-changing-tips-for-sensitive-people/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FTips-for-Sensitive-People-PIN.jpg&description=Discover+10+life+changing+tips+for+sensitive+people+to+reduce+overwhelm%2C+protect+your+energy%2C+and+embrace+sensitivity+as+a+strength.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/life-changing-tips-for-sensitive-people/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FTips-for-Sensitive-People-PIN.jpg&description=Discover+10+life+changing+tips+for+sensitive+people+to+reduce+overwhelm%2C+protect+your+energy%2C+and+embrace+sensitivity+as+a+strength.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Life-Changing+Tips+for+Sensitive+People&url=https%3A%2F%2Fseffsaid.com%2Flife-changing-tips-for-sensitive-people%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Life-Changing+Tips+for+Sensitive+People&url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-changing-tips-for-sensitive-people%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flife-changing-tips-for-sensitive-people%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-changing-tips-for-sensitive-people%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flife-changing-tips-for-sensitive-people%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-changing-tips-for-sensitive-people%2F)
 
 [More](#)
 

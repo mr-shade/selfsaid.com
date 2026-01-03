@@ -177,15 +177,15 @@ Whether you’re facing a tough decision, starting a new venture, or simply look
 155.  “Success is not the absence of failure; it’s the persistence through failure.” – Aisha Tyler
 156.  “Success is not how high you have climbed, but how you make a positive difference to the world.” – Roy T. Bennett
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmotivational-quotes-success%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmotivational-quotes-success%2F)
 
 Pin1.02K
 
-[Tweet](https://twitter.com/intent/tweet?text=156+Powerful+Motivational+Quotes+For+Success&url=https%3A%2F%2Fseffsaid.com%2Fmotivational-quotes-success%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=156+Powerful+Motivational+Quotes+For+Success&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmotivational-quotes-success%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmotivational-quotes-success%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmotivational-quotes-success%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmotivational-quotes-success%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmotivational-quotes-success%2F)
 
 [More](#)
 

@@ -70,15 +70,15 @@ Kurt Cobain’s quotes often reflect the raw emotion and unfiltered thoughts of 
 
 Enjoyed this page? Discover more [famous people quotes](https://seffsaid.com/quotes-by-famous-people/) here!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fkurt-cobain-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fkurt-cobain-quotes%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/kurt-cobain-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fkurt-cobain-quotes-PIN.jpg&description=Discover+the+mind+of+a+grunge+legend+with+this+collection+of+Kurt+Cobain%27s+52+best+quotes.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/kurt-cobain-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fkurt-cobain-quotes-PIN.jpg&description=Discover+the+mind+of+a+grunge+legend+with+this+collection+of+Kurt+Cobain%27s+52+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Kurt+Cobain%27s+52+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fkurt-cobain-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Kurt+Cobain%27s+52+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fkurt-cobain-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fkurt-cobain-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkurt-cobain-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fkurt-cobain-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkurt-cobain-quotes%2F)
 
 [More](#)
 

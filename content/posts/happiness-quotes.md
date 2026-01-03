@@ -131,15 +131,15 @@ Each one offers a unique perspective on happiness, from the wisdom of philosophe
 109.  “Happiness is not achieved by the conscious pursuit of happiness; it is generally the by-product of other activities.” – Aldous Huxley
 110.  “Happiness is the natural flower of duty.” – Phillips Brooks
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhappiness-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhappiness-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fhappiness-quotes%2F)
+[Pin3](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhappiness-quotes%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=110+Happiness+Quotes+To+Brighten+Your+Day&url=https%3A%2F%2Fseffsaid.com%2Fhappiness-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=110+Happiness+Quotes+To+Brighten+Your+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhappiness-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhappiness-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhappiness-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhappiness-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhappiness-quotes%2F)
 
 [More](#)
 

@@ -24,15 +24,15 @@ The quote “Train your mind to be calm in every storm. It will serve you well.�
 
 In essence, the quote is advising that if you [train yourself to stay calm](/how-to-stay-calm-in-stressful-situations) and composed during tough times (“storms”), this skill will be incredibly beneficial in navigating life’s challenges effectively. It’s a call to develop emotional resilience and mental fortitude.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/train-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FTrain-your-mind-to-be-calm-in-every-storm.jpg&description=Train+your+mind+to+be+calm+in+every+storm.+It+will+serve+you+well.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/train-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FTrain-your-mind-to-be-calm-in-every-storm.jpg&description=Train+your+mind+to+be+calm+in+every+storm.+It+will+serve+you+well.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Train+Your+Mind+To+Be+Calm+In+Every+Storm.+It+Will+Serve+You+Well&url=https%3A%2F%2Fseffsaid.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Train+Your+Mind+To+Be+Calm+In+Every+Storm.+It+Will+Serve+You+Well&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F)
 
 [More](#)
 

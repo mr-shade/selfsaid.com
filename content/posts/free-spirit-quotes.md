@@ -234,15 +234,15 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 214.  “Life is a great big canvas, and you should throw all the paint you can on it.” – Danny Kaye
 215.  “To be free is to have achieved your life.” – Tennessee Williams
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ffree-spirit-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ffree-spirit-quotes%2F)
 
-[Pin19](https://pinterest.com/pin/create/button/?url=/free-spirit-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ffree-spirit-quotes-PIN.jpg&description=Discover+215+Free+Spirit+Quotes+to+awaken+your+inner+wild+heart%2C+ignite+your+passion%2C+and+inspire+courageous+living.+via+%40SeffSaid)
+[Pin19](https://pinterest.com/pin/create/button/?url=/free-spirit-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ffree-spirit-quotes-PIN.jpg&description=Discover+215+Free+Spirit+Quotes+to+awaken+your+inner+wild+heart%2C+ignite+your+passion%2C+and+inspire+courageous+living.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=215+Free+Spirit+Quotes+to+Inspire+Courageous+Living&url=https%3A%2F%2Fseffsaid.com%2Ffree-spirit-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=215+Free+Spirit+Quotes+to+Inspire+Courageous+Living&url=https%3A%2F%2Fselfsaid.30tools.com%2Ffree-spirit-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ffree-spirit-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffree-spirit-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ffree-spirit-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffree-spirit-quotes%2F)
 
 [More](#)
 

@@ -47,15 +47,15 @@ Remember, the goal isn’t to keep going at all costs. The goal is to keep going
 
 That’s what [real care](/self-care-routine) looks like. That’s what real work is built on.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fwhy-taking-breaks-is-part-of-the-work%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-taking-breaks-is-part-of-the-work%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/why-taking-breaks-is-part-of-the-work/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fwhy-taking-breaks-is-part-of-the-work-PIN.jpg&description=Feeling+guilty+for+taking+a+break%3F+You+don%E2%80%99t+need+to.+This+post+explores+why+rest+is+not+just+allowed+but+essential.+Discover+how+breaks+protect+your+energy%2C+help+you+reset%2C+and+make+the+work+more+sustainable+over+time.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/why-taking-breaks-is-part-of-the-work/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fwhy-taking-breaks-is-part-of-the-work-PIN.jpg&description=Feeling+guilty+for+taking+a+break%3F+You+don%E2%80%99t+need+to.+This+post+explores+why+rest+is+not+just+allowed+but+essential.+Discover+how+breaks+protect+your+energy%2C+help+you+reset%2C+and+make+the+work+more+sustainable+over+time.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Why+Taking+Breaks+Is+Part+of+the+Work&url=https%3A%2F%2Fseffsaid.com%2Fwhy-taking-breaks-is-part-of-the-work%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Why+Taking+Breaks+Is+Part+of+the+Work&url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-taking-breaks-is-part-of-the-work%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fwhy-taking-breaks-is-part-of-the-work%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-taking-breaks-is-part-of-the-work%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fwhy-taking-breaks-is-part-of-the-work%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-taking-breaks-is-part-of-the-work%2F)
 
 [More](#)
 

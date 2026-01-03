@@ -67,15 +67,15 @@ You don’t need a 20-minute journaling session. Just one line: _“Today I felt
 
 This routine doesn’t ask you to overhaul your life. It doesn’t assume you have extra time or energy. It’s made for people who are busy, tired, and still trying to care gently for themselves.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdaily-self-care-routine-for-busy-people%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdaily-self-care-routine-for-busy-people%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/daily-self-care-routine-for-busy-people/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSelf-Care-Busy-People-PIN.jpg&description=Feeling+stretched+thin%3F+This+realistic+daily+self-care+routine+is+perfect+for+busy+people.+Simple%2C+gentle+rituals+that+fit+into+your+real+life+without+stress+or+pressure.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/daily-self-care-routine-for-busy-people/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSelf-Care-Busy-People-PIN.jpg&description=Feeling+stretched+thin%3F+This+realistic+daily+self-care+routine+is+perfect+for+busy+people.+Simple%2C+gentle+rituals+that+fit+into+your+real+life+without+stress+or+pressure.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+Best+Daily+Self-Care+Routine+for+Busy+People&url=https%3A%2F%2Fseffsaid.com%2Fdaily-self-care-routine-for-busy-people%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+Best+Daily+Self-Care+Routine+for+Busy+People&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdaily-self-care-routine-for-busy-people%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdaily-self-care-routine-for-busy-people%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdaily-self-care-routine-for-busy-people%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdaily-self-care-routine-for-busy-people%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdaily-self-care-routine-for-busy-people%2F)
 
 [More](#)
 

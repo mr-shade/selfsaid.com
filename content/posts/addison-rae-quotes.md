@@ -76,15 +76,15 @@ These Addison Rae quotes give an insight into her mindset and approach to life a
 
 “Success isn’t about fame or money; it’s about being happy with who you are and what you do.” – Addison Rae
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Faddison-rae-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Faddison-rae-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/addison-rae-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FAddison-Rae-Quotes-PIN.jpg&description=Addison+Rae+quotes+offering+a+glimpse+into+her+mindset%2C+values%2C+and+ambitions+as+both+a+social+media+influencer+and+a+public+figure.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/addison-rae-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FAddison-Rae-Quotes-PIN.jpg&description=Addison+Rae+quotes+offering+a+glimpse+into+her+mindset%2C+values%2C+and+ambitions+as+both+a+social+media+influencer+and+a+public+figure.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Addison+Rae+Quotes&url=https%3A%2F%2Fseffsaid.com%2Faddison-rae-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Addison+Rae+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Faddison-rae-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Faddison-rae-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Faddison-rae-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Faddison-rae-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Faddison-rae-quotes%2F)
 
 [More](#)
 

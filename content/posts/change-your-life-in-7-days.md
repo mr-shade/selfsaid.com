@@ -48,15 +48,15 @@ End each day by reflecting on what went well and what could be improved. Take a 
 
 By focusing on these small but impactful steps, you can begin to [change your life](/famous-quotes-about-change) in just a week. These practices are easy to start and can be sustained beyond the seven days, leading to lasting improvements in your overall well-being.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fchange-your-life-in-7-days%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-in-7-days%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/change-your-life-in-7-days/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fchange-your-life-in-7-days-PIN.jpg&description=Discover+seven+practical+steps+you+can+take+to+start+changing+your+life+in+just+7+days.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/change-your-life-in-7-days/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fchange-your-life-in-7-days-PIN.jpg&description=Discover+seven+practical+steps+you+can+take+to+start+changing+your+life+in+just+7+days.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Change+Your+Life+in+7+Days&url=https%3A%2F%2Fseffsaid.com%2Fchange-your-life-in-7-days%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Change+Your+Life+in+7+Days&url=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-in-7-days%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fchange-your-life-in-7-days%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-in-7-days%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fchange-your-life-in-7-days%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-in-7-days%2F)
 
 [More](#)
 

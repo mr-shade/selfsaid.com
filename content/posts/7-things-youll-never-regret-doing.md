@@ -59,15 +59,15 @@ Learn to sort out what is important and when to let go. You don’t have to win 
 
 [Living life without regrets](/ways-to-live-life-without-regrets) is a common goal for many, but we often overlook the things we never regret doing. By making the right choices outlined above, you can lead a life with fewer regrets. Take action on these life choices and enjoy a more fulfilling and regret-free life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F7-things-youll-never-regret-doing%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F7-things-youll-never-regret-doing%2F)
 
 Pin2
 
-[Tweet](https://twitter.com/intent/tweet?text=7+Things+You%27ll+Never+Regret+Doing&url=https%3A%2F%2Fseffsaid.com%2F7-things-youll-never-regret-doing%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=7+Things+You%27ll+Never+Regret+Doing&url=https%3A%2F%2Fselfsaid.30tools.com%2F7-things-youll-never-regret-doing%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F7-things-youll-never-regret-doing%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F7-things-youll-never-regret-doing%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F7-things-youll-never-regret-doing%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F7-things-youll-never-regret-doing%2F)
 
 [More](#)
 

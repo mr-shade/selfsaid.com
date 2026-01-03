@@ -60,15 +60,15 @@ Acknowledging these often overlooked aspects of our lives fosters a deeper appre
 
 So, as you go about your day, take a moment to notice and appreciate these simple yet significant privileges. It’s a small step that can lead to a more grateful and fulfilling life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fprivileges-we-forget-to-be-thankful-for%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fprivileges-we-forget-to-be-thankful-for%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fprivileges-we-forget-to-be-thankful-for%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fprivileges-we-forget-to-be-thankful-for%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Privileges+We+Forget+to+Be+Thankful+For&url=https%3A%2F%2Fseffsaid.com%2Fprivileges-we-forget-to-be-thankful-for%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Privileges+We+Forget+to+Be+Thankful+For&url=https%3A%2F%2Fselfsaid.30tools.com%2Fprivileges-we-forget-to-be-thankful-for%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fprivileges-we-forget-to-be-thankful-for%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fprivileges-we-forget-to-be-thankful-for%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fprivileges-we-forget-to-be-thankful-for%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fprivileges-we-forget-to-be-thankful-for%2F)
 
 [More](#)
 

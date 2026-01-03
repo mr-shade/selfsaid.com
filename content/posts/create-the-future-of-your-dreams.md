@@ -66,15 +66,15 @@ Creating the future you dream of doesn’t have to mean burnout, exhaustion, or 
 
 You’re allowed to build a life you love, gently.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcreate-the-future-of-your-dreams%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-the-future-of-your-dreams%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/create-the-future-of-your-dreams/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fcreate-the-future-PIN.jpg&description=Dreaming+of+a+better+future+but+feeling+overwhelmed%3F+Here%E2%80%99s+how+to+create+meaningful+change+gently%2C+without+perfection+or+burnout.+Try+these+5+simple%2C+real-life+steps+to+shape+a+future+that+actually+feels+good.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/create-the-future-of-your-dreams/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fcreate-the-future-PIN.jpg&description=Dreaming+of+a+better+future+but+feeling+overwhelmed%3F+Here%E2%80%99s+how+to+create+meaningful+change+gently%2C+without+perfection+or+burnout.+Try+these+5+simple%2C+real-life+steps+to+shape+a+future+that+actually+feels+good.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+to+Create+the+Future+You+Want+%28Without+Overwhelm%29&url=https%3A%2F%2Fseffsaid.com%2Fcreate-the-future-of-your-dreams%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+to+Create+the+Future+You+Want+%28Without+Overwhelm%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-the-future-of-your-dreams%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcreate-the-future-of-your-dreams%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-the-future-of-your-dreams%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcreate-the-future-of-your-dreams%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-the-future-of-your-dreams%2F)
 
 [More](#)
 

@@ -79,15 +79,15 @@ These 60 powerful “you only live once” quotes will inspire you to think diff
 59.  “If you want to [live a happy life](/how-to-live-a-happy-life), tie it to a goal, not to people or things.” — Albert Einstein
 60.  Life begins at the end of your [comfort zone.”](/10-ways-to-step-out-of-your-comfort-zone) — Neale Donald Walsch
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fyou-only-live-once-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-only-live-once-quotes%2F)
 
-[Pin7](https://pinterest.com/pin/create/button/?url=/you-only-live-once-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fyou-only-live-once-quotes-PIN.jpg&description=60+powerful+%27you+only+live+once%27+quotes+that+will+challenge+you+to+make+the+most+of+each+and+every+day.+via+%40SeffSaid)
+[Pin7](https://pinterest.com/pin/create/button/?url=/you-only-live-once-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fyou-only-live-once-quotes-PIN.jpg&description=60+powerful+%27you+only+live+once%27+quotes+that+will+challenge+you+to+make+the+most+of+each+and+every+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Powerful+%27You+Only+Live+Once%27+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fyou-only-live-once-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Powerful+%27You+Only+Live+Once%27+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-only-live-once-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fyou-only-live-once-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-only-live-once-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fyou-only-live-once-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-only-live-once-quotes%2F)
 
 [More](#)
 

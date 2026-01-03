@@ -73,15 +73,15 @@ Gratitude is not about ignoring hardship. It is about noticing what is steady, s
 
 Start small. Notice your breath, a moment of laughter, or the comfort of a safe place to rest. These simple recognitions build a habit of gratitude that can change the way you experience each day. Life feels richer when you appreciate it as it is, not just as you hope it will be.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthings-we-should-never-take-for-granted%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-we-should-never-take-for-granted%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/things-we-should-never-take-for-granted/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fthings-we-should-never-take-for-granted-PIN.jpg&description=Here+are+8+things+never+to+take+for+granted%2C+with+gentle+reminders+to+slow+down%2C+notice+more%2C+and+live+with+gratitude.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/things-we-should-never-take-for-granted/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fthings-we-should-never-take-for-granted-PIN.jpg&description=Here+are+8+things+never+to+take+for+granted%2C+with+gentle+reminders+to+slow+down%2C+notice+more%2C+and+live+with+gratitude.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Things+We+Should+Never+Take+for+Granted&url=https%3A%2F%2Fseffsaid.com%2Fthings-we-should-never-take-for-granted%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Things+We+Should+Never+Take+for+Granted&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-we-should-never-take-for-granted%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthings-we-should-never-take-for-granted%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-we-should-never-take-for-granted%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthings-we-should-never-take-for-granted%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-we-should-never-take-for-granted%2F)
 
 [More](#)
 

@@ -129,15 +129,15 @@ Letting go is the act of caring for your [future self.”](/future-self) – Sef
 
 Take what resonates. Leave what doesn’t. And return to these whenever you need a little reminder that trust-like healing-can be quiet, slow, and still enough to hold you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-trust%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-trust%2F)
 
-[Pin12](https://pinterest.com/pin/create/button/?url=/quotes-about-trust/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftrust-quotes-PIN.jpg&description=50+gentle+quotes+about+trust%2C+healing%2C+and+letting+go.+This+collection+offers+calm+encouragement+for+anyone+rebuilding+self-trust+or+learning+to+open+their+heart+again.+via+%40SeffSaid)
+[Pin12](https://pinterest.com/pin/create/button/?url=/quotes-about-trust/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftrust-quotes-PIN.jpg&description=50+gentle+quotes+about+trust%2C+healing%2C+and+letting+go.+This+collection+offers+calm+encouragement+for+anyone+rebuilding+self-trust+or+learning+to+open+their+heart+again.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+About+Trust%2C+Healing%2C+and+Letting+Go&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-trust%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+About+Trust%2C+Healing%2C+and+Letting+Go&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-trust%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-trust%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-trust%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-trust%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-trust%2F)
 
 [More](#)
 

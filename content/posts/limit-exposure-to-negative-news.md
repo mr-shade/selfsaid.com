@@ -66,15 +66,15 @@ You do not need to cut yourself off from the world to protect your peace. You si
 
 Over time, these choices add up. Less exposure to negativity means more space for rest, clarity, and connection. You are not ignoring the world by setting boundaries. You are choosing to meet it with a steadier mind and a calmer heart.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flimit-exposure-to-negative-news%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flimit-exposure-to-negative-news%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/limit-exposure-to-negative-news/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fnegative-news-PIN.jpg&description=Discover+10+reasons+to+limit+your+exposure+to+negative+news+and+create+more+space+for+calm%2C+balance%2C+and+resilience+in+daily+life.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/limit-exposure-to-negative-news/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fnegative-news-PIN.jpg&description=Discover+10+reasons+to+limit+your+exposure+to+negative+news+and+create+more+space+for+calm%2C+balance%2C+and+resilience+in+daily+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Reasons+To+Limit+Your+Exposure+To+Negative+News&url=https%3A%2F%2Fseffsaid.com%2Flimit-exposure-to-negative-news%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Reasons+To+Limit+Your+Exposure+To+Negative+News&url=https%3A%2F%2Fselfsaid.30tools.com%2Flimit-exposure-to-negative-news%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flimit-exposure-to-negative-news%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flimit-exposure-to-negative-news%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flimit-exposure-to-negative-news%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flimit-exposure-to-negative-news%2F)
 
 [More](#)
 

@@ -67,15 +67,15 @@ A collection of quotes from Kim Kardashian, one of today’s most recognizable f
 49.  “I believe you should be comfortable in your skin no matter what you go through emotionally or mentally.” – Kim Kardashian
 50.  “I don’t respond to just any situation with stress. It has to be something that is really bothering me.” – Kim Kardashian
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fkim-kardashian-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fkim-kardashian-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/kim-kardashian-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FKim-Kardashian-Quotes-PIN.jpg&description=See+the+world+through+the+eyes+of+Kim+Kardashian+with+this+collection+of+her+50+best+quotes+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/kim-kardashian-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FKim-Kardashian-Quotes-PIN.jpg&description=See+the+world+through+the+eyes+of+Kim+Kardashian+with+this+collection+of+her+50+best+quotes+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Kim+Kardashian%27s+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fkim-kardashian-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Kim+Kardashian%27s+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fkim-kardashian-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fkim-kardashian-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkim-kardashian-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fkim-kardashian-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkim-kardashian-quotes%2F)
 
 [More](#)
 

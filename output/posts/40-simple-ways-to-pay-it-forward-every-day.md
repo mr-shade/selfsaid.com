@@ -65,15 +65,15 @@ Paying it forward is about small acts of kindness that can make a big difference
 
 So, next time you see an opportunity to do something nice for someone else, take it. You never know how much a simple act of kindness can uplift someone else’s spirits. Let’s all make an effort to pay it forward every day, creating a kinder, more compassionate world, one small act at a time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F40-simple-ways-to-pay-it-forward-every-day%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F40-simple-ways-to-pay-it-forward-every-day%2F)
 
 Pin3.61K
 
-[Tweet](https://twitter.com/intent/tweet?text=40+Simple+Ways+To+Pay+It+Forward+Every+Day&url=https%3A%2F%2Fseffsaid.com%2F40-simple-ways-to-pay-it-forward-every-day%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=40+Simple+Ways+To+Pay+It+Forward+Every+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2F40-simple-ways-to-pay-it-forward-every-day%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F40-simple-ways-to-pay-it-forward-every-day%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F40-simple-ways-to-pay-it-forward-every-day%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F40-simple-ways-to-pay-it-forward-every-day%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F40-simple-ways-to-pay-it-forward-every-day%2F)
 
 [More](#)
 

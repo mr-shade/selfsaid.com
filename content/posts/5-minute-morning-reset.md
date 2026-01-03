@@ -70,15 +70,15 @@ If you’re struggling with anxious mornings or just tired of waking up already 
 
 \> Want more low-pressure self-care habits that actually stick? [Check out The Everyday Self-Care Routine: 7 Habits That Actually Stick](/everyday-self-care-routine).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F5-minute-morning-reset%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F5-minute-morning-reset%2F)
 
-[Pin9](https://pinterest.com/pin/create/button/?url=/5-minute-morning-reset/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F5-Minute-Morning-Reset-PIN.jpg&description=Struggling+with+anxiety+in+the+mornings%3F+This+5-minute+morning+reset+changed+the+way+I+start+my+day%2C+no+long+routines%2C+no+overwhelm.+Just+a+few+simple+steps+that+helped+me+feel+calmer%2C+more+grounded%2C+and+more+in+control.+If+you%E2%80%99re+tired+of+waking+up+already+anxious%2C+this+might+be+the+gentle+shift+you%E2%80%99ve+been+looking+for.+via+%40SeffSaid)
+[Pin9](https://pinterest.com/pin/create/button/?url=/5-minute-morning-reset/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F5-Minute-Morning-Reset-PIN.jpg&description=Struggling+with+anxiety+in+the+mornings%3F+This+5-minute+morning+reset+changed+the+way+I+start+my+day%2C+no+long+routines%2C+no+overwhelm.+Just+a+few+simple+steps+that+helped+me+feel+calmer%2C+more+grounded%2C+and+more+in+control.+If+you%E2%80%99re+tired+of+waking+up+already+anxious%2C+this+might+be+the+gentle+shift+you%E2%80%99ve+been+looking+for.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+5-Minute+Morning+Reset+That+Helped+My+Anxiety&url=https%3A%2F%2Fseffsaid.com%2F5-minute-morning-reset%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+5-Minute+Morning+Reset+That+Helped+My+Anxiety&url=https%3A%2F%2Fselfsaid.30tools.com%2F5-minute-morning-reset%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F5-minute-morning-reset%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-minute-morning-reset%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F5-minute-morning-reset%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-minute-morning-reset%2F)
 
 [More](#)
 

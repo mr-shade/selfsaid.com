@@ -67,15 +67,15 @@ These quotes reflect Taylor Swift’s insights on life, love, perseverance, and 
 
 Read more [quotes by celebrities](https://seffsaid.com/quotes-by-famous-people/) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftaylor-swift-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftaylor-swift-quotes%2F)
 
-[Pin16](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/taylor-swift-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FTaylor-Swift-Quotes-PIN.jpg&description=Explore+the+best+quotes+from+Taylor+Swift+on+life%2C+love%2C+perseverance%2C+growing+up%2C+and+self-expression.+via+%40SeffSaid)
+[Pin16](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/taylor-swift-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FTaylor-Swift-Quotes-PIN.jpg&description=Explore+the+best+quotes+from+Taylor+Swift+on+life%2C+love%2C+perseverance%2C+growing+up%2C+and+self-expression.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Taylor+Swift%27s+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Ftaylor-swift-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Taylor+Swift%27s+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftaylor-swift-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftaylor-swift-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftaylor-swift-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftaylor-swift-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftaylor-swift-quotes%2F)
 
 [More](#)
 

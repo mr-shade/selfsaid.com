@@ -36,15 +36,15 @@ Discover 20 incredibly inspiring Paulo Coelho [quotes about life](https://seffsa
 19.  “The secret of life is to fall seven times and to get up eight times.” – Paulo Coelho
 20.  “At a certain point in our lives, we lose control of what’s happening to us, and our lives become controlled by fate. That’s the world’s greatest lie.” – Paulo Coelho
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F20-inspiring-paulo-coelho-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F20-inspiring-paulo-coelho-quotes%2F)
 
-[Pin20.52K](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/20-inspiring-paulo-coelho-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FPaulo-Coelho-Quotes-PIN.jpg&description=Discover+20+incredibly+inspiring+Paulo+Coelho+quotes+that+have+the+power+to+change+your+life.+via+%40SeffSaid)
+[Pin20.52K](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/20-inspiring-paulo-coelho-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FPaulo-Coelho-Quotes-PIN.jpg&description=Discover+20+incredibly+inspiring+Paulo+Coelho+quotes+that+have+the+power+to+change+your+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=20+Incredibly+Inspiring+Paulo+Coelho+Quotes&url=https%3A%2F%2Fseffsaid.com%2F20-inspiring-paulo-coelho-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=20+Incredibly+Inspiring+Paulo+Coelho+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2F20-inspiring-paulo-coelho-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F20-inspiring-paulo-coelho-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F20-inspiring-paulo-coelho-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F20-inspiring-paulo-coelho-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F20-inspiring-paulo-coelho-quotes%2F)
 
 [More](#)
 

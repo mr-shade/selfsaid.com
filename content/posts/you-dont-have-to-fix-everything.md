@@ -33,15 +33,15 @@ Seff
 
 This was originally shared in the Everyday Self-Care newsletter. [Subscribe here](/newsletter) to receive self-care tips and doable habits that support your well-being.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fyou-dont-have-to-fix-everything%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-dont-have-to-fix-everything%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/you-dont-have-to-fix-everything/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fyou-dont-have-to-fix-everything-PIN.jpg&description=Feeling+overwhelmed+or+emotionally+drained%3F+This+gentle+self-care+reminder+encourages+you+to+slow+down+and+stop+trying+to+fix+everything+at+once.+Discover+simple+self-care+ideas%2C+emotional+wellness+support%2C+and+practical+ways+to+care+for+yourself+without+pressure.+If+you%27re+looking+for+realistic+self-care+for+everyday+life%2C+this+post+will+help+you+pause%2C+reflect%2C+and+reconnect+with+what+matters.+Read+the+full+article+at+SeffSaid.com+-+your+space+for+calm%2C+simple+living%2C+and+emotion+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/you-dont-have-to-fix-everything/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fyou-dont-have-to-fix-everything-PIN.jpg&description=Feeling+overwhelmed+or+emotionally+drained%3F+This+gentle+self-care+reminder+encourages+you+to+slow+down+and+stop+trying+to+fix+everything+at+once.+Discover+simple+self-care+ideas%2C+emotional+wellness+support%2C+and+practical+ways+to+care+for+yourself+without+pressure.+If+you%27re+looking+for+realistic+self-care+for+everyday+life%2C+this+post+will+help+you+pause%2C+reflect%2C+and+reconnect+with+what+matters.+Read+the+full+article+at+SeffSaid.com+-+your+space+for+calm%2C+simple+living%2C+and+emotion+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=You+Don%E2%80%99t+Have+to+Fix+Everything+Today&url=https%3A%2F%2Fseffsaid.com%2Fyou-dont-have-to-fix-everything%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=You+Don%E2%80%99t+Have+to+Fix+Everything+Today&url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-dont-have-to-fix-everything%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fyou-dont-have-to-fix-everything%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-dont-have-to-fix-everything%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fyou-dont-have-to-fix-everything%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-dont-have-to-fix-everything%2F)
 
 [More](#)
 

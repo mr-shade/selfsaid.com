@@ -226,15 +226,15 @@ Life feels steadier when you allow room for rest, joy, and care.
 
 Taking care of yourself is not something you put at the end of a long list. It’s the foundation that makes everything else possible. You don’t need to take on all fifty of these ideas at once. Choose one or two that feel right for you today. Small, steady steps build into habits that protect your well-being and remind you that you matter too.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F50-things-that-you-need-to-start-doing-for-yourself%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F50-things-that-you-need-to-start-doing-for-yourself%2F)
 
-[Pin6.09K](https://pinterest.com/pin/create/button/?url=/50-things-that-you-need-to-start-doing-for-yourself/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2018%2F04%2FFifty-Things-You-Need-To-Start-Doing-For-Yourself.gif&description=Start+putting+yourself+first+with+these+50+simple+self-care+ideas.+Practical+ways+to+protect+your+energy%2C+boost+your+mood%2C+and+create+a+more+balanced+life.+via+%40SeffSaid)
+[Pin6.09K](https://pinterest.com/pin/create/button/?url=/50-things-that-you-need-to-start-doing-for-yourself/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2018%2F04%2FFifty-Things-You-Need-To-Start-Doing-For-Yourself.gif&description=Start+putting+yourself+first+with+these+50+simple+self-care+ideas.+Practical+ways+to+protect+your+energy%2C+boost+your+mood%2C+and+create+a+more+balanced+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Things+That+You+Need+To+Start+Doing+For+Yourself&url=https%3A%2F%2Fseffsaid.com%2F50-things-that-you-need-to-start-doing-for-yourself%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Things+That+You+Need+To+Start+Doing+For+Yourself&url=https%3A%2F%2Fselfsaid.30tools.com%2F50-things-that-you-need-to-start-doing-for-yourself%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F50-things-that-you-need-to-start-doing-for-yourself%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F50-things-that-you-need-to-start-doing-for-yourself%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F50-things-that-you-need-to-start-doing-for-yourself%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F50-things-that-you-need-to-start-doing-for-yourself%2F)
 
 [More](#)
 

@@ -110,15 +110,15 @@ Last but not least, [be patient](https://seffsaid.com/how-to-be-patient-with-you
 
 In a world that often emphasizes grand gestures and monumental accomplishments, it’s crucial to recognize the immense power of small actions. Remember that every small step you take has the potential to make a huge difference, both for yourself and for the world around you. So, start small, stay consistent, and watch as those seemingly insignificant actions add up to significant, lasting change.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-small-actions-can-make-a-huge-difference%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-small-actions-can-make-a-huge-difference%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/how-small-actions-can-make-a-huge-difference/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSmall-Actions-PIN.jpg&description=Discover+the+psychology+behind+the+effectiveness+of+small+actions+and+actionable+advice+on+how+you+can+harness+this+power+for+yourself.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/how-small-actions-can-make-a-huge-difference/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSmall-Actions-PIN.jpg&description=Discover+the+psychology+behind+the+effectiveness+of+small+actions+and+actionable+advice+on+how+you+can+harness+this+power+for+yourself.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+Small+Actions+Can+Make+a+Huge+Difference+To+Your+Life&url=https%3A%2F%2Fseffsaid.com%2Fhow-small-actions-can-make-a-huge-difference%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+Small+Actions+Can+Make+a+Huge+Difference+To+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-small-actions-can-make-a-huge-difference%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-small-actions-can-make-a-huge-difference%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-small-actions-can-make-a-huge-difference%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-small-actions-can-make-a-huge-difference%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-small-actions-can-make-a-huge-difference%2F)
 
 [More](#)
 

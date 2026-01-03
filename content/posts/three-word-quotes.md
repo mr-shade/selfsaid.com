@@ -1019,15 +1019,15 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 999.  Yield to love
 1000.  Zealously chase dreams
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthree-word-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthree-word-quotes%2F)
 
-[Pin571](https://pinterest.com/pin/create/button/?url=/three-word-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FThree-Word-Quotes-PIN2.jpg&description=1000+three-word+quotes+that+offer+inspiration%2C+comfort%2C+and+motivation+for+every+moment+of+your+life.+via+%40SeffSaid)
+[Pin571](https://pinterest.com/pin/create/button/?url=/three-word-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FThree-Word-Quotes-PIN2.jpg&description=1000+three-word+quotes+that+offer+inspiration%2C+comfort%2C+and+motivation+for+every+moment+of+your+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=1000+Three+Word+Quotes+for+Every+Moment+of+Your+Life&url=https%3A%2F%2Fseffsaid.com%2Fthree-word-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=1000+Three+Word+Quotes+for+Every+Moment+of+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthree-word-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthree-word-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthree-word-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthree-word-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthree-word-quotes%2F)
 
 [More](#)
 

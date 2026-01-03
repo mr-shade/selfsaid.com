@@ -138,15 +138,15 @@ Whether you’re facing small adjustments or major life changes, these quotes ab
 
 “The best way to predict the future is to create it.” – Peter Drucker
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ffamous-quotes-about-change%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ffamous-quotes-about-change%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/famous-quotes-about-change/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ffamous-quotes-about-change-PIN.jpg&description=Whether+you%E2%80%99re+facing+small+adjustments+or+major+life+changes%2C+these+quotes+about+change+will+inspire+you+to+move+forward+with+confidence.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/famous-quotes-about-change/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ffamous-quotes-about-change-PIN.jpg&description=Whether+you%E2%80%99re+facing+small+adjustments+or+major+life+changes%2C+these+quotes+about+change+will+inspire+you+to+move+forward+with+confidence.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Famous+Quotes+About+Change&url=https%3A%2F%2Fseffsaid.com%2Ffamous-quotes-about-change%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Famous+Quotes+About+Change&url=https%3A%2F%2Fselfsaid.30tools.com%2Ffamous-quotes-about-change%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ffamous-quotes-about-change%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffamous-quotes-about-change%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ffamous-quotes-about-change%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffamous-quotes-about-change%2F)
 
 [More](#)
 

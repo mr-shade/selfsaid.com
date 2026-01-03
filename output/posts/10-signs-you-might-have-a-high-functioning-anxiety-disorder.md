@@ -72,15 +72,15 @@ It’s not just about seeking advice; it’s more about needing constant affirma
 
 Remember that most of us worry from time to time and some of us worry a lot of the time. Each personality has its own patterns, its own triggers for tension, stress, and anxiety. But if you are suffering from on-going and overwhelming anxiety that is affecting your day-to-day life, you may be suffering from high-functioning anxiety. Whilst self-help can be very effective, you may need to also seek professional medical advice.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F10-signs-you-might-have-a-high-functioning-anxiety-disorder%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F10-signs-you-might-have-a-high-functioning-anxiety-disorder%2F)
 
-[Pin10](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/10-signs-you-might-have-a-high-functioning-anxiety-disorder/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F11%2F10-signs-you-have-a-high-functioning-anxiety-disorder.jpg&description=High-functioning+anxiety+is+when+a+person+is+seemingly+able+to+lead+a+normal+life%2C+despite+experiencing+incredibly+high+levels+of+anxiety.+They+suffer+just+as+much+as+anyone+else+but+manages+to+conceal+the+problem+from+most+people+in+their+lives.+This+level+of+anxiety+is+incredibly+common+although+it+manifests+in+different+ways+in+different+people.+Click+through+and+discover+the+10+warning+signs+that+you+may+be+suffering+from+high-functioning+anxiety.+via+%40SeffSaid)
+[Pin10](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/10-signs-you-might-have-a-high-functioning-anxiety-disorder/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F11%2F10-signs-you-have-a-high-functioning-anxiety-disorder.jpg&description=High-functioning+anxiety+is+when+a+person+is+seemingly+able+to+lead+a+normal+life%2C+despite+experiencing+incredibly+high+levels+of+anxiety.+They+suffer+just+as+much+as+anyone+else+but+manages+to+conceal+the+problem+from+most+people+in+their+lives.+This+level+of+anxiety+is+incredibly+common+although+it+manifests+in+different+ways+in+different+people.+Click+through+and+discover+the+10+warning+signs+that+you+may+be+suffering+from+high-functioning+anxiety.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Signs+You+Might+Have+A+High-Functioning+Anxiety+Disorder&url=https%3A%2F%2Fseffsaid.com%2F10-signs-you-might-have-a-high-functioning-anxiety-disorder%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Signs+You+Might+Have+A+High-Functioning+Anxiety+Disorder&url=https%3A%2F%2Fselfsaid.30tools.com%2F10-signs-you-might-have-a-high-functioning-anxiety-disorder%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F10-signs-you-might-have-a-high-functioning-anxiety-disorder%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-signs-you-might-have-a-high-functioning-anxiety-disorder%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F10-signs-you-might-have-a-high-functioning-anxiety-disorder%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-signs-you-might-have-a-high-functioning-anxiety-disorder%2F)
 
 [More](#)
 

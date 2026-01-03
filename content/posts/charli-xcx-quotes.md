@@ -71,15 +71,15 @@ In this collection of Charli XCX quotes, she shares her thoughts on creativity, 
 
 Read more [quotes by famous people](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcharli-xcx-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcharli-xcx-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/charli-xcx-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FCharli-XCX-Quotes-PIN.jpg&description=In+this+collection+of+Charli+XCX+quotes%2C+you%27ll+discover+her+thoughts+on+creativity%2C+individuality%2C+and+pop+culture+that+redefine+what+it+means+to+be+a+modern+artist.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/charli-xcx-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FCharli-XCX-Quotes-PIN.jpg&description=In+this+collection+of+Charli+XCX+quotes%2C+you%27ll+discover+her+thoughts+on+creativity%2C+individuality%2C+and+pop+culture+that+redefine+what+it+means+to+be+a+modern+artist.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Charli+XCX%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fcharli-xcx-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Charli+XCX%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcharli-xcx-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcharli-xcx-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcharli-xcx-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcharli-xcx-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcharli-xcx-quotes%2F)
 
 [More](#)
 

@@ -61,15 +61,15 @@ You can begin again slowly, quietly, and without apology. Even if you’ve pause
 
 You’re still on your way. And [you’re doing better than you think](/signs-you-are-doing-better-than-you-think).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-keep-going-when-youre-tired-of-starting-over%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-keep-going-when-youre-tired-of-starting-over%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-keep-going-when-youre-tired-of-starting-over/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhow-to-keep-going-PIN.jpg&description=Tired+of+starting+over%3F+You%E2%80%99re+not+alone.+This+post+offers+real-world+encouragement+for+anyone+who+feels+stuck+or+off-track.+Learn+how+to+rebuild+your+habits+gently%2C+let+go+of+guilt%2C+and+keep+going+in+a+way+that+feels+doable%2C+not+overwhelming.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-keep-going-when-youre-tired-of-starting-over/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhow-to-keep-going-PIN.jpg&description=Tired+of+starting+over%3F+You%E2%80%99re+not+alone.+This+post+offers+real-world+encouragement+for+anyone+who+feels+stuck+or+off-track.+Learn+how+to+rebuild+your+habits+gently%2C+let+go+of+guilt%2C+and+keep+going+in+a+way+that+feels+doable%2C+not+overwhelming.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+to+Keep+Going+When+You%E2%80%99re+Tired+of+Starting+Over&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-keep-going-when-youre-tired-of-starting-over%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+to+Keep+Going+When+You%E2%80%99re+Tired+of+Starting+Over&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-keep-going-when-youre-tired-of-starting-over%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-keep-going-when-youre-tired-of-starting-over%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-keep-going-when-youre-tired-of-starting-over%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-keep-going-when-youre-tired-of-starting-over%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-keep-going-when-youre-tired-of-starting-over%2F)
 
 [More](#)
 

@@ -62,15 +62,15 @@ For me, it works best alongside other small, grounding habits like [drinking wat
 
 \> If you’re interested in how small practices like this can shape a more grounded life, explore my [Everyday Self-Care Routine](/everyday-self-care-routine).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthe-case-for-doing-nothing%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-case-for-doing-nothing%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/the-case-for-doing-nothing/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fcase-for-doing-nothing-PIN.jpg&description=We+live+in+a+world+that+praises+hustle%2C+but+what+if+stillness+is+what+you+actually+need%3F+In+this+post%2C+I+share+how+I+started+doing+absolutely+nothing+%28on+purpose%29+and+how+it+helped+me+reconnect+with+myself%2C+heal+from+burnout%2C+and+find+clarity+in+the+quiet.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/the-case-for-doing-nothing/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fcase-for-doing-nothing-PIN.jpg&description=We+live+in+a+world+that+praises+hustle%2C+but+what+if+stillness+is+what+you+actually+need%3F+In+this+post%2C+I+share+how+I+started+doing+absolutely+nothing+%28on+purpose%29+and+how+it+helped+me+reconnect+with+myself%2C+heal+from+burnout%2C+and+find+clarity+in+the+quiet.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+Case+for+Doing+Nothing%3A+How+Stillness+Became+My+Self-Care&url=https%3A%2F%2Fseffsaid.com%2Fthe-case-for-doing-nothing%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+Case+for+Doing+Nothing%3A+How+Stillness+Became+My+Self-Care&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-case-for-doing-nothing%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthe-case-for-doing-nothing%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-case-for-doing-nothing%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthe-case-for-doing-nothing%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-case-for-doing-nothing%2F)
 
 [More](#)
 

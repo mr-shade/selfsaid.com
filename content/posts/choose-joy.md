@@ -67,15 +67,15 @@ $4.99 – Instant Download
 
 [ADD TO CART](https://payhip.com/b/WPUX0)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fchoose-joy%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fchoose-joy%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fchoose-joy%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fchoose-joy%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=Choose+Joy+Printable+Quote&url=https%3A%2F%2Fseffsaid.com%2Fchoose-joy%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Choose+Joy+Printable+Quote&url=https%3A%2F%2Fselfsaid.30tools.com%2Fchoose-joy%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fchoose-joy%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fchoose-joy%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fchoose-joy%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fchoose-joy%2F)
 
 [More](#)
 

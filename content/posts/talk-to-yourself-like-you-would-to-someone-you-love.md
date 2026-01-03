@@ -39,15 +39,15 @@ Many people show great care to others but rarely offer that same care inward. Wh
 
 [You do not have to fix everything overnight](/you-dont-have-to-fix-everything). But treating yourself with kindness gives you a stronger place to start from.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/talk-to-yourself-like-you-would-to-someone-you-love/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftalk-yourself-love-PIN.jpg&description=%22Talk+to+Yourself+Like+You+Would+to+Someone+You+Love%22+-+this+quote+by+Bren%C3%A9+Brown+is+more+than+inspiring%2C+it+is+practical+self-care.+If+you+find+yourself+being+overly+critical+or+harsh+inside+your+head%2C+this+quiet+reminder+will+help+you+speak+to+yourself+with+more+patience+and+compassion.+Read+the+full+post+to+understand+what+this+quote+really+means+and+how+it+can+change+the+way+you+handle+stress%2C+mistakes%2C+and+difficult+days.+Soft%2C+steady+support+starts+with+your+own+inner+voice.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/talk-to-yourself-like-you-would-to-someone-you-love/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftalk-yourself-love-PIN.jpg&description=%22Talk+to+Yourself+Like+You+Would+to+Someone+You+Love%22+-+this+quote+by+Bren%C3%A9+Brown+is+more+than+inspiring%2C+it+is+practical+self-care.+If+you+find+yourself+being+overly+critical+or+harsh+inside+your+head%2C+this+quiet+reminder+will+help+you+speak+to+yourself+with+more+patience+and+compassion.+Read+the+full+post+to+understand+what+this+quote+really+means+and+how+it+can+change+the+way+you+handle+stress%2C+mistakes%2C+and+difficult+days.+Soft%2C+steady+support+starts+with+your+own+inner+voice.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=%22Talk+to+Yourself+Like+You+Would+to+Someone+You+Love%22+-+Meaning+and+Why+It+Matters&url=https%3A%2F%2Fseffsaid.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=%22Talk+to+Yourself+Like+You+Would+to+Someone+You+Love%22+-+Meaning+and+Why+It+Matters&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F)
 
 [More](#)
 

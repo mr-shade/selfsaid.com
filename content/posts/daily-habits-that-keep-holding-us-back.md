@@ -66,15 +66,15 @@ These habits may be deeply ingrained, but they can be changed. Overcoming them i
 
 [Changing daily habits](/5-simple-daily-habits-that-can-actually-change-your-life) is an ongoing process that requires [patience](/how-to-be-patient-with-your-dreams), perseverance, and a commitment to self-improvement. The rewards—such as [increased productivity](/easy-ways-to-increase-productivity-today), improved well-being, and a greater sense of control over your life—are well worth the effort.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdaily-habits-that-keep-holding-us-back%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdaily-habits-that-keep-holding-us-back%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/daily-habits-that-keep-holding-us-back/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fdaily-habits-holding-you-back-PIN.jpg&description=Discover+the+five+daily+habits+that+are+holding+you+back+from+success+and+learn+how+to+overcome+them+to+unlock+your+full+potential.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/daily-habits-that-keep-holding-us-back/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fdaily-habits-holding-you-back-PIN.jpg&description=Discover+the+five+daily+habits+that+are+holding+you+back+from+success+and+learn+how+to+overcome+them+to+unlock+your+full+potential.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=5+Daily+Habits+Holding+You+Back+From+Success&url=https%3A%2F%2Fseffsaid.com%2Fdaily-habits-that-keep-holding-us-back%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=5+Daily+Habits+Holding+You+Back+From+Success&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdaily-habits-that-keep-holding-us-back%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdaily-habits-that-keep-holding-us-back%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdaily-habits-that-keep-holding-us-back%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdaily-habits-that-keep-holding-us-back%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdaily-habits-that-keep-holding-us-back%2F)
 
 [More](#)
 

@@ -91,15 +91,15 @@ If today feels loud, tangled, or just a little too full, pause here. Reread one 
 
 [There’s no need to fix everything right now](/you-dont-have-to-fix-everything). Sometimes, it’s enough to just soften the noise inside your head and remind yourself: you are allowed to take care of your peace.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcalming-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcalming-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/calming-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fcalming-quotes-PIN.jpg&description=Feeling+overwhelmed%3F+These+50+calming+quotes+offer+a+gentle+pause+in+the+middle+of+it+all.+Whether+you%27re+navigating+stress%2C+low+energy%2C+or+just+too+many+thoughts+at+once%2C+this+quote+collection+will+help+you+feel+a+little+more+steady.+Save+it+as+a+quiet+reminder+that+you+don%E2%80%99t+need+to+do+it+all+-+you%E2%80%99re+allowed+to+slow+down+and+take+care+of+yourself+first.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/calming-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fcalming-quotes-PIN.jpg&description=Feeling+overwhelmed%3F+These+50+calming+quotes+offer+a+gentle+pause+in+the+middle+of+it+all.+Whether+you%27re+navigating+stress%2C+low+energy%2C+or+just+too+many+thoughts+at+once%2C+this+quote+collection+will+help+you+feel+a+little+more+steady.+Save+it+as+a+quiet+reminder+that+you+don%E2%80%99t+need+to+do+it+all+-+you%E2%80%99re+allowed+to+slow+down+and+take+care+of+yourself+first.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Calming+Quotes+For+When+You+Feel+Overwhelmed&url=https%3A%2F%2Fseffsaid.com%2Fcalming-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Calming+Quotes+For+When+You+Feel+Overwhelmed&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcalming-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcalming-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcalming-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcalming-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcalming-quotes%2F)
 
 [More](#)
 

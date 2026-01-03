@@ -169,15 +169,15 @@ Incorporating these quotes into your daily life can boost your motivation and co
 149.  “Listen to your own voice, your own soul; too many people listen to the noise of the world instead of themselves.” – Leon Brown
 150.  “A heart without dreams is like a bird without feathers.” – Suzy Kassem
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ffollow-your-heart-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ffollow-your-heart-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/follow-your-heart-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ffollow-your-heart-quotes-PIN.jpg&description=Inspire+your+everyday+decisions+with+our+handpicked+selection+of+follow+your+heart+quotes+%E2%80%93+explore+and+be+empowered.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/follow-your-heart-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ffollow-your-heart-quotes-PIN.jpg&description=Inspire+your+everyday+decisions+with+our+handpicked+selection+of+follow+your+heart+quotes+%E2%80%93+explore+and+be+empowered.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=150+Follow+Your+Heart+Quotes+for+Courage+and+Self-Discovery&url=https%3A%2F%2Fseffsaid.com%2Ffollow-your-heart-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=150+Follow+Your+Heart+Quotes+for+Courage+and+Self-Discovery&url=https%3A%2F%2Fselfsaid.30tools.com%2Ffollow-your-heart-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ffollow-your-heart-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffollow-your-heart-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ffollow-your-heart-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffollow-your-heart-quotes%2F)
 
 [More](#)
 

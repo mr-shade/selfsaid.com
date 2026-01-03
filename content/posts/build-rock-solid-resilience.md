@@ -78,15 +78,15 @@ Practicing patience and reminding oneself of past successes builds confidence in
 
 By applying these [resilience hacks](/resilience-hacks) and strategies, it is possible to develop greater mental and emotional strength. Facing challenges with confidence and persistence leads to a stronger ability to handle whatever life presents.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbuild-rock-solid-resilience%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbuild-rock-solid-resilience%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/build-rock-solid-resilience/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fbuild-rock-solid-resilience-PIN.jpg&description=Master+the+art+of+resilience+with+these+practical+methods+that+strengthen+your+ability+to+handle+setbacks+with+confidence+and+clarity.+Learn+how+to+stay+focused+under+pressure%2C+adapt+to+challenges%2C+and+maintain+a+positive+outlook+even+in+the+toughest+situations.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/build-rock-solid-resilience/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fbuild-rock-solid-resilience-PIN.jpg&description=Master+the+art+of+resilience+with+these+practical+methods+that+strengthen+your+ability+to+handle+setbacks+with+confidence+and+clarity.+Learn+how+to+stay+focused+under+pressure%2C+adapt+to+challenges%2C+and+maintain+a+positive+outlook+even+in+the+toughest+situations.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Strategies+To+Build+Rock-Solid+Resilience+Starting+Today&url=https%3A%2F%2Fseffsaid.com%2Fbuild-rock-solid-resilience%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Strategies+To+Build+Rock-Solid+Resilience+Starting+Today&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuild-rock-solid-resilience%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbuild-rock-solid-resilience%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuild-rock-solid-resilience%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbuild-rock-solid-resilience%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuild-rock-solid-resilience%2F)
 
 [More](#)
 

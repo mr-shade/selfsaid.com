@@ -77,15 +77,15 @@ If you’re looking for a dose of inspiration or a new way to think about the ch
 59.  “To all who serve or have served, we salute you – not only on Veterans Day but every day.” – Barack Obama
 60.  “In America, we don’t let our differences tear us apart. Not because we don’t have differences, but because we know that we’re stronger together than we are on our own.” – Barack Obama
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbarack-obama-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbarack-obama-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/barack-obama-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fbarack-obama-quotes-PIN.jpg&description=Elevate+your+day+with+Barack+Obama%27s+60+most+memorable+and+inspiring+quotes.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/barack-obama-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fbarack-obama-quotes-PIN.jpg&description=Elevate+your+day+with+Barack+Obama%27s+60+most+memorable+and+inspiring+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Inspiring+Quotes+by+Barack+Obama&url=https%3A%2F%2Fseffsaid.com%2Fbarack-obama-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Inspiring+Quotes+by+Barack+Obama&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbarack-obama-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbarack-obama-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbarack-obama-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbarack-obama-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbarack-obama-quotes%2F)
 
 [More](#)
 

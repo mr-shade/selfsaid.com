@@ -51,15 +51,15 @@ Time is a limited resource, far more precious than possessions. Making choices t
 
 Making these [choices sooner rather than later](/5-life-choices-you-will-regret-in-later-life) can have a ripple effect on your overall well-being. While it’s never too late to make a change, starting today allows you to experience the benefits more fully and for a longer time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flife-choices-you-will-wish-you-made-sooner%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flife-choices-you-will-wish-you-made-sooner%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/life-choices-you-will-wish-you-made-sooner/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FLife-Choices-Made-Sooner-PIN.jpg&description=This+surprising+list+of+eight+life+choices+could+have+changed+your+life+if+you+had+only+made+them+sooner.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/life-choices-you-will-wish-you-made-sooner/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FLife-Choices-Made-Sooner-PIN.jpg&description=This+surprising+list+of+eight+life+choices+could+have+changed+your+life+if+you+had+only+made+them+sooner.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Life+Choices+You%E2%80%99ll+Wish+You+Made+Sooner&url=https%3A%2F%2Fseffsaid.com%2Flife-choices-you-will-wish-you-made-sooner%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Life+Choices+You%E2%80%99ll+Wish+You+Made+Sooner&url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-choices-you-will-wish-you-made-sooner%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flife-choices-you-will-wish-you-made-sooner%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-choices-you-will-wish-you-made-sooner%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flife-choices-you-will-wish-you-made-sooner%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-choices-you-will-wish-you-made-sooner%2F)
 
 [More](#)
 

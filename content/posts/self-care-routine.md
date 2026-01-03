@@ -76,15 +76,15 @@ You don’t need a perfect routine. You don’t need to do everything every day.
 
 Start small. Stay kind to yourself. You’re allowed to feel better.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-care-routine%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-routine%2F)
 
 Pin2
 
-[Tweet](https://twitter.com/intent/tweet?text=A+Gentle+Self-Care+Routine+for+Real+Life+%28That+Actually+Feels+Good%29&url=https%3A%2F%2Fseffsaid.com%2Fself-care-routine%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=A+Gentle+Self-Care+Routine+for+Real+Life+%28That+Actually+Feels+Good%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-routine%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-care-routine%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-routine%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-care-routine%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-routine%2F)
 
 [More](#)
 

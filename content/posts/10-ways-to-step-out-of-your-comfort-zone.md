@@ -64,15 +64,15 @@ Another great way to step out of your comfort zone… if you find yourself sitti
 
 No, I don’t mean start reading about aliens! People tend to choose a new book in a familiar or favourite genre. Next time you are looking for a new book, try picking a genre you’ve never read before.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F10-ways-to-step-out-of-your-comfort-zone%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-step-out-of-your-comfort-zone%2F)
 
 Pin30
 
-[Tweet](https://twitter.com/intent/tweet?text=Discover+10+gentle+ways+to+get+yourself+moving+out+of+your+comfort+zone.+Always+remember%3A+the+risks+of+stepping+out+of+your+comfort+zone+aren%27t+nearly+as+bad+as+the+risks+of+staying+in+it+for+your+whole+life.&url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-step-out-of-your-comfort-zone%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Discover+10+gentle+ways+to+get+yourself+moving+out+of+your+comfort+zone.+Always+remember%3A+the+risks+of+stepping+out+of+your+comfort+zone+aren%27t+nearly+as+bad+as+the+risks+of+staying+in+it+for+your+whole+life.&url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-step-out-of-your-comfort-zone%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-step-out-of-your-comfort-zone%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-step-out-of-your-comfort-zone%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-step-out-of-your-comfort-zone%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-step-out-of-your-comfort-zone%2F)
 
 [More](#)
 

@@ -76,15 +76,15 @@ We all have people in our lives who we find difficult to deal with or ask too mu
 
 Doing one thing at a time is the simplest and quickest way to start reducing your stress levels. No more multi-tasking, just perform one task at a time. Need to pay some bills, wash clothes or make dinner? Do only one of these jobs at a time. Preparing a meal while simultaneously making a phone call and loading the dishwasher is a recipe to send your stress levels through the roof. Focusing on just one task will take practice and some self-control, but keep practicing and your stress level will reap the benefits.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-reduce-stress%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-reduce-stress%2F)
 
 Pin10
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Reduce+Stress+Naturally&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-reduce-stress%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Reduce+Stress+Naturally&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-reduce-stress%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-reduce-stress%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-reduce-stress%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-reduce-stress%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-reduce-stress%2F)
 
 [More](#)
 

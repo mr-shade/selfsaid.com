@@ -65,15 +65,15 @@ Dua Lipa is known not just for her music but for her inspiring quotes. These wor
 *   “Chase your dreams with passion and purpose.” — Dua Lipa
 *   “Stay true to your roots, but don’t be afraid to evolve.” — Dua Lipa
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdua-lipa-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdua-lipa-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/dua-lipa-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FDua-Lipa-quotes-PIN.jpg&description=Get+inspired+by+Dua+Lipa%27s+best+quotes+that+capture+her+fearless+attitude+and+unwavering+commitment+to+being+true+to+herself.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/dua-lipa-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FDua-Lipa-quotes-PIN.jpg&description=Get+inspired+by+Dua+Lipa%27s+best+quotes+that+capture+her+fearless+attitude+and+unwavering+commitment+to+being+true+to+herself.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Dua+Lipa%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fdua-lipa-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Dua+Lipa%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdua-lipa-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdua-lipa-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdua-lipa-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdua-lipa-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdua-lipa-quotes%2F)
 
 [More](#)
 

@@ -65,15 +65,15 @@ J.K. Rowling’s words have touched the hearts of millions around the world. Bel
 49.  “Understanding is the first step to acceptance, and only with acceptance can there be recovery.” – J.K. Rowling
 50.  “I think you have a moral responsibility when you’ve been given far more than you need, to do wise things with it and give intelligently.” – J.K. Rowling
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fj-k-rowling-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fj-k-rowling-quotes%2F)
 
-[Pin31](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/j-k-rowling-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FJ-K-Rowling-Quotes-PIN.jpg&description=Enjoy+this+compilation+of+J.K.+Rowling%27s+most+uplifting+and+thought-provoking+quotes.+via+%40SeffSaid)
+[Pin31](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/j-k-rowling-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FJ-K-Rowling-Quotes-PIN.jpg&description=Enjoy+this+compilation+of+J.K.+Rowling%27s+most+uplifting+and+thought-provoking+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=J.K.+Rowling%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fj-k-rowling-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=J.K.+Rowling%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fj-k-rowling-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fj-k-rowling-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fj-k-rowling-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fj-k-rowling-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fj-k-rowling-quotes%2F)
 
 [More](#)
 

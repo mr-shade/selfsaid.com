@@ -109,15 +109,15 @@ If you often focus on the negatives rather than the positives, it’s a good ide
 89.  “Life is a journey. Enjoy the ride.” – Anonymous
 90.  “You have every right to a beautiful life.” – [Selena Gomez](/selena-gomez-quotes)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbest-inspirational-life-quotes-of-all-time%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbest-inspirational-life-quotes-of-all-time%2F)
 
-[Pin208](https://pinterest.com/pin/create/button/?url=/best-inspirational-life-quotes-of-all-time/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Finspirational-quotes-about-life-PIN.jpg&description=Let+these+90+inspirational+quotes+about+life+uplift+and+guide+you+toward+a+more+positive+mindset.+via+%40SeffSaid)
+[Pin208](https://pinterest.com/pin/create/button/?url=/best-inspirational-life-quotes-of-all-time/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Finspirational-quotes-about-life-PIN.jpg&description=Let+these+90+inspirational+quotes+about+life+uplift+and+guide+you+toward+a+more+positive+mindset.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=90+Inspirational+Quotes+About+Life&url=https%3A%2F%2Fseffsaid.com%2Fbest-inspirational-life-quotes-of-all-time%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=90+Inspirational+Quotes+About+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbest-inspirational-life-quotes-of-all-time%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbest-inspirational-life-quotes-of-all-time%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbest-inspirational-life-quotes-of-all-time%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbest-inspirational-life-quotes-of-all-time%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbest-inspirational-life-quotes-of-all-time%2F)
 
 [More](#)
 

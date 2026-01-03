@@ -42,15 +42,15 @@ Opposite to the point above, if you’re always expecting people to fail or to t
 
 People very rarely behave and act in the way you expect them to, so just hope for the best and allow time for a new relationship to develop by focusing on the positive aspects of the people in your life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F5-things-you-should-stop-expecting-from-other-people%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F5-things-you-should-stop-expecting-from-other-people%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/5-things-you-should-stop-expecting-from-other-people/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FStop-Expecting-PIN.jpg&description=Five+things+you+should+stop+expecting+from+other+people+if+you+wish+to+enjoy+happy+and+successful+lifelong+relationships.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/5-things-you-should-stop-expecting-from-other-people/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FStop-Expecting-PIN.jpg&description=Five+things+you+should+stop+expecting+from+other+people+if+you+wish+to+enjoy+happy+and+successful+lifelong+relationships.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=5+Things+You+Should+Stop+Expecting+From+Other+People&url=https%3A%2F%2Fseffsaid.com%2F5-things-you-should-stop-expecting-from-other-people%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=5+Things+You+Should+Stop+Expecting+From+Other+People&url=https%3A%2F%2Fselfsaid.30tools.com%2F5-things-you-should-stop-expecting-from-other-people%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F5-things-you-should-stop-expecting-from-other-people%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-things-you-should-stop-expecting-from-other-people%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F5-things-you-should-stop-expecting-from-other-people%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-things-you-should-stop-expecting-from-other-people%2F)
 
 [More](#)
 

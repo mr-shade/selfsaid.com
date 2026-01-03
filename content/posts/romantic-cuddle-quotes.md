@@ -162,15 +162,15 @@ Cuddling brings comfort, warmth, and a sense of closeness that words often strug
 144.  “You are my safe place, my home, my forever cuddle.”
 145.  “I don’t just love you, I love every hug, every cuddle, every moment wrapped up in you.”
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fromantic-cuddle-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fromantic-cuddle-quotes%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=/romantic-cuddle-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fromantic-cuddle-quotes-PIN.jpg&description=These+romantic+cuddle+quotes+capture+the+feeling+of+hugging+someone+special+and+never+wanting+to+let+go.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=/romantic-cuddle-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fromantic-cuddle-quotes-PIN.jpg&description=These+romantic+cuddle+quotes+capture+the+feeling+of+hugging+someone+special+and+never+wanting+to+let+go.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=145+Romantic+Cuddle+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fromantic-cuddle-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=145+Romantic+Cuddle+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fromantic-cuddle-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fromantic-cuddle-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fromantic-cuddle-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fromantic-cuddle-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fromantic-cuddle-quotes%2F)
 
 [More](#)
 

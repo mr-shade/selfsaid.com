@@ -62,15 +62,15 @@ Building a habit takes time. Some days may feel easier than others, but that’s
 
 Remember, a [self-care routine](/daily-self-care-routine-for-busy-people) is not about doing everything perfectly. It is about giving yourself steady points in the day where you can pause, recharge, and feel more like yourself. Start with one small habit that feels possible, then build from there. Over time, those small choices will add up to a routine that truly supports you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcreate-a-self-care-routine-that-works%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-a-self-care-routine-that-works%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/create-a-self-care-routine-that-works/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fself-care-routine-PIN.jpg&description=How+to+create+a+simple+self-care+routine+that+fits+your+daily+life.+Build+habits+to+reduce+stress%2C+restore+energy%2C+and+improve+well-being.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/create-a-self-care-routine-that-works/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fself-care-routine-PIN.jpg&description=How+to+create+a+simple+self-care+routine+that+fits+your+daily+life.+Build+habits+to+reduce+stress%2C+restore+energy%2C+and+improve+well-being.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Create+A+Self-Care+Routine+That+Works&url=https%3A%2F%2Fseffsaid.com%2Fcreate-a-self-care-routine-that-works%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Create+A+Self-Care+Routine+That+Works&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-a-self-care-routine-that-works%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcreate-a-self-care-routine-that-works%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-a-self-care-routine-that-works%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcreate-a-self-care-routine-that-works%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-a-self-care-routine-that-works%2F)
 
 [More](#)
 

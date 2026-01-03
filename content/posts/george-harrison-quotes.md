@@ -71,15 +71,15 @@ This article compiles 50 of his most memorable quotes, covering topics from love
 49.  “Death is just where your suit falls off and now you’re in your other suit. You can’t see it on this level, but it’s all right. Don’t worry.” – George Harrison
 50.  “Understanding yourself is the key to understanding everything else.” – George Harrison
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fgeorge-harrison-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgeorge-harrison-quotes%2F)
 
-[Pin14](https://pinterest.com/pin/create/button/?url=/george-harrison-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FGeorge-Harrison-Quotes-PIN.jpg&description=Discover+50+George+Harrison+quotes+that+offer+his+unique+perspective+on+life%2C+love%2C+and+everything+in+between.+via+%40SeffSaid)
+[Pin14](https://pinterest.com/pin/create/button/?url=/george-harrison-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FGeorge-Harrison-Quotes-PIN.jpg&description=Discover+50+George+Harrison+quotes+that+offer+his+unique+perspective+on+life%2C+love%2C+and+everything+in+between.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=George+Harrison%27s+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fgeorge-harrison-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=George+Harrison%27s+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fgeorge-harrison-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fgeorge-harrison-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgeorge-harrison-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fgeorge-harrison-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgeorge-harrison-quotes%2F)
 
 [More](#)
 

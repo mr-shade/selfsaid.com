@@ -66,15 +66,15 @@ Start with less, stay with what feels right, and let that be enough.
 
 – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fminimalist-self-care%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fminimalist-self-care%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/minimalist-self-care/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fminimalist-self-care-PIN.jpg&description=Discover+how+minimalist+self-care+helps+you+feel+better+by+doing+less.+Simple%2C+calming+habits+that+support+your+well-being+without+overwhelm.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/minimalist-self-care/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fminimalist-self-care-PIN.jpg&description=Discover+how+minimalist+self-care+helps+you+feel+better+by+doing+less.+Simple%2C+calming+habits+that+support+your+well-being+without+overwhelm.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Minimalist+Self-Care%3A+Why+Less+Can+Feel+Like+More&url=https%3A%2F%2Fseffsaid.com%2Fminimalist-self-care%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Minimalist+Self-Care%3A+Why+Less+Can+Feel+Like+More&url=https%3A%2F%2Fselfsaid.30tools.com%2Fminimalist-self-care%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fminimalist-self-care%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fminimalist-self-care%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fminimalist-self-care%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fminimalist-self-care%2F)
 
 [More](#)
 

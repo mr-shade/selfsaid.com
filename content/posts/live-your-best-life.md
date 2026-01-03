@@ -63,15 +63,15 @@ $4.99 – Instant Download
 
 [Add To Cart](https://payhip.com/b/oabZX)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flive-your-best-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flive-your-best-life%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=/live-your-best-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSEFFSAID-Live-Your-Best-Life-PIN.jpg&description=Brighten+your+surroundings+and+your+spirit+with+our+exclusive+%22Live+Your+Best+Life%22+printable+quote+available+for+instant+download.+via+%40SeffSaid)
+[Pin](https://pinterest.com/pin/create/button/?url=/live-your-best-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSEFFSAID-Live-Your-Best-Life-PIN.jpg&description=Brighten+your+surroundings+and+your+spirit+with+our+exclusive+%22Live+Your+Best+Life%22+printable+quote+available+for+instant+download.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Live+Your+Best+Life+Printable+Quote&url=https%3A%2F%2Fseffsaid.com%2Flive-your-best-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Live+Your+Best+Life+Printable+Quote&url=https%3A%2F%2Fselfsaid.30tools.com%2Flive-your-best-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flive-your-best-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flive-your-best-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flive-your-best-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flive-your-best-life%2F)
 
 [More](#)
 

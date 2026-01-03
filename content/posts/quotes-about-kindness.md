@@ -107,15 +107,15 @@ Here’s a collection of 88 quotes about kindness, each offering a unique perspe
 87.  “Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.” – Lao Tzu
 88.  “No act of kindness, no matter how small, is ever wasted.” – Aesop
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-kindness%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-kindness%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/quotes-about-kindness/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-about-kindness-PIN.jpg&description=88+quotes+about+kindness%2C+each+offering+a+unique+perspective+on+the+power+and+impact+of+kindness+in+our+lives.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/quotes-about-kindness/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-about-kindness-PIN.jpg&description=88+quotes+about+kindness%2C+each+offering+a+unique+perspective+on+the+power+and+impact+of+kindness+in+our+lives.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=88+Inspirational+Kindness+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-kindness%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=88+Inspirational+Kindness+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-kindness%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-kindness%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-kindness%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-kindness%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-kindness%2F)
 
 [More](#)
 

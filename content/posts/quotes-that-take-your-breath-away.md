@@ -78,15 +78,15 @@ Sometimes, quotes can just hit different, stop you in your tracks, and make you 
 *   “The only thing necessary for the triumph of evil is for good men to do nothing.” — Edmund Burke
 *   “It’s not whether you get knocked down, it’s whether you get up.” — Vince Lombardi
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-that-take-your-breath-away%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-take-your-breath-away%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/quotes-that-take-your-breath-away/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FQuotes-That-Take-Your-Breath-Away-PIN.jpg&description=Discover+a+collection+of+quotes+so+poignant+and+profound+that+they+will+take+your+breath+away.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/quotes-that-take-your-breath-away/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FQuotes-That-Take-Your-Breath-Away-PIN.jpg&description=Discover+a+collection+of+quotes+so+poignant+and+profound+that+they+will+take+your+breath+away.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=58+Quotes+That+Take+Your+Breath+Away&url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-take-your-breath-away%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=58+Quotes+That+Take+Your+Breath+Away&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-take-your-breath-away%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-take-your-breath-away%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-take-your-breath-away%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-take-your-breath-away%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-take-your-breath-away%2F)
 
 [More](#)
 

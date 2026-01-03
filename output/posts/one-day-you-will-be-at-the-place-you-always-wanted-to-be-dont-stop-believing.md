@@ -29,15 +29,15 @@ Warm regards,
 
 Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fone-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fone-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FOne-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg&description=Explore+our+concise+meaning+of+the+quote+%27One+day+you+will+be+at+the+place+you+always+wanted+to+be.+Don%27t+stop+believing%2C%27+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FOne-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg&description=Explore+our+concise+meaning+of+the+quote+%27One+day+you+will+be+at+the+place+you+always+wanted+to+be.+Don%27t+stop+believing%2C%27+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=One+Day+You+Will+Be+At+The+Place+You+Always+Wanted+To+Be.+Don%27t+Stop+Believing&url=https%3A%2F%2Fseffsaid.com%2Fone-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=One+Day+You+Will+Be+At+The+Place+You+Always+Wanted+To+Be.+Don%27t+Stop+Believing&url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fone-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fone-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing%2F)
 
 [More](#)
 

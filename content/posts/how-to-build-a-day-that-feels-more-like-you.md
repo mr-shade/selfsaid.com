@@ -55,15 +55,15 @@ And that beginning can start with one small thing.
 
 Because even one honest moment in your day can make the rest of it feel different.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-build-a-day-that-feels-more-like-you%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-build-a-day-that-feels-more-like-you%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/how-to-build-a-day-that-feels-more-like-you/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhow-to-build-a-day-pin.jpg&description=Ever+feel+like+you%E2%80%99re+getting+through+the+day+but+not+really+part+of+it%3F+This+post+shares+practical%2C+grounding+ways+to+create+a+daily+rhythm+that+feels+more+like+you+-+with+less+noise%2C+more+clarity%2C+and+small+habits+that+reconnect+you+with+what+matters.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/how-to-build-a-day-that-feels-more-like-you/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhow-to-build-a-day-pin.jpg&description=Ever+feel+like+you%E2%80%99re+getting+through+the+day+but+not+really+part+of+it%3F+This+post+shares+practical%2C+grounding+ways+to+create+a+daily+rhythm+that+feels+more+like+you+-+with+less+noise%2C+more+clarity%2C+and+small+habits+that+reconnect+you+with+what+matters.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+to+Build+a+Day+That+Feels+More+Like+You&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-build-a-day-that-feels-more-like-you%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+to+Build+a+Day+That+Feels+More+Like+You&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-build-a-day-that-feels-more-like-you%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-build-a-day-that-feels-more-like-you%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-build-a-day-that-feels-more-like-you%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-build-a-day-that-feels-more-like-you%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-build-a-day-that-feels-more-like-you%2F)
 
 [More](#)
 

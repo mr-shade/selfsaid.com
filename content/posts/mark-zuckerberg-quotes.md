@@ -67,15 +67,15 @@ Mark Zuckerberg is known not only for being the founder of FaceBook but also for
 49.  “The biggest part of our job is making decisions. We constantly have to decide what to focus on.” – Mark Zuckerberg
 50.  “Understanding people is not a waste of time.” – Mark Zuckerberg
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmark-zuckerberg-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmark-zuckerberg-quotes%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=/mark-zuckerberg-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMark-Zuckerberg-Quotes-PIN.jpg&description=Learn+what+drives+one+of+the+world%27s+most+successful+entrepreneurs+by+reading+this+collection+of+Mark+Zuckerberg%27s+best+quotes.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=/mark-zuckerberg-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMark-Zuckerberg-Quotes-PIN.jpg&description=Learn+what+drives+one+of+the+world%27s+most+successful+entrepreneurs+by+reading+this+collection+of+Mark+Zuckerberg%27s+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Mark+Zuckerberg%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fmark-zuckerberg-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Mark+Zuckerberg%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmark-zuckerberg-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmark-zuckerberg-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmark-zuckerberg-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmark-zuckerberg-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmark-zuckerberg-quotes%2F)
 
 [More](#)
 

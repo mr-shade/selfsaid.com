@@ -57,15 +57,15 @@ Explore the mind of Mike Tyson through this handpicked selection of 38 of his be
 
 Read more [quotes written by famous people](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmike-tyson-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmike-tyson-quotes%2F)
 
-[Pin32](https://pinterest.com/pin/create/button/?url=/mike-tyson-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMike-Tyson-Quotes-PIN.jpg&description=Mike+Tyson%27s+best+quotes+that+offer+an+insight+into+the+mind+of+a+boxing+legend.+via+%40SeffSaid)
+[Pin32](https://pinterest.com/pin/create/button/?url=/mike-tyson-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMike-Tyson-Quotes-PIN.jpg&description=Mike+Tyson%27s+best+quotes+that+offer+an+insight+into+the+mind+of+a+boxing+legend.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Mike+Tyson%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fmike-tyson-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Mike+Tyson%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmike-tyson-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmike-tyson-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmike-tyson-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmike-tyson-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmike-tyson-quotes%2F)
 
 [More](#)
 

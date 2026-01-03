@@ -52,15 +52,15 @@ Fear frequently acts as a barrier to action. Visualize what you’d pursue if fe
 
 The way you frame your challenges can significantly influence how you address them. Asking these questions fosters self-awareness and shifts focus toward actionable solutions. Each one encourages critical thinking and provides clarity, helping you turn obstacles into opportunities for growth.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquestions-problems%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-problems%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/questions-problems/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquestions-problems-PIN.jpg&description=Explore+a+fresh+way+of+thinking+about+your+problems+by+asking+the+questions+that+truly+matter.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/questions-problems/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquestions-problems-PIN.jpg&description=Explore+a+fresh+way+of+thinking+about+your+problems+by+asking+the+questions+that+truly+matter.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Questions+That+Will+Change+The+Way+You+Think+About+Your+Problems&url=https%3A%2F%2Fseffsaid.com%2Fquestions-problems%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Questions+That+Will+Change+The+Way+You+Think+About+Your+Problems&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-problems%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquestions-problems%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-problems%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquestions-problems%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-problems%2F)
 
 [More](#)
 

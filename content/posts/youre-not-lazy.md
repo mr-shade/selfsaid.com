@@ -90,15 +90,15 @@ Not every day has to be productive. Not every moment needs to be a step forward.
 
 And that is not laziness. That is healing.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fyoure-not-lazy%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyoure-not-lazy%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/youre-not-lazy/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fyoure-not-lazy-PIN.jpg&description=Feeling+unmotivated+and+calling+yourself+lazy%3F+You%E2%80%99re+not.+This+article+explores+how+emotional+pressure%2C+burnout%2C+and+mental+fatigue+can+drain+your+energy%2C+and+what+to+do+about+it.+A+must-read+for+anyone+feeling+tired%2C+stuck%2C+or+overwhelmed.++via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/youre-not-lazy/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fyoure-not-lazy-PIN.jpg&description=Feeling+unmotivated+and+calling+yourself+lazy%3F+You%E2%80%99re+not.+This+article+explores+how+emotional+pressure%2C+burnout%2C+and+mental+fatigue+can+drain+your+energy%2C+and+what+to+do+about+it.+A+must-read+for+anyone+feeling+tired%2C+stuck%2C+or+overwhelmed.++via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=You%E2%80%99re+Not+Lazy.+You%E2%80%99re+Carrying+Too+Much&url=https%3A%2F%2Fseffsaid.com%2Fyoure-not-lazy%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=You%E2%80%99re+Not+Lazy.+You%E2%80%99re+Carrying+Too+Much&url=https%3A%2F%2Fselfsaid.30tools.com%2Fyoure-not-lazy%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fyoure-not-lazy%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyoure-not-lazy%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fyoure-not-lazy%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyoure-not-lazy%2F)
 
 [More](#)
 

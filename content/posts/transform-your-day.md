@@ -58,15 +58,15 @@ Spend a moment each day reflecting on what you’re thankful for. This simple ha
 
 Incorporating these ideas into your routine doesn’t require drastic effort. Each tip serves as a step toward making your day smoother, more productive, and more enjoyable. By trying them out, you’re likely to discover which ones work best for your lifestyle and needs.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftransform-your-day%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftransform-your-day%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/transform-your-day/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Flife-hacks-PIN.jpg&description=Learn+how+to+take+your+daily+routine+to+the+next+level+with+these+10+game-changing+life+hacks.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/transform-your-day/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Flife-hacks-PIN.jpg&description=Learn+how+to+take+your+daily+routine+to+the+next+level+with+these+10+game-changing+life+hacks.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Life+Hacks+That+Will+Transform+Your+Day&url=https%3A%2F%2Fseffsaid.com%2Ftransform-your-day%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Life+Hacks+That+Will+Transform+Your+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftransform-your-day%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftransform-your-day%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftransform-your-day%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftransform-your-day%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftransform-your-day%2F)
 
 [More](#)
 

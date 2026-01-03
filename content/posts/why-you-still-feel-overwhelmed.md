@@ -120,15 +120,15 @@ You’ve already made space on the outside. Now it’s time to release what you�
 
 The calm you’re looking for is not far away. It’s underneath everything you thought you had to keep carrying.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fwhy-you-still-feel-overwhelmed%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-you-still-feel-overwhelmed%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/why-you-still-feel-overwhelmed/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fwhy-you-still-feel-overwhelmed-PIN.jpg&description=You%E2%80%99ve+simplified+your+life+but+still+feel+mentally+overloaded.+This+post+explains+why+that+lingering+overwhelm+is+still+with+you%2C+and+what+to+do+about+it.+A+must-read+for+anyone+feeling+exhausted+despite+slowing+down.+%23EmotionalWellness+%23SelfCare+%23MentalHealth+%23Overwhelm+%23SlowLiving+%23Minimalism+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/why-you-still-feel-overwhelmed/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fwhy-you-still-feel-overwhelmed-PIN.jpg&description=You%E2%80%99ve+simplified+your+life+but+still+feel+mentally+overloaded.+This+post+explains+why+that+lingering+overwhelm+is+still+with+you%2C+and+what+to+do+about+it.+A+must-read+for+anyone+feeling+exhausted+despite+slowing+down.+%23EmotionalWellness+%23SelfCare+%23MentalHealth+%23Overwhelm+%23SlowLiving+%23Minimalism+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Why+You+Still+Feel+Overwhelmed+%28and+What+to+Do+About+It%29&url=https%3A%2F%2Fseffsaid.com%2Fwhy-you-still-feel-overwhelmed%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Why+You+Still+Feel+Overwhelmed+%28and+What+to+Do+About+It%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-you-still-feel-overwhelmed%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fwhy-you-still-feel-overwhelmed%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-you-still-feel-overwhelmed%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fwhy-you-still-feel-overwhelmed%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-you-still-feel-overwhelmed%2F)
 
 [More](#)
 

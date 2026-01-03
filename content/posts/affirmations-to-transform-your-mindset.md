@@ -62,15 +62,15 @@ When practicing affirmations, it’s essential to focus on the present tense and
 
 Affirmations are a simple yet powerful way to shape your perspective. By practicing them regularly and with intention, you can gradually shift your mindset toward positivity and growth. Choose a few affirmations from this list or create your own, and commit to making them a part of your daily life. Over time, these positive statements can help you build confidence, overcome challenges, and focus on what truly matters.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Faffirmations-to-transform-your-mindset%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Faffirmations-to-transform-your-mindset%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/affirmations-to-transform-your-mindset/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Faffirmations-mindset-PIN.jpg&description=Unlock+the+secret+to+a+happier+mindset+with+15+affirmations+designed+to+uplift+and+empower+your+thinking.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/affirmations-to-transform-your-mindset/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Faffirmations-mindset-PIN.jpg&description=Unlock+the+secret+to+a+happier+mindset+with+15+affirmations+designed+to+uplift+and+empower+your+thinking.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=15+Powerful+Affirmations+To+Transform+Your+Mindset&url=https%3A%2F%2Fseffsaid.com%2Faffirmations-to-transform-your-mindset%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=15+Powerful+Affirmations+To+Transform+Your+Mindset&url=https%3A%2F%2Fselfsaid.30tools.com%2Faffirmations-to-transform-your-mindset%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Faffirmations-to-transform-your-mindset%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Faffirmations-to-transform-your-mindset%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Faffirmations-to-transform-your-mindset%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Faffirmations-to-transform-your-mindset%2F)
 
 [More](#)
 

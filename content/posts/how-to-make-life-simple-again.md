@@ -68,15 +68,15 @@ Each time life begins to feel complicated, pause and ask, what can I simplify ri
 
 When you simplify what you can, even a little, your mind follows. You start to see more clearly, breathe more deeply, and live more intentionally. A simpler life isn’t somewhere else waiting to be found. It begins exactly where you are, one calm choice at a time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-life-simple-again%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-life-simple-again%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/how-to-make-life-simple-again/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FHow-to-Make-Life-Simple-Again-PIN2.jpg&description=Feeling+overwhelmed%3F+Learn+how+to+make+life+feel+simpler+and+lighter+again.+Discover+five+meaningful+ways+to+clear+space%2C+quiet+the+noise%2C+and+return+to+what+matters+most.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/how-to-make-life-simple-again/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FHow-to-Make-Life-Simple-Again-PIN2.jpg&description=Feeling+overwhelmed%3F+Learn+how+to+make+life+feel+simpler+and+lighter+again.+Discover+five+meaningful+ways+to+clear+space%2C+quiet+the+noise%2C+and+return+to+what+matters+most.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+to+Make+Life+Simple+Again&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-life-simple-again%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+to+Make+Life+Simple+Again&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-life-simple-again%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-life-simple-again%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-life-simple-again%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-life-simple-again%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-life-simple-again%2F)
 
 [More](#)
 

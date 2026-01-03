@@ -80,15 +80,15 @@ Your list can change with the seasons or your needs. The important thing is havi
 
 Self-care is not about spending more, it is about making choices that protect your well-being. Even if you can only do one small thing today, it counts. Over time, these small actions build into habits that help you feel more balanced, supported, and ready for what comes next.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-care-on-a-budget%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-on-a-budget%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/self-care-on-a-budget/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fself-care-on-a-budget-PIN.jpg&description=Discover+simple+ways+to+take+care+of+yourself+without+spending+a+fortune+with+these+budget-friendly+self-care+tips.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/self-care-on-a-budget/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fself-care-on-a-budget-PIN.jpg&description=Discover+simple+ways+to+take+care+of+yourself+without+spending+a+fortune+with+these+budget-friendly+self-care+tips.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Self-Care+on+a+Budget%3A+Everyday+Habits+That+Cost+Nothing&url=https%3A%2F%2Fseffsaid.com%2Fself-care-on-a-budget%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Self-Care+on+a+Budget%3A+Everyday+Habits+That+Cost+Nothing&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-on-a-budget%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-care-on-a-budget%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-on-a-budget%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-care-on-a-budget%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-on-a-budget%2F)
 
 [More](#)
 

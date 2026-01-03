@@ -92,15 +92,15 @@ You don’t have to fix everything overnight. Just notice. Start gently. Offer y
 
 If you’re looking for small, real-life ways to care for yourself, start with [my Everyday Self-Care Routine](/everyday-self-care-routine). You deserve to feel better.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Freasons-feel-tired%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-feel-tired%2F)
 
 Pin2
 
-[Tweet](https://twitter.com/intent/tweet?text=7+Reasons+You+Might+Feel+Tired+All+the+Time+%28That+Have+Nothing+to+Do+with+Sleep%29&url=https%3A%2F%2Fseffsaid.com%2Freasons-feel-tired%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=7+Reasons+You+Might+Feel+Tired+All+the+Time+%28That+Have+Nothing+to+Do+with+Sleep%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-feel-tired%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Freasons-feel-tired%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-feel-tired%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Freasons-feel-tired%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-feel-tired%2F)
 
 [More](#)
 

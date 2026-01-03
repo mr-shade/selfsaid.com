@@ -67,15 +67,15 @@ This article compiles 50 quotes from Billie Eilish that shed light on her views 
 
 Read more [quotes by famous people](https://seffsaid.com/quotes-by-famous-people/) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbillie-eilish-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbillie-eilish-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/billie-eilish-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBillie-Eilish-Quotes-PIN.jpg&description=Explore+the+mind+of+a+music+icon+through+this+collection+of+50+Billie+Eilish%27s+quotes+on+life%2C+love+and+music.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/billie-eilish-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBillie-Eilish-Quotes-PIN.jpg&description=Explore+the+mind+of+a+music+icon+through+this+collection+of+50+Billie+Eilish%27s+quotes+on+life%2C+love+and+music.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Billie+Eilish+Quotes+on+Life%2C+Love+and+Music&url=https%3A%2F%2Fseffsaid.com%2Fbillie-eilish-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Billie+Eilish+Quotes+on+Life%2C+Love+and+Music&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbillie-eilish-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbillie-eilish-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbillie-eilish-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbillie-eilish-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbillie-eilish-quotes%2F)
 
 [More](#)
 

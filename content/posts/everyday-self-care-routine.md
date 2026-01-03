@@ -77,15 +77,15 @@ You don’t have to do all seven. Maybe today, you just drink the water. Or sit 
 
 If you’re there too, maybe start with just one.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Feveryday-self-care-routine%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Feveryday-self-care-routine%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/everyday-self-care-routine/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FEveryday-Self-Care-Routine-PIN2.jpg&description=Looking+for+a+self-care+routine+you+can+actually+keep%3F+These+7+everyday+habits+helped+me+move+from+burnout+to+balance%2C+with+no+fancy+tools%2C+no+early+wakeups%2C+and+no+guilt.+A+minimalist%2C+real-life+guide+to+self-care+that+feels+doable+and+grounding.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/everyday-self-care-routine/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FEveryday-Self-Care-Routine-PIN2.jpg&description=Looking+for+a+self-care+routine+you+can+actually+keep%3F+These+7+everyday+habits+helped+me+move+from+burnout+to+balance%2C+with+no+fancy+tools%2C+no+early+wakeups%2C+and+no+guilt.+A+minimalist%2C+real-life+guide+to+self-care+that+feels+doable+and+grounding.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+Everyday+Self-Care+Routine%3A+7+Habits+That+Actually+Stick&url=https%3A%2F%2Fseffsaid.com%2Feveryday-self-care-routine%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+Everyday+Self-Care+Routine%3A+7+Habits+That+Actually+Stick&url=https%3A%2F%2Fselfsaid.30tools.com%2Feveryday-self-care-routine%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Feveryday-self-care-routine%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Feveryday-self-care-routine%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Feveryday-self-care-routine%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Feveryday-self-care-routine%2F)
 
 [More](#)
 

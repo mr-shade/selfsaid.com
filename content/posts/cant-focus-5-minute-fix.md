@@ -40,15 +40,15 @@ So if you can’t focus today, don’t fight your way through it. Step back. Sit
 
 Then return to what matters, one thing at a time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcant-focus-5-minute-fix%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcant-focus-5-minute-fix%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/cant-focus-5-minute-fix/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fcant-focus-5-minute-fix-PIN.jpg&description=Struggling+to+concentrate%3F+This+simple+5-minute+reset+can+help+calm+your+mind+and+bring+your+focus+back.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/cant-focus-5-minute-fix/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fcant-focus-5-minute-fix-PIN.jpg&description=Struggling+to+concentrate%3F+This+simple+5-minute+reset+can+help+calm+your+mind+and+bring+your+focus+back.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Can%E2%80%99t+Focus+Lately%3F+Try+This+5-Minute+Fix&url=https%3A%2F%2Fseffsaid.com%2Fcant-focus-5-minute-fix%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Can%E2%80%99t+Focus+Lately%3F+Try+This+5-Minute+Fix&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcant-focus-5-minute-fix%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcant-focus-5-minute-fix%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcant-focus-5-minute-fix%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcant-focus-5-minute-fix%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcant-focus-5-minute-fix%2F)
 
 [More](#)
 

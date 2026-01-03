@@ -70,15 +70,15 @@ Life is a series of choices, each with the potential to shape your future in sig
 
 Taking stock of where you are versus where you want to be can be a powerful step towards living a life free of regret. This means occasionally pausing, evaluating, and possibly redirecting your efforts and energies to align with what will bring you long-term happiness and fulfillment. Remember, it’s never too late to make changes or to start anew on a path that feels right for you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F5-life-choices-you-will-regret-in-later-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F5-life-choices-you-will-regret-in-later-life%2F)
 
-[Pin17](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/5-life-choices-you-will-regret-in-later-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F11%2Flife-choices-you-will-regret-in-later-life.jpg&description=Every+decision+we+make+has+the+potential+to+shape+our+future.+To+live+a+life+without+regrets%2C+steer+clear+of+these+five+common+life+choices.+via+%40SeffSaid)
+[Pin17](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/5-life-choices-you-will-regret-in-later-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F11%2Flife-choices-you-will-regret-in-later-life.jpg&description=Every+decision+we+make+has+the+potential+to+shape+our+future.+To+live+a+life+without+regrets%2C+steer+clear+of+these+five+common+life+choices.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=5+Life+Choices+You+Will+Regret+In+Later+Life&url=https%3A%2F%2Fseffsaid.com%2F5-life-choices-you-will-regret-in-later-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=5+Life+Choices+You+Will+Regret+In+Later+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2F5-life-choices-you-will-regret-in-later-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F5-life-choices-you-will-regret-in-later-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-life-choices-you-will-regret-in-later-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F5-life-choices-you-will-regret-in-later-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-life-choices-you-will-regret-in-later-life%2F)
 
 [More](#)
 

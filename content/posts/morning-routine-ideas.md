@@ -368,15 +368,15 @@ Let these insights and suggestions inspire you to craft a morning routine that a
 
 Embrace the potential that each morning holds. With the right morning routine, you can unlock a day filled with productivity, wellness, creativity, or whatever it is that you seek. Here’s to your journey in discovering the morning routine that empowers you to live each day to its fullest potential.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmorning-routine-ideas%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmorning-routine-ideas%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/morning-routine-ideas/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMorning-Routine-Ideas-PIN.jpg&description=Transform+your+mornings+and+unlock+a+more+productive%2C+balanced+day+by+exploring+and+implementing+these+tailored+morning+routine+ideas.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/morning-routine-ideas/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMorning-Routine-Ideas-PIN.jpg&description=Transform+your+mornings+and+unlock+a+more+productive%2C+balanced+day+by+exploring+and+implementing+these+tailored+morning+routine+ideas.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Morning+Routine+Ideas+for+Productivity+and+Wellness&url=https%3A%2F%2Fseffsaid.com%2Fmorning-routine-ideas%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Morning+Routine+Ideas+for+Productivity+and+Wellness&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmorning-routine-ideas%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmorning-routine-ideas%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmorning-routine-ideas%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmorning-routine-ideas%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmorning-routine-ideas%2F)
 
 [More](#)
 

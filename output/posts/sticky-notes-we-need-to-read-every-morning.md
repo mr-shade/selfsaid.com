@@ -69,15 +69,15 @@ Reading these notes every morning can set the tone for the day, but their true p
 
 While these sticky notes are small and simple, they hold immense power to reshape our mindset and, by extension, our day. By regularly engaging with these reminders, we can cultivate a more positive, proactive, and fulfilling approach to life’s daily journey. So, let these notes be your daily companions, guiding you gently towards a more balanced, mindful, and purposeful existence.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsticky-notes-we-need-to-read-every-morning%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsticky-notes-we-need-to-read-every-morning%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/sticky-notes-we-need-to-read-every-morning/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fsticky-notes-PIN.jpg&description=10+powerful+sticky+notes+to+read+each+morning+to+manifest+a+positive+mindset+and+a+super+productive+day.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/sticky-notes-we-need-to-read-every-morning/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fsticky-notes-PIN.jpg&description=10+powerful+sticky+notes+to+read+each+morning+to+manifest+a+positive+mindset+and+a+super+productive+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Sticky+Notes+We+Need+to+Read+Every+Morning&url=https%3A%2F%2Fseffsaid.com%2Fsticky-notes-we-need-to-read-every-morning%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Sticky+Notes+We+Need+to+Read+Every+Morning&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsticky-notes-we-need-to-read-every-morning%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsticky-notes-we-need-to-read-every-morning%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsticky-notes-we-need-to-read-every-morning%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsticky-notes-we-need-to-read-every-morning%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsticky-notes-we-need-to-read-every-morning%2F)
 
 [More](#)
 

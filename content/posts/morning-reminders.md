@@ -60,15 +60,15 @@ Choose one. Whisper it softly. Let it settle into your body before the day begin
 You are not behind. You are not too late. You are not alone.  
 Begin again, with care.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmorning-reminders%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmorning-reminders%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/morning-reminders/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmorning-reminders-PIN.jpg&description=Start+your+morning+with+gentle+reminders+that+bring+calm+and+clarity.+Let+go+of+pressure%2C+protect+your+peace%2C+and+begin+the+day+with+care+and+intention.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/morning-reminders/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmorning-reminders-PIN.jpg&description=Start+your+morning+with+gentle+reminders+that+bring+calm+and+clarity.+Let+go+of+pressure%2C+protect+your+peace%2C+and+begin+the+day+with+care+and+intention.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Things+You+Need+to+Remind+Yourself+of+When+You+Wake+Up&url=https%3A%2F%2Fseffsaid.com%2Fmorning-reminders%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Things+You+Need+to+Remind+Yourself+of+When+You+Wake+Up&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmorning-reminders%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmorning-reminders%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmorning-reminders%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmorning-reminders%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmorning-reminders%2F)
 
 [More](#)
 

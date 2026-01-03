@@ -79,15 +79,15 @@ Marriage is a bond built on love, trust, and the promise to stand by each other 
 *   “Marriage is the union of two good forgivers.” — Ruth Bell Graham
 *   “Love is not just looking at each other, it’s looking in the same direction.” — Antoine de Saint-Exupéry
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmarriage-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmarriage-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/marriage-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmarriage-quotes-PIN.jpg&description=Experience+the+beauty+and+depth+of+marriage+through+60+thoughtful+marriage+quotes+that+celebrate+the+power+of+true+partnership.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/marriage-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmarriage-quotes-PIN.jpg&description=Experience+the+beauty+and+depth+of+marriage+through+60+thoughtful+marriage+quotes+that+celebrate+the+power+of+true+partnership.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Marriage+Quotes+That+Celebrate+Love+and+Commitment&url=https%3A%2F%2Fseffsaid.com%2Fmarriage-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Marriage+Quotes+That+Celebrate+Love+and+Commitment&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmarriage-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmarriage-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmarriage-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmarriage-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmarriage-quotes%2F)
 
 [More](#)
 

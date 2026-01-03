@@ -69,15 +69,15 @@ Lady Gaga is known not only for her unique style and music, but also for her str
 
 Read more [quotes by famous singers](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flady-gaga-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flady-gaga-quotes%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=/lady-gaga-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FLady-Gaga-Quotes-PIN.jpg&description=50+of+Lady+Gaga%27s+best+quotes+that+showcase+her+wisdom%2C+humor%2C+and+indomitable+spirit.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=/lady-gaga-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FLady-Gaga-Quotes-PIN.jpg&description=50+of+Lady+Gaga%27s+best+quotes+that+showcase+her+wisdom%2C+humor%2C+and+indomitable+spirit.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Lady+Gaga%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Flady-gaga-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Lady+Gaga%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Flady-gaga-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flady-gaga-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flady-gaga-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flady-gaga-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flady-gaga-quotes%2F)
 
 [More](#)
 

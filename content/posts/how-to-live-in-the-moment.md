@@ -56,15 +56,15 @@ Find a personal word that you say to yourself when you notice you are overloaded
 
 The real secret to living in the moment is practice – you have probably spent your life up to this present moment allowing your mind to wander wherever it wants. Changing this habit and replacing it with a new way of thinking will take some time. But even the smallest effort will quickly be repaid with a new sense of calm and fulfillment. Take [small steps](/how-to-break-a-big-task-into-small-steps), make small changes and the rewards will be enormous.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-in-the-moment%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-in-the-moment%2F)
 
-[Pin101](https://pinterest.com/pin/create/button/?url=/how-to-live-in-the-moment/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FHow-To-Live-In-The-Moment-PIN.jpg&description=So+how+do+we+learn+how+to+live+in+the+moment+and+enjoy+the+now%3F+All+it+takes+is+a+little+practice%2C+a+little+commitment+and+these+five+simple+techniques.+Click+through+to+read+the+full+article.+via+%40SeffSaid)
+[Pin101](https://pinterest.com/pin/create/button/?url=/how-to-live-in-the-moment/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FHow-To-Live-In-The-Moment-PIN.jpg&description=So+how+do+we+learn+how+to+live+in+the+moment+and+enjoy+the+now%3F+All+it+takes+is+a+little+practice%2C+a+little+commitment+and+these+five+simple+techniques.+Click+through+to+read+the+full+article.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Live+In+The+Moment+-+5+Simple+Techniques&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-in-the-moment%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Live+In+The+Moment+-+5+Simple+Techniques&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-in-the-moment%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-in-the-moment%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-in-the-moment%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-in-the-moment%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-in-the-moment%2F)
 
 [More](#)
 

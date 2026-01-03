@@ -52,15 +52,15 @@ Remember, it is okay if Mondays still feel heavy at times. What matters is that 
 
 Let Monday be a series of small, intentional acts of care. Over time, those acts add up, not just to easier Mondays, but to a life that feels more balanced and more your own.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmonday-blues%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmonday-blues%2F)
 
 Pin1
 
-[Tweet](https://twitter.com/intent/tweet?text=4+Ways+to+Beat+the+Monday+Blues&url=https%3A%2F%2Fseffsaid.com%2Fmonday-blues%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=4+Ways+to+Beat+the+Monday+Blues&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmonday-blues%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmonday-blues%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmonday-blues%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmonday-blues%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmonday-blues%2F)
 
 [More](#)
 

@@ -62,15 +62,15 @@ Answering these questions marks the beginning of deeper understanding. Recording
 
 Once clarity emerges, take intentional steps to integrate these values into daily routines. By thoughtfully exploring these questions and acting on the insights they provide, you can shape a fulfilling and intentional existence.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ffind-out-what-really-matters-to-you%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ffind-out-what-really-matters-to-you%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/find-out-what-really-matters-to-you/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fwhat-really-matters-PIN.jpg&description=These+ten+questions+are+the+key+to+aligning+your+life+with+your+deepest+priorities+and+personal+values.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/find-out-what-really-matters-to-you/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fwhat-really-matters-PIN.jpg&description=These+ten+questions+are+the+key+to+aligning+your+life+with+your+deepest+priorities+and+personal+values.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Find+Out+What+Really+Matters+To+You&url=https%3A%2F%2Fseffsaid.com%2Ffind-out-what-really-matters-to-you%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Find+Out+What+Really+Matters+To+You&url=https%3A%2F%2Fselfsaid.30tools.com%2Ffind-out-what-really-matters-to-you%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ffind-out-what-really-matters-to-you%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffind-out-what-really-matters-to-you%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ffind-out-what-really-matters-to-you%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffind-out-what-really-matters-to-you%2F)
 
 [More](#)
 

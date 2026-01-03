@@ -115,15 +115,15 @@ Today, I’m sharing my top 100 inspirational sayings about life. Inspirational 
 99.  “Go confidently in the direction of your dreams. Live the life you have imagined.” – Henry David Thoreau
 100.  “When you want to succeed as bad as you want to breathe, then you’ll be successful.” – Eric Thomas
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F100-best-inspirational-sayings-about-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F100-best-inspirational-sayings-about-life%2F)
 
 Pin97
 
-[Tweet](https://twitter.com/intent/tweet?text=100+Inspirational+Sayings+About+Life&url=https%3A%2F%2Fseffsaid.com%2F100-best-inspirational-sayings-about-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=100+Inspirational+Sayings+About+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2F100-best-inspirational-sayings-about-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F100-best-inspirational-sayings-about-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F100-best-inspirational-sayings-about-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F100-best-inspirational-sayings-about-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F100-best-inspirational-sayings-about-life%2F)
 
 [More](#)
 

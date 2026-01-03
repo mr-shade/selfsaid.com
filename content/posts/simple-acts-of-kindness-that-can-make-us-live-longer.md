@@ -59,15 +59,15 @@ Kindness is more than an act. It’s a way of being. Each time you choose it, wh
 
 The health benefits are real, but the deeper reward is the sense of peace that grows from knowing you’ve added something good to someone’s day. Start small. Offer a word, a smile, or a moment of your time. The smallest kindness can echo further than you’ll ever know.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsimple-acts-of-kindness-that-can-make-us-live-longer%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-acts-of-kindness-that-can-make-us-live-longer%2F)
 
-[Pin8](https://pinterest.com/pin/create/button/?url=/simple-acts-of-kindness-that-can-make-us-live-longer/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F11%2Fsimple-acts-of-kindess-make-you-live-longer.jpg&description=Kindness+benefits+both+body+and+mind.+Discover+how+small+acts+of+kindness+reduce+stress%2C+strengthen+connection%2C+and+bring+calm+to+everyday+life.+via+%40SeffSaid)
+[Pin8](https://pinterest.com/pin/create/button/?url=/simple-acts-of-kindness-that-can-make-us-live-longer/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F11%2Fsimple-acts-of-kindess-make-you-live-longer.jpg&description=Kindness+benefits+both+body+and+mind.+Discover+how+small+acts+of+kindness+reduce+stress%2C+strengthen+connection%2C+and+bring+calm+to+everyday+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+Simple+Power+of+Kindness&url=https%3A%2F%2Fseffsaid.com%2Fsimple-acts-of-kindness-that-can-make-us-live-longer%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+Simple+Power+of+Kindness&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-acts-of-kindness-that-can-make-us-live-longer%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsimple-acts-of-kindness-that-can-make-us-live-longer%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-acts-of-kindness-that-can-make-us-live-longer%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsimple-acts-of-kindness-that-can-make-us-live-longer%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-acts-of-kindness-that-can-make-us-live-longer%2F)
 
 [More](#)
 

@@ -106,15 +106,15 @@ By following these steps, you’ll be able to build healthier and more meaningfu
 
 **[Success Minded](https://successminded.co/) – Helping you become your best self.**
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstop-expecting-you-from-other-people%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-expecting-you-from-other-people%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fstop-expecting-you-from-other-people%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-expecting-you-from-other-people%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=Stop+Expecting+YOU+From+Other+People&url=https%3A%2F%2Fseffsaid.com%2Fstop-expecting-you-from-other-people%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Stop+Expecting+YOU+From+Other+People&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-expecting-you-from-other-people%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstop-expecting-you-from-other-people%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-expecting-you-from-other-people%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstop-expecting-you-from-other-people%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-expecting-you-from-other-people%2F)
 
 [More](#)
 

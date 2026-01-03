@@ -84,15 +84,15 @@ You don’t need to be perfect. You just need a few steady ways to show up for y
 
 – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fresilience-hacks%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fresilience-hacks%2F)
 
 Pin2
 
-[Tweet](https://twitter.com/intent/tweet?text=Resilience+Hacks+That+Actually+Feel+Doable&url=https%3A%2F%2Fseffsaid.com%2Fresilience-hacks%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Resilience+Hacks+That+Actually+Feel+Doable&url=https%3A%2F%2Fselfsaid.30tools.com%2Fresilience-hacks%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fresilience-hacks%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fresilience-hacks%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fresilience-hacks%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fresilience-hacks%2F)
 
 [More](#)
 

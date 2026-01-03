@@ -40,15 +40,15 @@ Hope this helps,
   
 Seff
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fwhat-taking-care-of-yourself-really-means%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fwhat-taking-care-of-yourself-really-means%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/what-taking-care-of-yourself-really-means/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FTaking-Care-of-Yourself-PIN.jpg&description=Self-care+isn%E2%80%99t+just+about+slowing+down.+It%E2%80%99s+about+staying+connected+to+yourself+in+small%2C+steady+ways.+This+post+explores+what+taking+care+of+yourself+really+means%2C+beyond+routines+and+rituals.+If+you%E2%80%99ve+been+feeling+stretched+thin+or+out+of+touch+with+yourself%2C+this+is+a+quiet%2C+supportive+read+to+help+you+come+back+to+what+matters.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/what-taking-care-of-yourself-really-means/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FTaking-Care-of-Yourself-PIN.jpg&description=Self-care+isn%E2%80%99t+just+about+slowing+down.+It%E2%80%99s+about+staying+connected+to+yourself+in+small%2C+steady+ways.+This+post+explores+what+taking+care+of+yourself+really+means%2C+beyond+routines+and+rituals.+If+you%E2%80%99ve+been+feeling+stretched+thin+or+out+of+touch+with+yourself%2C+this+is+a+quiet%2C+supportive+read+to+help+you+come+back+to+what+matters.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=What+Taking+Care+of+Yourself+Really+Means&url=https%3A%2F%2Fseffsaid.com%2Fwhat-taking-care-of-yourself-really-means%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=What+Taking+Care+of+Yourself+Really+Means&url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhat-taking-care-of-yourself-really-means%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fwhat-taking-care-of-yourself-really-means%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhat-taking-care-of-yourself-really-means%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fwhat-taking-care-of-yourself-really-means%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhat-taking-care-of-yourself-really-means%2F)
 
 [More](#)
 

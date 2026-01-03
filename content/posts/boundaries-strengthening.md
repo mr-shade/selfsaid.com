@@ -58,15 +58,15 @@ A clear choice shouldn’t require constant justification. If there’s pressure
 
 Recognizing patterns in these questions can highlight areas where limits may need to be reinforced. Protecting personal time, energy, and emotions leads to stronger, healthier relationships.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fboundaries-strengthening%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fboundaries-strengthening%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/boundaries-strengthening/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fboundaries-strengthening-PIN.jpg&description=If+you+struggle+to+say+no+and+feel+guilty+for+prioritizing+yourself+it+may+be+time+to+set+firmer+boundaries.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/boundaries-strengthening/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fboundaries-strengthening-PIN.jpg&description=If+you+struggle+to+say+no+and+feel+guilty+for+prioritizing+yourself+it+may+be+time+to+set+firmer+boundaries.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Determine+If+Your+Boundaries+Need+Strengthening&url=https%3A%2F%2Fseffsaid.com%2Fboundaries-strengthening%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Determine+If+Your+Boundaries+Need+Strengthening&url=https%3A%2F%2Fselfsaid.30tools.com%2Fboundaries-strengthening%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fboundaries-strengthening%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fboundaries-strengthening%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fboundaries-strengthening%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fboundaries-strengthening%2F)
 
 [More](#)
 

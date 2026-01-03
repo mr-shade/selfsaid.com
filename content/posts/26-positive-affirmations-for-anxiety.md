@@ -47,15 +47,15 @@ Here are 26 [positive affirmations](/100-positive-affirmations-that-will-change-
 25.  Understand this and be free: we are not in our bodies; our bodies are inside us.
 26.  You’re exactly where you are right now because that’s where you need to be.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F26-positive-affirmations-for-anxiety%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F26-positive-affirmations-for-anxiety%2F)
 
 Pin37
 
-[Tweet](https://twitter.com/intent/tweet?text=26+Positive+Affirmations+For+Anxiety&url=https%3A%2F%2Fseffsaid.com%2F26-positive-affirmations-for-anxiety%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=26+Positive+Affirmations+For+Anxiety&url=https%3A%2F%2Fselfsaid.30tools.com%2F26-positive-affirmations-for-anxiety%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F26-positive-affirmations-for-anxiety%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F26-positive-affirmations-for-anxiety%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F26-positive-affirmations-for-anxiety%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F26-positive-affirmations-for-anxiety%2F)
 
 [More](#)
 

@@ -64,15 +64,15 @@ Life feels more balanced when your choices include your own needs. Over time, th
 
 Saying yes to yourself is not about being selfish, it is about being fair and giving yourself the same care, time, and respect you offer to others. Start small. Choose one thing today that you can say yes to, and see how it feels. With each choice, you will strengthen your sense of self-worth and build a life that feels more like your own.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsay-yes-to-yourself%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsay-yes-to-yourself%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/say-yes-to-yourself/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fsay-yes-to-yourself-PIN.jpg&description=It%E2%80%99s+not+selfish+to+say+yes+to+yourself.+Learn+10+powerful+ways+to+honor+your+needs%2C+protect+your+time%2C+and+create+a+life+that+feels+more+like+your+own.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/say-yes-to-yourself/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fsay-yes-to-yourself-PIN.jpg&description=It%E2%80%99s+not+selfish+to+say+yes+to+yourself.+Learn+10+powerful+ways+to+honor+your+needs%2C+protect+your+time%2C+and+create+a+life+that+feels+more+like+your+own.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Reasons+To+Start+Saying+Yes+To+Yourself&url=https%3A%2F%2Fseffsaid.com%2Fsay-yes-to-yourself%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Reasons+To+Start+Saying+Yes+To+Yourself&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsay-yes-to-yourself%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsay-yes-to-yourself%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsay-yes-to-yourself%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsay-yes-to-yourself%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsay-yes-to-yourself%2F)
 
 [More](#)
 

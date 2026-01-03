@@ -62,15 +62,15 @@ Trying to live up to others’ expectations or comparing yourself to others can 
 
 Living the good life isn’t about perfection or having it all figured out. It’s about making intentional choices that bring happiness, fulfillment, and peace over time. Through strong relationships, personal well-being, and finding joy in the everyday, you can create a life that feels good and meaningful.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-the-good-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-the-good-life%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-live-the-good-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhow-to-live-the-good-life-PIN.jpg&description=Discover+how+to+cultivate+a+life+filled+with+purpose%2C+happiness%2C+and+fulfillment+every+single+day.+Live+the+good+life+starting+today.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-live-the-good-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhow-to-live-the-good-life-PIN.jpg&description=Discover+how+to+cultivate+a+life+filled+with+purpose%2C+happiness%2C+and+fulfillment+every+single+day.+Live+the+good+life+starting+today.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Live+The+Good+Life&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-the-good-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Live+The+Good+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-the-good-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-the-good-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-the-good-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-the-good-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-the-good-life%2F)
 
 [More](#)
 

@@ -82,15 +82,15 @@ By taking responsibility for your reaction to everything that life throws at you
 
 The goal is to try, and to do better in time, learning from experience. This will give you a wonderful sense of control of your life as you gradually learn the life skills to lower stress and lead a calm, mindful existence.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fproven-ways-to-reduce-stress%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fproven-ways-to-reduce-stress%2F)
 
 Pin124
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Proven+Ways+to+Reduce+Stress&url=https%3A%2F%2Fseffsaid.com%2Fproven-ways-to-reduce-stress%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Proven+Ways+to+Reduce+Stress&url=https%3A%2F%2Fselfsaid.30tools.com%2Fproven-ways-to-reduce-stress%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fproven-ways-to-reduce-stress%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproven-ways-to-reduce-stress%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fproven-ways-to-reduce-stress%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproven-ways-to-reduce-stress%2F)
 
 [More](#)
 

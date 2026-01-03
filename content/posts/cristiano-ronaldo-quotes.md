@@ -121,15 +121,15 @@ Ronaldo
 
 Read more [celebrity quotes](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcristiano-ronaldo-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcristiano-ronaldo-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/cristiano-ronaldo-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FCristiano-Ronaldo-Quotes-PIN.jpg&description=Discover+the+power+of+motivation+and+self-belief+with+a+collection+of+inspiring+quotes+from+the+footballer+Cristiano+Ronaldo.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/cristiano-ronaldo-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FCristiano-Ronaldo-Quotes-PIN.jpg&description=Discover+the+power+of+motivation+and+self-belief+with+a+collection+of+inspiring+quotes+from+the+footballer+Cristiano+Ronaldo.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Cristiano+Ronaldo+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fcristiano-ronaldo-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Cristiano+Ronaldo+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcristiano-ronaldo-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcristiano-ronaldo-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcristiano-ronaldo-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcristiano-ronaldo-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcristiano-ronaldo-quotes%2F)
 
 [More](#)
 

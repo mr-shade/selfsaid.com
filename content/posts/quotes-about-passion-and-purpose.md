@@ -108,15 +108,15 @@ Finding your passion and understanding your purpose can often feel like a puzzle
 89.  “Our passions are the winds that propel our vessel. Our reason is the pilot that steers her. Without winds the vessel would not move and without a pilot she would be lost.” – Proverb
 90.  “The most passionate adventurers are those who still get excited about the possibilities.” – Anonymous
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-passion-and-purpose%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-passion-and-purpose%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-passion-and-purpose%2F)
+[Pin2](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-passion-and-purpose%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=90+Quotes+About+Passion+And+Purpose&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-passion-and-purpose%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=90+Quotes+About+Passion+And+Purpose&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-passion-and-purpose%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-passion-and-purpose%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-passion-and-purpose%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-passion-and-purpose%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-passion-and-purpose%2F)
 
 [More](#)
 

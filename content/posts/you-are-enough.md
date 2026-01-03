@@ -50,15 +50,15 @@ $1.99 – Instant Download
 
 This quote conveys a powerful message of self-worth. It means that you, just by being yourself, hold value and are deserving of love. This sentiment reassures you that perfection isn’t necessary, nor is having all the answers or meeting anyone else’s expectations to be worthy of respect and affection.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fyou-are-enough%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-are-enough%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/you-are-enough/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fyou-are-enough-PIN.jpg&description=Decorate+your+home+or+work+place+with+the+SEFFSAID+exclusive+%22You+Are+Enough%22+printable+quote++available+for+instant+download.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/you-are-enough/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fyou-are-enough-PIN.jpg&description=Decorate+your+home+or+work+place+with+the+SEFFSAID+exclusive+%22You+Are+Enough%22+printable+quote++available+for+instant+download.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=%22You+Are+Enough%22+Printable+Quote&url=https%3A%2F%2Fseffsaid.com%2Fyou-are-enough%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=%22You+Are+Enough%22+Printable+Quote&url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-are-enough%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fyou-are-enough%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-are-enough%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fyou-are-enough%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-are-enough%2F)
 
 [More](#)
 

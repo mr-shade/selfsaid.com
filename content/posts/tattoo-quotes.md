@@ -244,15 +244,15 @@ This list of 225 tattoo quotes captures the essence of what it means to have a t
 224.  “I adore tattoos. They’re not painful; you just get an urge to swear a lot.” – Finty Williams
 225.  “When you are low, you do tattoos and it gives you adrenaline for a couple of days and you’re happy.” – Sergei Polunin
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftattoo-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftattoo-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/tattoo-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftattoo-quotes-PIN.jpg&description=Explore+the+diverse+and+profound+meanings+behind+ink+art+with+these+225+tattoo+quotes%2C+and+let+them+inspire+your+next+piece+of+self-expression.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/tattoo-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftattoo-quotes-PIN.jpg&description=Explore+the+diverse+and+profound+meanings+behind+ink+art+with+these+225+tattoo+quotes%2C+and+let+them+inspire+your+next+piece+of+self-expression.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=225+Tattoo+Quotes+about+Strength%2C+Love%2C+and+Life&url=https%3A%2F%2Fseffsaid.com%2Ftattoo-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=225+Tattoo+Quotes+about+Strength%2C+Love%2C+and+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftattoo-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftattoo-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftattoo-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftattoo-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftattoo-quotes%2F)
 
 [More](#)
 

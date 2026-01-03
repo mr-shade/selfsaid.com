@@ -118,15 +118,15 @@ One of the greatest [regrets in life](/5-life-choices-you-will-regret-in-later-l
 
 If you spend too much time thinking about a thing, you’ll never get it done.” — [Bruce Lee](/bruce-lee-quotes)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fno-regrets-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fno-regrets-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/no-regrets-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fno-regrets-quotes-PIN.jpg&description=Discover+50+of+the+best+no+regrets+quotes+that+will+encourage+you+to+take+risks%2C+live+fully%2C+and+let+go+of+what+holds+you+back.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/no-regrets-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fno-regrets-quotes-PIN.jpg&description=Discover+50+of+the+best+no+regrets+quotes+that+will+encourage+you+to+take+risks%2C+live+fully%2C+and+let+go+of+what+holds+you+back.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Best+No+Regrets+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fno-regrets-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Best+No+Regrets+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fno-regrets-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fno-regrets-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fno-regrets-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fno-regrets-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fno-regrets-quotes%2F)
 
 [More](#)
 

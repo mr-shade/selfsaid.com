@@ -64,15 +64,15 @@ Our days are filled with constant noise, phones, conversations, background music
 
 Improving your mood does not always require a big effort. Sometimes the smallest pause, a deep breath, a sip of water, a short walk, is enough to change the direction of your day. Try one or two of these ideas the next time you feel low. You may be surprised at how quickly your mood can shift when you give yourself permission to pause, reset, and take care of yourself.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-quickly-improve-your-mood%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-quickly-improve-your-mood%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/easy-ways-to-quickly-improve-your-mood/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fways-to-improve-your-mood-PIN.jpg&description=Boost+your+mood+fast+with+these+10+simple+self-care+ideas.+Practical%2C+uplifting+tips+you+can+use+anytime+to+ease+stress+and+feel+better+quickly.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/easy-ways-to-quickly-improve-your-mood/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fways-to-improve-your-mood-PIN.jpg&description=Boost+your+mood+fast+with+these+10+simple+self-care+ideas.+Practical%2C+uplifting+tips+you+can+use+anytime+to+ease+stress+and+feel+better+quickly.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Easy+Ways+To+Quickly+Improve+Your+Mood&url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-quickly-improve-your-mood%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Easy+Ways+To+Quickly+Improve+Your+Mood&url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-quickly-improve-your-mood%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-quickly-improve-your-mood%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-quickly-improve-your-mood%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-quickly-improve-your-mood%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-quickly-improve-your-mood%2F)
 
 [More](#)
 

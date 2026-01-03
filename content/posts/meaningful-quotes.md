@@ -70,15 +70,15 @@ Meaningful quotes offer inspiration and wisdom that resonate with us on many lev
 50.  “An unexamined life is not worth living.” – Socrates
 51.  “You only live once, but if you do it right, once is enough.” – Mae West
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmeaningful-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmeaningful-quotes%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=/meaningful-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmeaningful-quotes-PIN.jpg&description=Discover+a+collection+of+50+meaningful+quotes+that+will+inspire+and+motivate+you+in+every+area+of+life.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=/meaningful-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmeaningful-quotes-PIN.jpg&description=Discover+a+collection+of+50+meaningful+quotes+that+will+inspire+and+motivate+you+in+every+area+of+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=51+Meaningful+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fmeaningful-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=51+Meaningful+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmeaningful-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmeaningful-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmeaningful-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmeaningful-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmeaningful-quotes%2F)
 
 [More](#)
 

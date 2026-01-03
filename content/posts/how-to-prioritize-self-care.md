@@ -86,15 +86,15 @@ Prioritising self-care is not about neglecting others. It is about recognising t
 
 Start small. Choose one of these practices today and give yourself permission to follow through. Over time, self-care stops feeling like an extra task and becomes a natural part of living well.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-prioritize-self-care%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-prioritize-self-care%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-prioritize-self-care/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FPrioritize-Self-Care-PIN.jpg&description=Discover+15+ways+to+prioritize+self-care+without+guilt%2C+from+setting+boundaries+to+building+daily+rituals+that+support+balance.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-prioritize-self-care/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FPrioritize-Self-Care-PIN.jpg&description=Discover+15+ways+to+prioritize+self-care+without+guilt%2C+from+setting+boundaries+to+building+daily+rituals+that+support+balance.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Prioritize+Self-Care+Without+Feeling+Guilty&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-prioritize-self-care%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Prioritize+Self-Care+Without+Feeling+Guilty&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-prioritize-self-care%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-prioritize-self-care%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-prioritize-self-care%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-prioritize-self-care%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-prioritize-self-care%2F)
 
 [More](#)
 

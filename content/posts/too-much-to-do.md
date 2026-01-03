@@ -50,15 +50,15 @@ Then, when that’s done, choose the next thing.
 
 You’re not failing because you’re moving slowly. You’re moving in a way that helps you keep going. And that’s what matters.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftoo-much-to-do%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftoo-much-to-do%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/too-much-to-do/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftoo-much-to-do-PIN.jpg&description=Feeling+buried+by+your+to-do+list%3F+This+practical+article+shares+the+mindset+shift+that+helped+me+stop+spiraling+and+find+a+way+to+begin+again.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/too-much-to-do/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftoo-much-to-do-PIN.jpg&description=Feeling+buried+by+your+to-do+list%3F+This+practical+article+shares+the+mindset+shift+that+helped+me+stop+spiraling+and+find+a+way+to+begin+again.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Too+Much+to+Do%3F+Here%E2%80%99s+What+Helped+Me&url=https%3A%2F%2Fseffsaid.com%2Ftoo-much-to-do%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Too+Much+to+Do%3F+Here%E2%80%99s+What+Helped+Me&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftoo-much-to-do%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftoo-much-to-do%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftoo-much-to-do%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftoo-much-to-do%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftoo-much-to-do%2F)
 
 [More](#)
 

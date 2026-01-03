@@ -70,15 +70,15 @@ You don’t have to do all of these. You don’t even need to do them regularly.
 
 Self-care isn’t a checklist to complete. It’s a way to stay connected to yourself when life pulls you in too many directions. And often, the simplest practices are the ones that stay with you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Feasy-self-care-practices%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-self-care-practices%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/easy-self-care-practices/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Feasy-self-care-practices-PIN.jpg&description=Simple+self+care+practices+you+can+do+today+to+help+you+feel+calmer+and+more+balanced.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/easy-self-care-practices/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Feasy-self-care-practices-PIN.jpg&description=Simple+self+care+practices+you+can+do+today+to+help+you+feel+calmer+and+more+balanced.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Easy+Self+Care+Practices+You+Can+Start+Today&url=https%3A%2F%2Fseffsaid.com%2Feasy-self-care-practices%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Easy+Self+Care+Practices+You+Can+Start+Today&url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-self-care-practices%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Feasy-self-care-practices%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-self-care-practices%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Feasy-self-care-practices%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-self-care-practices%2F)
 
 [More](#)
 

@@ -169,15 +169,15 @@ Adopting even a few of these 29 tips can make a noticeable difference in your da
 
 Remember, productivity isn’t about doing more things in less time but doing the right things more efficiently. Start with one or two strategies that resonate with you and build from there. You might be surprised at how quickly you can transform your workday, reduce stress, and find more time for the activities and people that matter most to you. Keep experimenting with these techniques to discover what combination works best for you, and watch as your productivity flourishes.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F29-tips-to-increase-productivity-at-work%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F29-tips-to-increase-productivity-at-work%2F)
 
 Pin2
 
-[Tweet](https://twitter.com/intent/tweet?text=29+Ways+To+Increase+Productivity+In+The+Workplace&url=https%3A%2F%2Fseffsaid.com%2F29-tips-to-increase-productivity-at-work%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=29+Ways+To+Increase+Productivity+In+The+Workplace&url=https%3A%2F%2Fselfsaid.30tools.com%2F29-tips-to-increase-productivity-at-work%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F29-tips-to-increase-productivity-at-work%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F29-tips-to-increase-productivity-at-work%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F29-tips-to-increase-productivity-at-work%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F29-tips-to-increase-productivity-at-work%2F)
 
 [More](#)
 

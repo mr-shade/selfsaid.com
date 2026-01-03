@@ -213,15 +213,15 @@ While no words, photos, or videos can truly capture the beauty of watching a glo
 191.  They’d lay there and watch the magical show in the sky as it transformed from one color to the next, before fading into darkness in a matter of moments. The sun had a split personality of its own.” – Arti Manani
 192.  “When your world moves too fast and you lose yourself in the chaos, introduce yourself to each color of the sunset.” – Christy Ann Martine
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthe-best-sunset-quotes-of-all-time%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-best-sunset-quotes-of-all-time%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/the-best-sunset-quotes-of-all-time/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fsunset-quotes-PIN.jpg&description=192+perspectives+on+the+daily+masterpiece+that+is+the+sunset.+Each+quote+is+a+tribute+to+its+unique+beauty.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/the-best-sunset-quotes-of-all-time/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fsunset-quotes-PIN.jpg&description=192+perspectives+on+the+daily+masterpiece+that+is+the+sunset.+Each+quote+is+a+tribute+to+its+unique+beauty.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=192+Quotes+That+Celebrate+The+Beauty+Of+Sunsets&url=https%3A%2F%2Fseffsaid.com%2Fthe-best-sunset-quotes-of-all-time%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=192+Quotes+That+Celebrate+The+Beauty+Of+Sunsets&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-best-sunset-quotes-of-all-time%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthe-best-sunset-quotes-of-all-time%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-best-sunset-quotes-of-all-time%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthe-best-sunset-quotes-of-all-time%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-best-sunset-quotes-of-all-time%2F)
 
 [More](#)
 

@@ -94,15 +94,15 @@ Did you know that adult humans are 60 percent water, and our blood is 90 percent
 
 The benefits of drinking more water include helping maximize physical performance, helping to relieve constipation, increasing brainpower and providing energy, flushing out toxins and helping to regulate your body temperature.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fpersonal-development-plan-ideas%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fpersonal-development-plan-ideas%2F)
 
 Pin8
 
-[Tweet](https://twitter.com/intent/tweet?text=18+Personal+Development+Plan+Ideas+To+Transform+Your+Life&url=https%3A%2F%2Fseffsaid.com%2Fpersonal-development-plan-ideas%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=18+Personal+Development+Plan+Ideas+To+Transform+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fpersonal-development-plan-ideas%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fpersonal-development-plan-ideas%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpersonal-development-plan-ideas%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fpersonal-development-plan-ideas%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpersonal-development-plan-ideas%2F)
 
 [More](#)
 

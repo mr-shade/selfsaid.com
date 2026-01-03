@@ -111,15 +111,15 @@ You don’t have to be good at self-care to start caring for yourself. Emotional
 
 You can start before you feel ready. You can start even if you don’t know what you need. Start where you are. Start with kindness. Start small, but start.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Femotional-self-care-10-simple-ways-to-start%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Femotional-self-care-10-simple-ways-to-start%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/emotional-self-care-10-simple-ways-to-start/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Femotional-self-care-start-PIN.jpg&description=Emotional+self-care+doesn%E2%80%99t+have+to+be+overwhelming.+These+10+simple+ways+to+start+will+help+you+care+for+your+feelings%2C+protect+your+peace%2C+and+feel+more+grounded+from+the+inside+out.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/emotional-self-care-10-simple-ways-to-start/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Femotional-self-care-start-PIN.jpg&description=Emotional+self-care+doesn%E2%80%99t+have+to+be+overwhelming.+These+10+simple+ways+to+start+will+help+you+care+for+your+feelings%2C+protect+your+peace%2C+and+feel+more+grounded+from+the+inside+out.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Emotional+Self-Care%3A+10+Simple+Ways+to+Start&url=https%3A%2F%2Fseffsaid.com%2Femotional-self-care-10-simple-ways-to-start%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Emotional+Self-Care%3A+10+Simple+Ways+to+Start&url=https%3A%2F%2Fselfsaid.30tools.com%2Femotional-self-care-10-simple-ways-to-start%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Femotional-self-care-10-simple-ways-to-start%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Femotional-self-care-10-simple-ways-to-start%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Femotional-self-care-10-simple-ways-to-start%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Femotional-self-care-10-simple-ways-to-start%2F)
 
 [More](#)
 

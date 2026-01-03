@@ -86,15 +86,15 @@ Actionable advice:
 
 Developing and maintaining a positive attitude is not an overnight transformation. Remember that positivity is a choice, and with consistent effort and practice, you can enjoy the many benefits of a more optimistic mindset – improved mental and emotional well-being, better relationships, and greater success. So, start today and watch your positive attitude improve your life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-develop-a-positive-attitude%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-develop-a-positive-attitude%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/easy-ways-to-develop-a-positive-attitude/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fpositive-attitude-PIN.jpg&description=Discover+six+easy+and+actionable+ways+to+develop+and+maintain+a+positive+attitude+in+your+daily+life.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/easy-ways-to-develop-a-positive-attitude/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fpositive-attitude-PIN.jpg&description=Discover+six+easy+and+actionable+ways+to+develop+and+maintain+a+positive+attitude+in+your+daily+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=6+Easy+Ways+to+Develop+a+Positive+Attitude&url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-develop-a-positive-attitude%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=6+Easy+Ways+to+Develop+a+Positive+Attitude&url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-develop-a-positive-attitude%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-develop-a-positive-attitude%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-develop-a-positive-attitude%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-develop-a-positive-attitude%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-develop-a-positive-attitude%2F)
 
 [More](#)
 

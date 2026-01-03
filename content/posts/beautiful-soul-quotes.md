@@ -133,15 +133,15 @@ If you’ve ever needed a reminder that your softness is strength, or that your 
 
 Take what resonates. Leave what doesn’t. And whenever you forget, come back to this: you don’t need to do anything special to be a beautiful soul. You just need to keep being you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbeautiful-soul-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbeautiful-soul-quotes%2F)
 
 Pin144
 
-[Tweet](https://twitter.com/intent/tweet?text=Beautiful+Soul+Quotes+That+Actually+Mean+Something&url=https%3A%2F%2Fseffsaid.com%2Fbeautiful-soul-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Beautiful+Soul+Quotes+That+Actually+Mean+Something&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeautiful-soul-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbeautiful-soul-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeautiful-soul-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbeautiful-soul-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeautiful-soul-quotes%2F)
 
 [More](#)
 

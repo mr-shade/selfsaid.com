@@ -111,15 +111,15 @@ We’ve had the freezer and fridge inventory inserts, just one more to mention, 
 
 Whether you decide to buy a ready-made planner or create your own planner (I always recommend this approach) you won’t regret the decision. I recommend starting by choosing some or all of the planner pages above and adding more when you are ready to expand. You’ll soon find yourself super organized, super productive, and way less stressed. I love planning and I’m sure you will too!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fplanner-ideas%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fplanner-ideas%2F)
 
 Pin40
 
-[Tweet](https://twitter.com/intent/tweet?text=Planner+Ideas%3A+18+%27Must-Have%27+Pages+To+Include+In+Your+Planner&url=https%3A%2F%2Fseffsaid.com%2Fplanner-ideas%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Planner+Ideas%3A+18+%27Must-Have%27+Pages+To+Include+In+Your+Planner&url=https%3A%2F%2Fselfsaid.30tools.com%2Fplanner-ideas%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fplanner-ideas%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fplanner-ideas%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fplanner-ideas%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fplanner-ideas%2F)
 
 [More](#)
 

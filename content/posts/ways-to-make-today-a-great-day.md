@@ -74,15 +74,15 @@ A great day does not mean everything goes right. It means you notice the moments
 
 You do not need to use all twelve of these ideas. Pick one or two that speak to you and try them today. Even the smallest shift can change the way your day feels and remind you that you have more influence over your experience than you realise.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fways-to-make-today-a-great-day%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-make-today-a-great-day%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/ways-to-make-today-a-great-day/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FWays-to-Make-Today-a-Great-Day-PIN.jpg&description=A+great+day+is+built+from+small+choices.+Here+are+12+simple+ways+to+make+today+a+great+day.+Practical+tips+for+more+calm%2C+energy%2C+and+joy+in+everyday+life.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/ways-to-make-today-a-great-day/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FWays-to-Make-Today-a-Great-Day-PIN.jpg&description=A+great+day+is+built+from+small+choices.+Here+are+12+simple+ways+to+make+today+a+great+day.+Practical+tips+for+more+calm%2C+energy%2C+and+joy+in+everyday+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=12+Ways+to+Make+Today+a+Great+Day&url=https%3A%2F%2Fseffsaid.com%2Fways-to-make-today-a-great-day%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=12+Ways+to+Make+Today+a+Great+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-make-today-a-great-day%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fways-to-make-today-a-great-day%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-make-today-a-great-day%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fways-to-make-today-a-great-day%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-make-today-a-great-day%2F)
 
 [More](#)
 

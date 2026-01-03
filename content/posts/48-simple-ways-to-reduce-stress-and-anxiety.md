@@ -114,15 +114,15 @@ We all know that stress is super bad for your health, so how can we reduce stres
 
 48\. Don’t try and write an article on a list of ways to reduce stress!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F48-simple-ways-to-reduce-stress-and-anxiety%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F48-simple-ways-to-reduce-stress-and-anxiety%2F)
 
 Pin44
 
-[Tweet](https://twitter.com/intent/tweet?text=These+days+it+seems+like+everyone+is+either+stressed+out%2C+incredibly+anxious+or+a+combination+of+both.+So+how+can+we+reduce+stress+in+our+daily+lives%3F+Click+through+and+learn+48+simple+ways+to+reduce+stress+and+anxiety+today.&url=https%3A%2F%2Fseffsaid.com%2F48-simple-ways-to-reduce-stress-and-anxiety%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=These+days+it+seems+like+everyone+is+either+stressed+out%2C+incredibly+anxious+or+a+combination+of+both.+So+how+can+we+reduce+stress+in+our+daily+lives%3F+Click+through+and+learn+48+simple+ways+to+reduce+stress+and+anxiety+today.&url=https%3A%2F%2Fselfsaid.30tools.com%2F48-simple-ways-to-reduce-stress-and-anxiety%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F48-simple-ways-to-reduce-stress-and-anxiety%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F48-simple-ways-to-reduce-stress-and-anxiety%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F48-simple-ways-to-reduce-stress-and-anxiety%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F48-simple-ways-to-reduce-stress-and-anxiety%2F)
 
 [More](#)
 

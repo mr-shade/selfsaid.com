@@ -111,15 +111,15 @@ Breaking down a big task into small, achievable steps is a skill that can transf
 
 Remember that task decomposition is not a one-size-fits-all process. It’s essential to adapt these principles to your specific needs and preferences. Over time, with practice, you’ll become more proficient at breaking down tasks and accomplishing your goals, no matter how significant they may seem.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-break-a-big-task-into-small-steps%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-break-a-big-task-into-small-steps%2F)
 
 Pin3
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Break+A+Big+Task+Into+Small+Achievable+Steps&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-break-a-big-task-into-small-steps%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Break+A+Big+Task+Into+Small+Achievable+Steps&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-break-a-big-task-into-small-steps%2F&via=SeffSaid)
 
-[Reddit1](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-break-a-big-task-into-small-steps%2F)
+[Reddit1](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-break-a-big-task-into-small-steps%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-break-a-big-task-into-small-steps%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-break-a-big-task-into-small-steps%2F)
 
 [More](#)
 

@@ -68,15 +68,15 @@ You might find that one sentence is all it takes to show up for yourself.
 
 \> This habit is part of my larger [Everyday Self-Care Routine](/everyday-self-care-routine).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fone-line-journaling%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fone-line-journaling%2F)
 
-[Pin16](https://pinterest.com/pin/create/button/?url=/one-line-journaling/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fone-line-journaling-PIN.jpg&description=Ever+start+journaling%2C+only+to+quit+a+few+days+later%3F+Same+here+until+I+tried+one-line+journaling.+It%E2%80%99s+exactly+what+it+sounds+like%3A+one+sentence+a+day%2C+no+pressure%2C+no+perfection.+In+this+post%2C+I+share+how+this+tiny+shift+helped+me+build+a+real+habit%2C+find+calm%2C+and+actually+stick+with+journaling.+via+%40SeffSaid)
+[Pin16](https://pinterest.com/pin/create/button/?url=/one-line-journaling/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fone-line-journaling-PIN.jpg&description=Ever+start+journaling%2C+only+to+quit+a+few+days+later%3F+Same+here+until+I+tried+one-line+journaling.+It%E2%80%99s+exactly+what+it+sounds+like%3A+one+sentence+a+day%2C+no+pressure%2C+no+perfection.+In+this+post%2C+I+share+how+this+tiny+shift+helped+me+build+a+real+habit%2C+find+calm%2C+and+actually+stick+with+journaling.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=One-Line+Journaling%3A+The+Habit+That+Actually+Stuck&url=https%3A%2F%2Fseffsaid.com%2Fone-line-journaling%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=One-Line+Journaling%3A+The+Habit+That+Actually+Stuck&url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-line-journaling%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fone-line-journaling%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-line-journaling%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fone-line-journaling%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-line-journaling%2F)
 
 [More](#)
 

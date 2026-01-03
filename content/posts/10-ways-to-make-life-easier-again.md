@@ -64,15 +64,15 @@ Multi-tasking can increase efficiency but it can also increase stress and make l
 
 Simplifying your life can bring clarity and peace to your daily routine. By making small changes, you can [reduce stress](/how-to-reduce-stress) and create more time for what truly matters.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F10-ways-to-make-life-easier-again%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-make-life-easier-again%2F)
 
 Pin103
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Easy+Ways+To+Simplify+Your+Life&url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-make-life-easier-again%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Easy+Ways+To+Simplify+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-make-life-easier-again%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-make-life-easier-again%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-make-life-easier-again%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-make-life-easier-again%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-make-life-easier-again%2F)
 
 [More](#)
 

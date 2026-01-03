@@ -112,15 +112,15 @@ Life’s busyness often means that these vital areas can be neglected, but setti
 
 By addressing these habits and making conscious changes, you can [reduce stress](https://seffsaid.com/proven-ways-to-reduce-stress/), improve your relationships, and find more joy in everyday life. It’s all about taking small steps toward a bigger change. Start with one habit you recognize in yourself and work on adjusting it. The road to a simpler, more satisfying life isn’t always easy, but it’s definitely worth the effort.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=16+Ways+You%27re+Making+Life+Harder+Than+It+Has+To+Be&url=https%3A%2F%2Fseffsaid.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=16+Ways+You%27re+Making+Life+Harder+Than+It+Has+To+Be&url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-you-are-making-life-harder-than-it-has-to-be%2F)
 
 [More](#)
 

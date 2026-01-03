@@ -201,15 +201,15 @@ Remember, these rainy day quotes are not just words; they’re reflections that 
 179.  “Rain falls because the clouds can no longer handle the weight. Tears fall because the heart can no longer handle the pain.” – Unknown
 180.  “A soft rain refreshes the soul and clears the mind.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Frainy-day-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Frainy-day-quotes%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/rainy-day-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Frainy-day-quotes-PIN.jpg&description=Let+these+180+Rainy+Day+Quotes+be+your+guide+to+finding+inspiration+on+even+the+rainiest+of+days.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/rainy-day-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Frainy-day-quotes-PIN.jpg&description=Let+these+180+Rainy+Day+Quotes+be+your+guide+to+finding+inspiration+on+even+the+rainiest+of+days.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=180+Rainy+Day+Quotes+to+Uplift+Your+Spirits&url=https%3A%2F%2Fseffsaid.com%2Frainy-day-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=180+Rainy+Day+Quotes+to+Uplift+Your+Spirits&url=https%3A%2F%2Fselfsaid.30tools.com%2Frainy-day-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Frainy-day-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Frainy-day-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Frainy-day-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Frainy-day-quotes%2F)
 
 [More](#)
 

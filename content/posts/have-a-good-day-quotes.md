@@ -238,15 +238,15 @@ Starting your day on a positive note can make all the difference in how things u
 217.  “Let your morning be the start of a great day.” – Unknown
 218.  “Embrace the day’s opportunities and be thankful for every moment.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhave-a-good-day-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhave-a-good-day-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/have-a-good-day-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FInspirational-Have-A-Good-Day-Quotes-PIN.jpg&description=Allow+these+218+inspirational+%27Have+A+Good+Day%27+Quotes+to+serve+as+a+reminder+of+life%27s+beauty+and+potential%2C+filling+your+day+with+positivity.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/have-a-good-day-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FInspirational-Have-A-Good-Day-Quotes-PIN.jpg&description=Allow+these+218+inspirational+%27Have+A+Good+Day%27+Quotes+to+serve+as+a+reminder+of+life%27s+beauty+and+potential%2C+filling+your+day+with+positivity.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=218+Inspirational+%27Have+A+Good+Day%27+Quotes+to+Uplift+and+Inspire&url=https%3A%2F%2Fseffsaid.com%2Fhave-a-good-day-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=218+Inspirational+%27Have+A+Good+Day%27+Quotes+to+Uplift+and+Inspire&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhave-a-good-day-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhave-a-good-day-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhave-a-good-day-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhave-a-good-day-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhave-a-good-day-quotes%2F)
 
 [More](#)
 

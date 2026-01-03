@@ -60,15 +60,15 @@ Loneliness is a terrible thing that causes depression and related illnesses so i
 
 Happiness is easy if we’ll only let ourselves experience it and enjoy it. Take some time each day to remember these simple tips; you have nothing to lose and so much to gain and, at the end of the day, happiness is the one thing that can truly transform every area of your life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F7-ways-to-be-a-happier-person%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F7-ways-to-be-a-happier-person%2F)
 
 Pin1.87K
 
-[Tweet](https://twitter.com/intent/tweet?text=7+Simple+Habits+That+Will+Make+You+A+Happier+Person&url=https%3A%2F%2Fseffsaid.com%2F7-ways-to-be-a-happier-person%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=7+Simple+Habits+That+Will+Make+You+A+Happier+Person&url=https%3A%2F%2Fselfsaid.30tools.com%2F7-ways-to-be-a-happier-person%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F7-ways-to-be-a-happier-person%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F7-ways-to-be-a-happier-person%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F7-ways-to-be-a-happier-person%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F7-ways-to-be-a-happier-person%2F)
 
 [More](#)
 

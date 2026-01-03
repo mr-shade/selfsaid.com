@@ -58,15 +58,15 @@ Spending time with family, friends, or supportive communities can have a positiv
 
 Building these habits into daily life doesn’t have to feel overwhelming. Small steps can lead to positive results over time. Making self-care a priority can bring more energy, better health, and a greater sense of well-being.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-care-habits%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-habits%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=/self-care-habits/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSelf-Care-Habits-PIN.jpg&description=You+won%E2%80%99t+believe+how+much+better+you%E2%80%99ll+feel+once+you+start+practicing+these+simple+self-care+habits.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=/self-care-habits/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSelf-Care-Habits-PIN.jpg&description=You+won%E2%80%99t+believe+how+much+better+you%E2%80%99ll+feel+once+you+start+practicing+these+simple+self-care+habits.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Self-Care+Habits+That+Will+Change+Your+Life&url=https%3A%2F%2Fseffsaid.com%2Fself-care-habits%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Self-Care+Habits+That+Will+Change+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-habits%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-care-habits%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-habits%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-care-habits%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-habits%2F)
 
 [More](#)
 

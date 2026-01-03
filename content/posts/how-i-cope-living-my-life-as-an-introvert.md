@@ -97,15 +97,15 @@ I’m a [people pleaser](/stop-being-a-people-pleaser) and in the past I’ve sa
 
 I think the key to being happy as an introvert is to be just a tiny bit selfish (or maybe very selfish at times) and put your needs first. You can still be a good friend and a good person, but there’s no need to over-tax yourself. The key is balance, like choosing foods for a healthy diet. Balance it out through experience and find that sweet spot and you’ll soon be dancing on the table, just like me.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-i-cope-living-my-life-as-an-introvert%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cope-living-my-life-as-an-introvert%2F)
 
-[Pin26](https://pinterest.com/pin/create/button/?url=/how-i-cope-living-my-life-as-an-introvert/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F02%2Fhow-i-live-my-life-as-an-introvert.jpg&description=Living+as+an+introvert+can+feel+draining+in+a+busy+world.+Discover+10+valuable+tips+to+protect+your+energy%2C+enjoy+solitude%2C+and+thrive+as+your+authentic+self.+via+%40SeffSaid)
+[Pin26](https://pinterest.com/pin/create/button/?url=/how-i-cope-living-my-life-as-an-introvert/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F02%2Fhow-i-live-my-life-as-an-introvert.jpg&description=Living+as+an+introvert+can+feel+draining+in+a+busy+world.+Discover+10+valuable+tips+to+protect+your+energy%2C+enjoy+solitude%2C+and+thrive+as+your+authentic+self.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+I+Cope+Living+My+Life+As+An+Introvert+-+10+Valuable+Tips&url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cope-living-my-life-as-an-introvert%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+I+Cope+Living+My+Life+As+An+Introvert+-+10+Valuable+Tips&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cope-living-my-life-as-an-introvert%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cope-living-my-life-as-an-introvert%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cope-living-my-life-as-an-introvert%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cope-living-my-life-as-an-introvert%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cope-living-my-life-as-an-introvert%2F)
 
 [More](#)
 

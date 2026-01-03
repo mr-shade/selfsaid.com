@@ -75,15 +75,15 @@ Master Oogway, the wise and calm tortoise from Kung Fu Panda, offers many memora
 57.  “It doesn’t. It helps me. And by helping me, you help yourself.” – Master Oogway
 58.  “No, you just need to believe. Promise me, Shifu. Promise me you will believe.” – Master Oogway
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmaster-oogway-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmaster-oogway-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/master-oogway-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMaster-Oogway-Quotes-PIN2.jpg&description=Master+Oogway+quotes+capturing+the+wisdom+that+has+made+him+such+an+iconic+character+in+the+Kung+Fu+Panda+TV+series.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/master-oogway-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMaster-Oogway-Quotes-PIN2.jpg&description=Master+Oogway+quotes+capturing+the+wisdom+that+has+made+him+such+an+iconic+character+in+the+Kung+Fu+Panda+TV+series.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Master+Oogway+Quotes+for+Fans+of+Kung+Fu+Panda&url=https%3A%2F%2Fseffsaid.com%2Fmaster-oogway-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Master+Oogway+Quotes+for+Fans+of+Kung+Fu+Panda&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmaster-oogway-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmaster-oogway-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmaster-oogway-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmaster-oogway-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmaster-oogway-quotes%2F)
 
 [More](#)
 

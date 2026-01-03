@@ -92,15 +92,15 @@ Failing to plan your day can lead to wasted time as you decide what to do next o
 
 Recognizing these habits is the first step toward [reclaiming your time](/take-back-time-for-yourself). Making small adjustments can lead to substantial improvements in how effectively your hours are spent, leaving you with more time to focus on what truly matters.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhabits-that-waste-our-time%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-that-waste-our-time%2F)
 
-[Pin13](https://pinterest.com/pin/create/button/?url=/habits-that-waste-our-time/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhabits-that-waste-our-time-PIN.jpg&description=Break+free+from+daily+time+traps+by+identifying+and+changing+these+12+common+habits.+via+%40SeffSaid)
+[Pin13](https://pinterest.com/pin/create/button/?url=/habits-that-waste-our-time/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhabits-that-waste-our-time-PIN.jpg&description=Break+free+from+daily+time+traps+by+identifying+and+changing+these+12+common+habits.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=12+Habits+That+Waste+90+Percent+Of+Our+Time&url=https%3A%2F%2Fseffsaid.com%2Fhabits-that-waste-our-time%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=12+Habits+That+Waste+90+Percent+Of+Our+Time&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-that-waste-our-time%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhabits-that-waste-our-time%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-that-waste-our-time%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhabits-that-waste-our-time%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhabits-that-waste-our-time%2F)
 
 [More](#)
 

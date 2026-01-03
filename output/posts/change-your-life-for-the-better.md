@@ -72,15 +72,15 @@ Walk or cycle rather than taking the car. Go to a new café and strike up a conv
 
 You can, of course, expand these activities, investing more time into those that you find rewarding as and when you can, but these are a minimum to help you commit to change your life for the better. It is said that a habit is formed after doing something just seven times, so try this for a week and see how you feel. You will almost certainly feel more relaxed, more alert, clear-headed, and [more motivated](https://seffsaid.com/how-to-motivate-yourself/).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fchange-your-life-for-the-better%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-for-the-better%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/change-your-life-for-the-better/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FChange-Your-Life-For-The-Better-PIN.jpg&description=Discover+8+simple+things+you+can+do+start+doing+today+that+will+change+your+life+for+the+better.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/change-your-life-for-the-better/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FChange-Your-Life-For-The-Better-PIN.jpg&description=Discover+8+simple+things+you+can+do+start+doing+today+that+will+change+your+life+for+the+better.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=People+say+that+change+is+difficult+but+it+really+doesn%27t+have+to+be.+Discover+8+simple+daily+habits+that+can+change+your+life+for+the+better.&url=https%3A%2F%2Fseffsaid.com%2Fchange-your-life-for-the-better%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=People+say+that+change+is+difficult+but+it+really+doesn%27t+have+to+be.+Discover+8+simple+daily+habits+that+can+change+your+life+for+the+better.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-for-the-better%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fchange-your-life-for-the-better%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-for-the-better%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fchange-your-life-for-the-better%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-for-the-better%2F)
 
 [More](#)
 

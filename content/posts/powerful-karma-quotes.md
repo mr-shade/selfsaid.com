@@ -119,15 +119,15 @@ So, whether you need [a pick-me-up for a tough day](/pick-me-up-quotes-when-feel
 95.  “You can run from your karma but you can’t hide.” – Anonymous
 96.  “Karma is not about retribution, vengeance, punishment, or reward. Karma simply deals with what is.” – Anonymous
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fpowerful-karma-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fpowerful-karma-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/powerful-karma-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fkarma-quotes-PIN.jpg&description=A+compilation+of+96+incredibly+powerful+karma+quotes+designed+to+truly+inspire+you+to+live+your+very+best+life.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/powerful-karma-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fkarma-quotes-PIN.jpg&description=A+compilation+of+96+incredibly+powerful+karma+quotes+designed+to+truly+inspire+you+to+live+your+very+best+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=96+Karma+Quotes+to+Inspire+You+to+Live+Your+Very+Best+Life&url=https%3A%2F%2Fseffsaid.com%2Fpowerful-karma-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=96+Karma+Quotes+to+Inspire+You+to+Live+Your+Very+Best+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fpowerful-karma-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fpowerful-karma-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpowerful-karma-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fpowerful-karma-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpowerful-karma-quotes%2F)
 
 [More](#)
 

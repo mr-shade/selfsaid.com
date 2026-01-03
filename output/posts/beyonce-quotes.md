@@ -67,15 +67,15 @@ Beyoncé is not only a global superstar but also a source of inspiration for man
 
 Read more [quotes by famous people](https://seffsaid.com/quotes-by-famous-people/) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbeyonce-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbeyonce-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/beyonce-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBeyonce-Quotes-PIN.jpg&description=Discover+50+of+Beyonc%C3%A9%27s+best+quotes+that+capture+her+indomitable+spirit+and+wisdom.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/beyonce-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBeyonce-Quotes-PIN.jpg&description=Discover+50+of+Beyonc%C3%A9%27s+best+quotes+that+capture+her+indomitable+spirit+and+wisdom.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Beyonce%27s+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fbeyonce-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Beyonce%27s+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeyonce-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbeyonce-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeyonce-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbeyonce-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeyonce-quotes%2F)
 
 [More](#)
 

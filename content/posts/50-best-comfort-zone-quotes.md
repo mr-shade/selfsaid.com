@@ -69,15 +69,15 @@ So now we’ve concluded we all need to step outside of our comfort zones, here 
 49.  “Your comfort zone is not a place that you want to remain in. Dare, discover, be all that you can be.” – Catherine Pulsifer
 50.  “Comfort zones are most often expanded through discomfort.” – Peter McWilliams
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F50-best-comfort-zone-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F50-best-comfort-zone-quotes%2F)
 
 Pin26
 
-[Tweet](https://twitter.com/intent/tweet?text=Discover+the+50+best+comfort+zone+quotes+ever+written.+Stepping+outside+your+comfort+zone+opens+the+door+to+opportunity%2C+builds+confidence%2C+raises+self-esteem+and+enables+personal+growth.&url=https%3A%2F%2Fseffsaid.com%2F50-best-comfort-zone-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Discover+the+50+best+comfort+zone+quotes+ever+written.+Stepping+outside+your+comfort+zone+opens+the+door+to+opportunity%2C+builds+confidence%2C+raises+self-esteem+and+enables+personal+growth.&url=https%3A%2F%2Fselfsaid.30tools.com%2F50-best-comfort-zone-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F50-best-comfort-zone-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F50-best-comfort-zone-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F50-best-comfort-zone-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F50-best-comfort-zone-quotes%2F)
 
 [More](#)
 

@@ -49,15 +49,15 @@ Eventually, your needs will become clearer again. The fog always shifts, even if
 
 You [don’t need to solve everything today](/you-dont-have-to-fix-everything). You just need to stay with yourself. That is care.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-care-when-you-dont-know-what-you-need%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-when-you-dont-know-what-you-need%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/self-care-when-you-dont-know-what-you-need/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FHow-to-Take-Care-of-Yourself-PIN.jpg&description=Not+sure+what+you+need+but+know+something+feels+off%3F+This+calm+self-care+guide+offers+small%2C+doable+ways+to+take+care+of+yourself+when+clarity+is+missing.+Helpful+tips%2C+real+support%2C+and+a+reminder+that+it%E2%80%99s+okay+to+take+your+time.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/self-care-when-you-dont-know-what-you-need/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FHow-to-Take-Care-of-Yourself-PIN.jpg&description=Not+sure+what+you+need+but+know+something+feels+off%3F+This+calm+self-care+guide+offers+small%2C+doable+ways+to+take+care+of+yourself+when+clarity+is+missing.+Helpful+tips%2C+real+support%2C+and+a+reminder+that+it%E2%80%99s+okay+to+take+your+time.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+to+Take+Care+of+Yourself+When+You%E2%80%99re+Not+Sure+What+You+Need&url=https%3A%2F%2Fseffsaid.com%2Fself-care-when-you-dont-know-what-you-need%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+to+Take+Care+of+Yourself+When+You%E2%80%99re+Not+Sure+What+You+Need&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-when-you-dont-know-what-you-need%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-care-when-you-dont-know-what-you-need%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-when-you-dont-know-what-you-need%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-care-when-you-dont-know-what-you-need%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-when-you-dont-know-what-you-need%2F)
 
 [More](#)
 

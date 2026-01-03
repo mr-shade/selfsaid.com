@@ -78,15 +78,15 @@ I’ve learned that there’s a beauty in [saying yes](/say-yes-to-yourself) to 
 
 Enjoyed these quotes? Read more [quotes from famous singers](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fcarly-rae-jepsen-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcarly-rae-jepsen-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/carly-rae-jepsen-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FCarly-Rae-Jepsen-Quotes-PIN.jpg&description=A+collection+of+Carly+Rae+Jepsen+quotes+that+reflect+her+thoughts+on+creativity%2C+life%2C+music%2C+and+personal+growth.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/carly-rae-jepsen-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FCarly-Rae-Jepsen-Quotes-PIN.jpg&description=A+collection+of+Carly+Rae+Jepsen+quotes+that+reflect+her+thoughts+on+creativity%2C+life%2C+music%2C+and+personal+growth.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Carly+Rae+Jepsen+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fcarly-rae-jepsen-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Carly+Rae+Jepsen+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fcarly-rae-jepsen-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fcarly-rae-jepsen-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcarly-rae-jepsen-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fcarly-rae-jepsen-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fcarly-rae-jepsen-quotes%2F)
 
 [More](#)
 

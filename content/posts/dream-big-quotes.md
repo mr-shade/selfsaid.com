@@ -146,15 +146,15 @@ You don’t need to hustle your way into a bigger life. You can trust your dream
 
 – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdream-big-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big-quotes%2F)
 
-[Pin19](https://pinterest.com/pin/create/button/?url=/dream-big-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fdream-big-quotes-PIN.jpg&description=These+quotes+about+dreaming+big+and+believing+in+yourself+are+honest+reminders+that+you%E2%80%99re+allowed+to+want+more.+Encouragement+for+when+you%E2%80%99re+starting+small+but+still+hoping+for+big.+via+%40SeffSaid)
+[Pin19](https://pinterest.com/pin/create/button/?url=/dream-big-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fdream-big-quotes-PIN.jpg&description=These+quotes+about+dreaming+big+and+believing+in+yourself+are+honest+reminders+that+you%E2%80%99re+allowed+to+want+more.+Encouragement+for+when+you%E2%80%99re+starting+small+but+still+hoping+for+big.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Quotes+About+Dreaming+Big+and+Believing+in+Yourself&url=https%3A%2F%2Fseffsaid.com%2Fdream-big-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Quotes+About+Dreaming+Big+and+Believing+in+Yourself&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdream-big-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdream-big-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big-quotes%2F)
 
 [More](#)
 

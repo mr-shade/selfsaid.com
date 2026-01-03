@@ -72,15 +72,15 @@ If itâ€™s a task you have completed thousands of times before, you probably donâ
 
 When all is said and done, it is not what we do, it is the way in which we approach every second of our existence. If we learn to find meaning in the mundane and in work that we find boring, we can surely find meaning and happiness anywhere and in everything. And that is a skill that is infinitely transferable and can give meaning to every [moment of our lives](/how-to-live-in-the-moment).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ffinding-meaning-in-the-mundane%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ffinding-meaning-in-the-mundane%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/finding-meaning-in-the-mundane/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FFinding-Meaning-In-The-Mundane-PIN.jpg&description=Learn+how+to+appreciate+your+life+and+see+that+it+is+already+filled+with+enormous+meaning.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/finding-meaning-in-the-mundane/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FFinding-Meaning-In-The-Mundane-PIN.jpg&description=Learn+how+to+appreciate+your+life+and+see+that+it+is+already+filled+with+enormous+meaning.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Seven+tips+on+finding+meaning+in+the+mundane.+Learn+how+to+realize+and+appreciate+the+life+you+already+have%2C+and+see+that+it+is+already+filled+with+enormous+meaning.&url=https%3A%2F%2Fseffsaid.com%2Ffinding-meaning-in-the-mundane%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Seven+tips+on+finding+meaning+in+the+mundane.+Learn+how+to+realize+and+appreciate+the+life+you+already+have%2C+and+see+that+it+is+already+filled+with+enormous+meaning.&url=https%3A%2F%2Fselfsaid.30tools.com%2Ffinding-meaning-in-the-mundane%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ffinding-meaning-in-the-mundane%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffinding-meaning-in-the-mundane%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ffinding-meaning-in-the-mundane%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffinding-meaning-in-the-mundane%2F)
 
 [More](#)
 

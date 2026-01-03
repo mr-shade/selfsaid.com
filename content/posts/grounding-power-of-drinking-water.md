@@ -66,15 +66,15 @@ Water taught me that.
 
 \> For more simple habits that help anchor your day, check out The [Everyday Self-Care Routine](/everyday-self-care-routine): 7 Habits That Actually Stick.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fgrounding-power-of-drinking-water%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgrounding-power-of-drinking-water%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/grounding-power-of-drinking-water/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fpower-of-drinking-water-PIN.jpg&description=Feeling+anxious+or+disconnected%3F+You+might+be+overlooking+one+of+the+simplest+self-care+tools%3A+water.+Learn+how+drinking+water+became+a+grounding+daily+ritual+that+helped+me+feel+calmer%2C+more+present%2C+and+more+in+control.+It%E2%80%99s+not+just+about+hydration%2C+it%E2%80%99s+about+showing+up+for+yourself+in+the+smallest%2C+most+powerful+ways.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/grounding-power-of-drinking-water/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fpower-of-drinking-water-PIN.jpg&description=Feeling+anxious+or+disconnected%3F+You+might+be+overlooking+one+of+the+simplest+self-care+tools%3A+water.+Learn+how+drinking+water+became+a+grounding+daily+ritual+that+helped+me+feel+calmer%2C+more+present%2C+and+more+in+control.+It%E2%80%99s+not+just+about+hydration%2C+it%E2%80%99s+about+showing+up+for+yourself+in+the+smallest%2C+most+powerful+ways.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+Surprisingly+Grounding+Power+of+Drinking+Water&url=https%3A%2F%2Fseffsaid.com%2Fgrounding-power-of-drinking-water%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+Surprisingly+Grounding+Power+of+Drinking+Water&url=https%3A%2F%2Fselfsaid.30tools.com%2Fgrounding-power-of-drinking-water%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fgrounding-power-of-drinking-water%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgrounding-power-of-drinking-water%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fgrounding-power-of-drinking-water%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgrounding-power-of-drinking-water%2F)
 
 [More](#)
 

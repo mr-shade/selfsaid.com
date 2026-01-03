@@ -141,15 +141,15 @@ For anyone seeking motivation—sports enthusiasts, athletes, or those in need o
 119.  “You must be ready to fail miserably to achieve greatly.” – Michael Jordan
 120.  “Champions do not become champions when they win the event, but in the hours, weeks, months and years they spend preparing for it.” – Michael Jordan
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmichael-jordan-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmichael-jordan-quotes%2F)
 
-[Pin35](https://pinterest.com/pin/create/button/?url=/michael-jordan-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmichael-jordan-quotes-PIN.jpg&description=Unleash+your+full+potential+with+120+Michael+Jordan+quotes+that+inspire+greatness.+via+%40SeffSaid)
+[Pin35](https://pinterest.com/pin/create/button/?url=/michael-jordan-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmichael-jordan-quotes-PIN.jpg&description=Unleash+your+full+potential+with+120+Michael+Jordan+quotes+that+inspire+greatness.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=120+Michael+Jordan+Quotes+to+Inspire+Your+Personal+Best&url=https%3A%2F%2Fseffsaid.com%2Fmichael-jordan-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=120+Michael+Jordan+Quotes+to+Inspire+Your+Personal+Best&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmichael-jordan-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmichael-jordan-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmichael-jordan-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmichael-jordan-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmichael-jordan-quotes%2F)
 
 [More](#)
 

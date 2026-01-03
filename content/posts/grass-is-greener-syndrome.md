@@ -30,15 +30,15 @@ Considered from a purely symbolic point of view, all we need to do is notice the
   
 It takes continued effort to stop comparing our lives to others, but it can be done. The [attitude of gratitude](/how-to-cultivate-an-attitude-of-gratitude) can truly guide us if we just look in the right places and bring our mental microscope down on the right objects. So “the grass is always greener on the other side” is a useful and succinct saying, but we could also say “look for a sprig of grass in your own backyard”. Maybe, with a little more awareness, a little nurture and kindness, we can cultivate the habit of gratitude for what we have and in so doing, our lives and, those of the people around us, can become that little bit brighter.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fgrass-is-greener-syndrome%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgrass-is-greener-syndrome%2F)
 
 Pin2
 
-[Tweet](https://twitter.com/intent/tweet?text=How+I+Overcame+%27Grass+is+Greener%27+Syndrome&url=https%3A%2F%2Fseffsaid.com%2Fgrass-is-greener-syndrome%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+I+Overcame+%27Grass+is+Greener%27+Syndrome&url=https%3A%2F%2Fselfsaid.30tools.com%2Fgrass-is-greener-syndrome%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fgrass-is-greener-syndrome%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgrass-is-greener-syndrome%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fgrass-is-greener-syndrome%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgrass-is-greener-syndrome%2F)
 
 [More](#)
 

@@ -66,15 +66,15 @@ Gratitude has the power to shift perspectives and increase contentment. Reflect 
 
 By consistently revisiting these questions each week, you create a space for introspection and self-awareness. This practice not only helps you understand your actions but also empowers you to make intentional [choices for the future](/future-self).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquestions-you-should-ask-yourself%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-you-should-ask-yourself%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/questions-you-should-ask-yourself/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquestions-ask-yourself-PIN.jpg&description=Start+your+week+on+the+right+note+by+asking+yourself+these+twelve+transformative+questions+every+Sunday.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/questions-you-should-ask-yourself/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquestions-ask-yourself-PIN.jpg&description=Start+your+week+on+the+right+note+by+asking+yourself+these+twelve+transformative+questions+every+Sunday.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=12+Questions+You+Should+Ask+Yourself+Every+Sunday&url=https%3A%2F%2Fseffsaid.com%2Fquestions-you-should-ask-yourself%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=12+Questions+You+Should+Ask+Yourself+Every+Sunday&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-you-should-ask-yourself%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquestions-you-should-ask-yourself%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-you-should-ask-yourself%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquestions-you-should-ask-yourself%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-you-should-ask-yourself%2F)
 
 [More](#)
 

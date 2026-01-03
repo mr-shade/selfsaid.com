@@ -96,15 +96,15 @@ These 60 quotes are steady reminders that emotional healing is possible, even on
 59.  “Every ending carries the seed of a beginning.” – Unknown
 60.  “Your healing doesn’t have to be loud to be real.” – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Femotional-healing-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Femotional-healing-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/emotional-healing-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Femotional-healing-quotes-PIN.jpg&description=Tough+day%3F+This+collection+of+60+emotional+healing+quotes+is+here+to+offer+quiet+support.+Divided+into+six+sections%2C+these+quotes+speak+to+the+real+experience+of+pain%2C+grief%2C+and+emotional+recovery%2C+without+pressure+or+perfection.+Save+this+post+for+the+moments+when+you+need+to+feel+a+little+less+alone%2C+and+a+little+more+steady+inside+yourself.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/emotional-healing-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Femotional-healing-quotes-PIN.jpg&description=Tough+day%3F+This+collection+of+60+emotional+healing+quotes+is+here+to+offer+quiet+support.+Divided+into+six+sections%2C+these+quotes+speak+to+the+real+experience+of+pain%2C+grief%2C+and+emotional+recovery%2C+without+pressure+or+perfection.+Save+this+post+for+the+moments+when+you+need+to+feel+a+little+less+alone%2C+and+a+little+more+steady+inside+yourself.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Emotional+Healing+Quotes+for+Tough+Days&url=https%3A%2F%2Fseffsaid.com%2Femotional-healing-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Emotional+Healing+Quotes+for+Tough+Days&url=https%3A%2F%2Fselfsaid.30tools.com%2Femotional-healing-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Femotional-healing-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Femotional-healing-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Femotional-healing-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Femotional-healing-quotes%2F)
 
 [More](#)
 

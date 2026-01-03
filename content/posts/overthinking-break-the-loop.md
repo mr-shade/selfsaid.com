@@ -56,15 +56,15 @@ Repeat as needed. This isn’t about [stopping overthinking](/stop-overthinking-
 
 And that begins with one small shift back toward yourself.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Foverthinking-break-the-loop%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Foverthinking-break-the-loop%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/overthinking-break-the-loop/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Foverthinking-break-the-loop-PIN.jpg&description=Stuck+in+a+loop+of+overthinking%3F+This+simple+shift+helped+me+clear+my+mind+and+move+forward.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/overthinking-break-the-loop/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Foverthinking-break-the-loop-PIN.jpg&description=Stuck+in+a+loop+of+overthinking%3F+This+simple+shift+helped+me+clear+my+mind+and+move+forward.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Overthinking+Again%3F+This+Helped+Me+Break+the+Loop&url=https%3A%2F%2Fseffsaid.com%2Foverthinking-break-the-loop%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Overthinking+Again%3F+This+Helped+Me+Break+the+Loop&url=https%3A%2F%2Fselfsaid.30tools.com%2Foverthinking-break-the-loop%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Foverthinking-break-the-loop%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Foverthinking-break-the-loop%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Foverthinking-break-the-loop%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Foverthinking-break-the-loop%2F)
 
 [More](#)
 

@@ -106,15 +106,15 @@ Create routines that support your goals, track your progress, and adjust as need
 
 Building a better you is a rewarding process that requires effort, patience, and a willingness to adapt. By taking intentional steps and remaining focused on your aspirations, you can create meaningful, lasting improvements that bring you closer to the person you want to be.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbuild-a-better-version-of-you%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbuild-a-better-version-of-you%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/build-a-better-version-of-you/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBuild-A-Better-Version-Of-You-PIN.jpg&description=Discover+how+to+shape+your+habits%2C+mindset%2C+and+routines+to+create+the+very+best+version+of+yourself.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/build-a-better-version-of-you/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBuild-A-Better-Version-Of-You-PIN.jpg&description=Discover+how+to+shape+your+habits%2C+mindset%2C+and+routines+to+create+the+very+best+version+of+yourself.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Build+A+Better+Version+Of+You&url=https%3A%2F%2Fseffsaid.com%2Fbuild-a-better-version-of-you%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Build+A+Better+Version+Of+You&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuild-a-better-version-of-you%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbuild-a-better-version-of-you%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuild-a-better-version-of-you%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbuild-a-better-version-of-you%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbuild-a-better-version-of-you%2F)
 
 [More](#)
 

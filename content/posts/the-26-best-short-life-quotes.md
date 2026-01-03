@@ -43,15 +43,15 @@ Here’s a collection of the 26 best short ‘Life Quotes’ that will fill you 
 25.  “Youth is counted sweetest by those who are no longer young.” – John Green
 26.  “What a wonderful life I’ve had! I only wish I’d realized it sooner.” – Colette
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthe-26-best-short-life-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-26-best-short-life-quotes%2F)
 
-[Pin101](https://pinterest.com/pin/create/button/?url=/the-26-best-short-life-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fbest-short-life-quotes-PIN.jpg&description=The+26+best+short+%E2%80%98Life+Quotes%E2%80%99+that+will+fill+you+with+inspiration+and+brighten+your+day.+via+%40SeffSaid)
+[Pin101](https://pinterest.com/pin/create/button/?url=/the-26-best-short-life-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fbest-short-life-quotes-PIN.jpg&description=The+26+best+short+%E2%80%98Life+Quotes%E2%80%99+that+will+fill+you+with+inspiration+and+brighten+your+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=26+Best+Short+%27Life+Quotes%27&url=https%3A%2F%2Fseffsaid.com%2Fthe-26-best-short-life-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=26+Best+Short+%27Life+Quotes%27&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-26-best-short-life-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthe-26-best-short-life-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-26-best-short-life-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthe-26-best-short-life-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-26-best-short-life-quotes%2F)
 
 [More](#)
 

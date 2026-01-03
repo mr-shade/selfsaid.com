@@ -87,15 +87,15 @@ There is no single formula for success. It is a combination of persistence, lear
 
 You cannot control everything, but you can choose how you show up each day. Consistency, curiosity, and self-care are all forms of success in themselves. Focus on progress, not comparison, and you will find that your version of success is already taking shape.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fwhy-some-people-are-more-successful-than-others%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-some-people-are-more-successful-than-others%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/why-some-people-are-more-successful-than-others/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fwhy-some-people-are-more-successful-PIN.jpg&description=10+traits+that+explain+why+some+people+are+more+successful+than+others%2C+and+how+you+can+use+them+to+build+your+own+version+of+success.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/why-some-people-are-more-successful-than-others/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fwhy-some-people-are-more-successful-PIN.jpg&description=10+traits+that+explain+why+some+people+are+more+successful+than+others%2C+and+how+you+can+use+them+to+build+your+own+version+of+success.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Why+Some+People+Are+More+Successful+Than+Others&url=https%3A%2F%2Fseffsaid.com%2Fwhy-some-people-are-more-successful-than-others%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Why+Some+People+Are+More+Successful+Than+Others&url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-some-people-are-more-successful-than-others%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fwhy-some-people-are-more-successful-than-others%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-some-people-are-more-successful-than-others%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fwhy-some-people-are-more-successful-than-others%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fwhy-some-people-are-more-successful-than-others%2F)
 
 [More](#)
 

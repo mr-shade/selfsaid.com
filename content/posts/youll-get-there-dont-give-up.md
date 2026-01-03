@@ -69,15 +69,15 @@ $4.99 – Instant Download
 
 [ADD TO CART](https://payhip.com/b/97rP2)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fyoull-get-there-dont-give-up%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyoull-get-there-dont-give-up%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=/youll-get-there-dont-give-up/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FYoull-Get-There-Dont-Give-Up.jpg&description=Motivate+yourself+with+this+You%27ll+Get+There+Don%27t+Give+Up+printable+quote+wall+art%2C+pushing+you+to+keep+going+and+reach+your+goals+without+ever+giving+up.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=/youll-get-there-dont-give-up/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FYoull-Get-There-Dont-Give-Up.jpg&description=Motivate+yourself+with+this+You%27ll+Get+There+Don%27t+Give+Up+printable+quote+wall+art%2C+pushing+you+to+keep+going+and+reach+your+goals+without+ever+giving+up.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=You%27ll+Get+There+Don%27t+Give+Up+Printable+Quote&url=https%3A%2F%2Fseffsaid.com%2Fyoull-get-there-dont-give-up%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=You%27ll+Get+There+Don%27t+Give+Up+Printable+Quote&url=https%3A%2F%2Fselfsaid.30tools.com%2Fyoull-get-there-dont-give-up%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fyoull-get-there-dont-give-up%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyoull-get-there-dont-give-up%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fyoull-get-there-dont-give-up%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyoull-get-there-dont-give-up%2F)
 
 [More](#)
 

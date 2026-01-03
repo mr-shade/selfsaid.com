@@ -60,15 +60,15 @@ Writing down your thoughts, dreams, or simply how your day went can be a calming
 
 Treating yourself doesn’t have to involve spending a lot of money. By focusing on simple, enjoyable activities, you can create [moments of relaxation](/instant-relaxation) and [happiness in your daily life](/unlock-the-secrets-to-true-happiness). These ideas not only help you feel cared for but also remind you that self-care can be both accessible and meaningful.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fways-to-pamper-yourself%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-pamper-yourself%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/ways-to-pamper-yourself/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fpamper-yourself-PIN.jpg&description=Pamper+yourself+on+a+budget+with+these+10+simple+and+affordable+self-care+ideas.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/ways-to-pamper-yourself/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fpamper-yourself-PIN.jpg&description=Pamper+yourself+on+a+budget+with+these+10+simple+and+affordable+self-care+ideas.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Ways+To+Pamper+Yourself+Without+Breaking+The+Bank&url=https%3A%2F%2Fseffsaid.com%2Fways-to-pamper-yourself%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Ways+To+Pamper+Yourself+Without+Breaking+The+Bank&url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-pamper-yourself%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fways-to-pamper-yourself%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-pamper-yourself%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fways-to-pamper-yourself%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-pamper-yourself%2F)
 
 [More](#)
 

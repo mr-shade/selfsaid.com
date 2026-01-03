@@ -58,15 +58,15 @@ If basic tasks such as responding to messages, running errands, or cleaning feel
 
 Paying attention to these signs can help prevent burnout and improve overall well-being. Small adjustments in [daily habits](/5-simple-daily-habits-that-can-actually-change-your-life) can lead to significant improvements in physical and mental health. Prioritizing personal care can lead to a more balanced and fulfilling life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbetter-care-signs%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbetter-care-signs%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/better-care-signs/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBetter-Care-Signs-PIN.jpg&description=Your+body+and+mind+are+sending+signals+that+shouldn%27t+be+ignored+and+these+ten+signs+will+help+you+recognize+them.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/better-care-signs/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBetter-Care-Signs-PIN.jpg&description=Your+body+and+mind+are+sending+signals+that+shouldn%27t+be+ignored+and+these+ten+signs+will+help+you+recognize+them.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Signs+You+Need+To+Take+Better+Care+Of+Yourself&url=https%3A%2F%2Fseffsaid.com%2Fbetter-care-signs%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Signs+You+Need+To+Take+Better+Care+Of+Yourself&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbetter-care-signs%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbetter-care-signs%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbetter-care-signs%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbetter-care-signs%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbetter-care-signs%2F)
 
 [More](#)
 

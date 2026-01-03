@@ -47,15 +47,15 @@ Instead of scheduling back-to-back meetings or tasks, intentionally leave buffer
 
 By implementing these fresh approaches, you can reimagine how you organize your time and effort. Experiment with the methods that resonate most, and you might discover a few surprising ways to achieve more while feeling less overwhelmed.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fproductivity-hacks%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fproductivity-hacks%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/productivity-hacks/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FProductivity-Hacks-You-Havent-Tried-PIN.jpg&description=These+out-of-the-box+productivity+hacks+might+just+make+you+rethink+everything+you+know+about+efficiency.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/productivity-hacks/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FProductivity-Hacks-You-Havent-Tried-PIN.jpg&description=These+out-of-the-box+productivity+hacks+might+just+make+you+rethink+everything+you+know+about+efficiency.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=7+Productivity+Hacks+You+Definitely+Haven%27t+Tried+Yet&url=https%3A%2F%2Fseffsaid.com%2Fproductivity-hacks%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=7+Productivity+Hacks+You+Definitely+Haven%27t+Tried+Yet&url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductivity-hacks%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fproductivity-hacks%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductivity-hacks%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fproductivity-hacks%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductivity-hacks%2F)
 
 [More](#)
 

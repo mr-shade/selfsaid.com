@@ -100,15 +100,15 @@ Once you are in a flow state, you can stay there for as long as you hold your re
   
 I hope these nine tips and my own experience will help you find your relaxed flow state. If it doesn’t happen quickly or easily for you then please don’t give up. Try the tips with the adjustments suggested and be sure to practice regularly for a few weeks. I’m sure you can succeed with just a little time and patience!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fflow-state-of-mind%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fflow-state-of-mind%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/flow-state-of-mind/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fflow-state-of-mind-PIN.jpg&description=Learn+how+to+achieve+a+flow+state+of+mind%2C+the+incredible+mental+state+that+emerges+when+one+is+fully+absorbed+in+an+activity.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/flow-state-of-mind/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fflow-state-of-mind-PIN.jpg&description=Learn+how+to+achieve+a+flow+state+of+mind%2C+the+incredible+mental+state+that+emerges+when+one+is+fully+absorbed+in+an+activity.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Enter+A+Flow+State+Of+Mind&url=https%3A%2F%2Fseffsaid.com%2Fflow-state-of-mind%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Enter+A+Flow+State+Of+Mind&url=https%3A%2F%2Fselfsaid.30tools.com%2Fflow-state-of-mind%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fflow-state-of-mind%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fflow-state-of-mind%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fflow-state-of-mind%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fflow-state-of-mind%2F)
 
 [More](#)
 

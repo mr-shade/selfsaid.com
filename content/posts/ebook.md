@@ -22,15 +22,15 @@ Subscribe to my weekly Inspirational Newsletter today and receive my 85-page eBo
 
 You can unsubscribe from my newsletter at any time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Febook%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Febook%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Febook%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Febook%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=eBook&url=https%3A%2F%2Fseffsaid.com%2Febook%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=eBook&url=https%3A%2F%2Fselfsaid.30tools.com%2Febook%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Febook%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Febook%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Febook%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Febook%2F)
 
 [More](#)
 

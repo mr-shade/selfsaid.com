@@ -207,15 +207,15 @@ This collection of love quotes is designed to help you express your deepest emot
 187.  “You are my today and all of my tomorrows.” – Leo Christopher
 188.  “I love you for all that you are, all that you have been, and all that you will be.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flove-quotes-for-him%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flove-quotes-for-him%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/love-quotes-for-him/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FLove-Quotes-For-Him-PIN.jpg&description=Discover+the+perfect+words+to+express+your+deepest+feelings+with+these+hand+curated+188+Love+Quotes+For+Him.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/love-quotes-for-him/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FLove-Quotes-For-Him-PIN.jpg&description=Discover+the+perfect+words+to+express+your+deepest+feelings+with+these+hand+curated+188+Love+Quotes+For+Him.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=188+Love+Quotes+For+Him&url=https%3A%2F%2Fseffsaid.com%2Flove-quotes-for-him%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=188+Love+Quotes+For+Him&url=https%3A%2F%2Fselfsaid.30tools.com%2Flove-quotes-for-him%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flove-quotes-for-him%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flove-quotes-for-him%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flove-quotes-for-him%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flove-quotes-for-him%2F)
 
 [More](#)
 

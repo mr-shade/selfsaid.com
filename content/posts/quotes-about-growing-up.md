@@ -147,15 +147,15 @@ Growing up is a process unique to each individual, filled with moments of learni
 129.  “Adulthood is like looking both ways before you cross the street and then getting hit by an airplane.” – Unknown
 130.  “It’s never too late to have a happy childhood.” – Tom Robbins
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-growing-up%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-growing-up%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/quotes-about-growing-up/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-about-growing-up-PIN.jpg&description=Let+these+130+inspirational+quotes+about+growing+up+guide+you+through+the+ups+and+downs+of+getting+older.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/quotes-about-growing-up/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-about-growing-up-PIN.jpg&description=Let+these+130+inspirational+quotes+about+growing+up+guide+you+through+the+ups+and+downs+of+getting+older.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=130+Inspirational+Quotes+About+Growing+Up&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-growing-up%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=130+Inspirational+Quotes+About+Growing+Up&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-growing-up%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-growing-up%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-growing-up%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-growing-up%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-growing-up%2F)
 
 [More](#)
 

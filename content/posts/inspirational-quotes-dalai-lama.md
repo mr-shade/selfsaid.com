@@ -114,15 +114,15 @@ Whether you’re looking for guidance during challenging times or simply wish to
 91.  “If you want others to be happy, practice compassion. If you want to be happy, practice compassion.” – Dalai Lama
 92.  “My religion is very simple. My religion is kindness.” – Dalai Lama
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Finspirational-quotes-dalai-lama%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-quotes-dalai-lama%2F)
 
-[Pin9](https://pinterest.com/pin/create/button/?url=/inspirational-quotes-dalai-lama/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fdalai-lama-quotes-PIN.jpg&description=Unlock+the+secrets+to+a+happier%2C+more+peaceful+life+with+these+92+must-read+quotes+from+the+Dalai+Lama.+via+%40SeffSaid)
+[Pin9](https://pinterest.com/pin/create/button/?url=/inspirational-quotes-dalai-lama/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fdalai-lama-quotes-PIN.jpg&description=Unlock+the+secrets+to+a+happier%2C+more+peaceful+life+with+these+92+must-read+quotes+from+the+Dalai+Lama.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=92+Quotes+From+The+Dalai+Lama+That+Everyone+Should+Read&url=https%3A%2F%2Fseffsaid.com%2Finspirational-quotes-dalai-lama%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=92+Quotes+From+The+Dalai+Lama+That+Everyone+Should+Read&url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-quotes-dalai-lama%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Finspirational-quotes-dalai-lama%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-quotes-dalai-lama%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Finspirational-quotes-dalai-lama%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-quotes-dalai-lama%2F)
 
 [More](#)
 

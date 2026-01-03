@@ -106,15 +106,15 @@ Remember, small changes can lead to significant improvements over time. It’s o
   
 If you’d like to read more on this subject, please read my article on how to eliminate [disguised procrastination](https://seffsaid.com/eliminate-disguised-procrastination/).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-stop-procrastinating%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-procrastinating%2F)
 
 Pin6
 
-[Tweet](https://twitter.com/intent/tweet?text=Learn+how+to+stop+procrastinating+right+now.+Overcoming+procrastination+will+reduce+stress%2C+lower+anxiety%2C+build+self-confidence%2C+give+you+more+free+time%2C+and+allow+you+to+take+back+control+of+your+life.+&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stop-procrastinating%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Learn+how+to+stop+procrastinating+right+now.+Overcoming+procrastination+will+reduce+stress%2C+lower+anxiety%2C+build+self-confidence%2C+give+you+more+free+time%2C+and+allow+you+to+take+back+control+of+your+life.+&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-procrastinating%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stop-procrastinating%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-procrastinating%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stop-procrastinating%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-procrastinating%2F)
 
 [More](#)
 

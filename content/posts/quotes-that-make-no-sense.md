@@ -138,15 +138,15 @@ A collection of deep yet confusing quotes that initially seem profound, but soon
 
 “In the void, even echoes forget their origins.” – Abyss Philosopher
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-that-make-no-sense%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-make-no-sense%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/quotes-that-make-no-sense/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-that-make-no-sense-PIN.jpg&description=A+selection+of+deep+yet+confusing+quotes+that+initially+seem+profound%2C+but+soon+leave+you+questioning+their+meaning.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/quotes-that-make-no-sense/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-that-make-no-sense-PIN.jpg&description=A+selection+of+deep+yet+confusing+quotes+that+initially+seem+profound%2C+but+soon+leave+you+questioning+their+meaning.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Deep+Quotes+That+Make+No+Sense&url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-make-no-sense%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Deep+Quotes+That+Make+No+Sense&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-make-no-sense%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-make-no-sense%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-make-no-sense%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-that-make-no-sense%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-that-make-no-sense%2F)
 
 [More](#)
 

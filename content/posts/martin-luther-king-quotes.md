@@ -132,15 +132,15 @@ Care has power. Compassion changes conversations. Love is not weakness. It is cl
 
 Martin Luther King Jr.’s words continue to move the world. But they can also meet you quietly – in your day, your thoughts, your efforts to live well. His voice reminds us that strength and kindness are not opposites. They often arrive together.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmartin-luther-king-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmartin-luther-king-quotes%2F)
 
-[Pin12](https://pinterest.com/pin/create/button/?url=/martin-luther-king-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmartin-luther-king-quotes-PIN2.jpg&description=Martin+Luther+King+Jr.+quotes+about+courage%2C+change%2C+and+care.+Reminders+to+help+you+move+forward+with+clarity%2C+strength%2C+and+compassion.+via+%40SeffSaid)
+[Pin12](https://pinterest.com/pin/create/button/?url=/martin-luther-king-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmartin-luther-king-quotes-PIN2.jpg&description=Martin+Luther+King+Jr.+quotes+about+courage%2C+change%2C+and+care.+Reminders+to+help+you+move+forward+with+clarity%2C+strength%2C+and+compassion.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Martin+Luther+King+Jr.+Quotes+About+Courage%2C+Change%2C+and+Care&url=https%3A%2F%2Fseffsaid.com%2Fmartin-luther-king-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Martin+Luther+King+Jr.+Quotes+About+Courage%2C+Change%2C+and+Care&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmartin-luther-king-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmartin-luther-king-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmartin-luther-king-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmartin-luther-king-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmartin-luther-king-quotes%2F)
 
 [More](#)
 

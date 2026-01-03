@@ -105,15 +105,15 @@ From his early days as a bodybuilder to his illustrious film career and politica
 85.  “You can have results or excuses. Not both.” – Arnold Schwarzenegger
 86.  “Start wide, expand further, and never look back.” – Arnold Schwarzenegger
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Farnold-schwarzenegger-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Farnold-schwarzenegger-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/arnold-schwarzenegger-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Farnold-schwarzenegger-quotes-PIN.jpg&description=Discover+the+power+of+determination+with+86+of+the+best+Arnold+Schwarzenegger+Quotes.+Get+both+inspired+and+motivated+today%21+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/arnold-schwarzenegger-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Farnold-schwarzenegger-quotes-PIN.jpg&description=Discover+the+power+of+determination+with+86+of+the+best+Arnold+Schwarzenegger+Quotes.+Get+both+inspired+and+motivated+today%21+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Discover+the+power+of+determination+with+86+of+the+best+Arnold+Schwarzenegger+Quotes.+Get+both+inspired+and+motivated+today%21&url=https%3A%2F%2Fseffsaid.com%2Farnold-schwarzenegger-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Discover+the+power+of+determination+with+86+of+the+best+Arnold+Schwarzenegger+Quotes.+Get+both+inspired+and+motivated+today%21&url=https%3A%2F%2Fselfsaid.30tools.com%2Farnold-schwarzenegger-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Farnold-schwarzenegger-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Farnold-schwarzenegger-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Farnold-schwarzenegger-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Farnold-schwarzenegger-quotes%2F)
 
 [More](#)
 

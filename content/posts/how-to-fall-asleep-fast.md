@@ -90,15 +90,15 @@ A [2015 study](https://www.health.harvard.edu/blog/mindfulness-meditation-helps-
 
 Experiencing difficulty in falling asleep can be frustrating, however, there is no need to get anxious or stressed as this will only exacerbate the problem. Instead, try practicing some of the techniques above, and insomnia should soon be a problem of the past.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-fall-asleep-fast%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-fall-asleep-fast%2F)
 
 Pin20
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Fall+Asleep+Fast&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-fall-asleep-fast%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Fall+Asleep+Fast&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-fall-asleep-fast%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-fall-asleep-fast%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-fall-asleep-fast%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-fall-asleep-fast%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-fall-asleep-fast%2F)
 
 [More](#)
 

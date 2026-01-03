@@ -66,15 +66,15 @@ For example “You hate your job and most of your colleagues”. Try changing th
 
 By making small consistent changes to your attitude, over time you will be able to [make the most of the time](/take-back-time-for-yourself), energy, and resources you have. Boosting your well-being, confidence, optimism, productivity, and satisfaction in all areas of your life. All it takes is a little self-awareness and a few small changes to have a [mindset that is positive](/always-keep-a-positive-mindset) and stable, and able to withstand everything that life throws at you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F)
 
 Pin5
 
-[Tweet](https://twitter.com/intent/tweet?text=Seven+Signs+It%27s+Time+To+Change+Your+Mindset&url=https%3A%2F%2Fseffsaid.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Seven+Signs+It%27s+Time+To+Change+Your+Mindset&url=https%3A%2F%2Fselfsaid.30tools.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F)
 
 [More](#)
 

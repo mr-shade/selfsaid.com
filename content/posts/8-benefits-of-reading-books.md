@@ -66,15 +66,15 @@ Don’t forget that you should avoid reading on blue screens for at least two or
 
 So go crack open a great book and you’ll start feeling the benefits of reading books throughout all areas of your life. What are you waiting for?
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F8-benefits-of-reading-books%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F8-benefits-of-reading-books%2F)
 
-[Pin19](https://pinterest.com/pin/create/button/?url=/8-benefits-of-reading-books/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F07%2Fbenefits-of-reading-books-1.jpg&description=Reading+books+is+one+of+the+cheapest+and+most+satisfying+hobbies.+Every+day+millions+of+people+around+the+world+enjoy+reading+a+book.+But+why+do+we+enjoy+it%2C+and+why+is+it+so+good+for+us%3F+Multiple+studies+on+the+benefits+of+reading+books+has+led+to+the+conclusion+that+when+practiced+regularly%2C+it+has+many+benefits.+Here+are+8+reasons+why+you+should+start+reading+a+novel+today.+via+%40SeffSaid)
+[Pin19](https://pinterest.com/pin/create/button/?url=/8-benefits-of-reading-books/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F07%2Fbenefits-of-reading-books-1.jpg&description=Reading+books+is+one+of+the+cheapest+and+most+satisfying+hobbies.+Every+day+millions+of+people+around+the+world+enjoy+reading+a+book.+But+why+do+we+enjoy+it%2C+and+why+is+it+so+good+for+us%3F+Multiple+studies+on+the+benefits+of+reading+books+has+led+to+the+conclusion+that+when+practiced+regularly%2C+it+has+many+benefits.+Here+are+8+reasons+why+you+should+start+reading+a+novel+today.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Awesome+Benefits+Of+Reading+Books&url=https%3A%2F%2Fseffsaid.com%2F8-benefits-of-reading-books%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Awesome+Benefits+Of+Reading+Books&url=https%3A%2F%2Fselfsaid.30tools.com%2F8-benefits-of-reading-books%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F8-benefits-of-reading-books%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F8-benefits-of-reading-books%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F8-benefits-of-reading-books%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F8-benefits-of-reading-books%2F)
 
 [More](#)
 

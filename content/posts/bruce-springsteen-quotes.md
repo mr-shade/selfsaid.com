@@ -73,15 +73,15 @@ Bruce Springsteen’s words have inspired generations, capturing life’s highs 
 
 Read more [quotes from famous artists](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbruce-springsteen-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-springsteen-quotes%2F)
 
-[Pin33](https://pinterest.com/pin/create/button/?url=/bruce-springsteen-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fbruce-springsteen-quotes-PIN.jpg&description=Bruce+Springsteen%27s+best+quotes%2C+revealing+insights+about+life+and+grit+that+fans+and+newcomers+alike+will+find+both+relatable+and+inspiring.+via+%40SeffSaid)
+[Pin33](https://pinterest.com/pin/create/button/?url=/bruce-springsteen-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fbruce-springsteen-quotes-PIN.jpg&description=Bruce+Springsteen%27s+best+quotes%2C+revealing+insights+about+life+and+grit+that+fans+and+newcomers+alike+will+find+both+relatable+and+inspiring.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Bruce+Springsteen%27s+Greatest+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fbruce-springsteen-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Bruce+Springsteen%27s+Greatest+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-springsteen-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbruce-springsteen-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-springsteen-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbruce-springsteen-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-springsteen-quotes%2F)
 
 [More](#)
 

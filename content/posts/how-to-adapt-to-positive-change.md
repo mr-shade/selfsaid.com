@@ -56,15 +56,15 @@ Amid the uncertainty of change, focusing on what brings you happiness can serve 
 
 By reflecting on these questions, you can approach change with greater confidence and clarity. Each one encourages you to think deeply about your circumstances, equipping you with tools to navigate challenges and seize opportunities with optimism.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-adapt-to-positive-change%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-adapt-to-positive-change%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-adapt-to-positive-change/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fadapt-to-positive-change-PIN.jpg&description=Transform+how+you+view+change+with+ten+simple+yet+powerful+questions.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-adapt-to-positive-change/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fadapt-to-positive-change-PIN.jpg&description=Transform+how+you+view+change+with+ten+simple+yet+powerful+questions.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Help+You+Adapt+To+Positive+Change&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-adapt-to-positive-change%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Help+You+Adapt+To+Positive+Change&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-adapt-to-positive-change%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-adapt-to-positive-change%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-adapt-to-positive-change%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-adapt-to-positive-change%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-adapt-to-positive-change%2F)
 
 [More](#)
 

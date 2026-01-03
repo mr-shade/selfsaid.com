@@ -93,15 +93,15 @@ You are allowed to move through life at a pace that brings you peace.
 
 [Simple living](/simple-living-how-to-live-a-simple-life) is not the absence of effort. It is the presence of care.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsimple-living-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-living-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/simple-living-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fsimple-living-quotes-PIN.jpg&description=Explore+50+simple+living+quotes+by+Seff+Bray+that+inspire+a+slower%2C+more+intentional+life.+These+calming+reflections+offer+support+for+slowing+down%2C+letting+go+of+pressure%2C+and+reconnecting+with+what+truly+matters.+A+peaceful+reminder+that+less+can+be+more%2C+and+presence+is+always+enough.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/simple-living-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fsimple-living-quotes-PIN.jpg&description=Explore+50+simple+living+quotes+by+Seff+Bray+that+inspire+a+slower%2C+more+intentional+life.+These+calming+reflections+offer+support+for+slowing+down%2C+letting+go+of+pressure%2C+and+reconnecting+with+what+truly+matters.+A+peaceful+reminder+that+less+can+be+more%2C+and+presence+is+always+enough.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Simple+Living+Quotes+to+Help+You+Slow+Down&url=https%3A%2F%2Fseffsaid.com%2Fsimple-living-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Simple+Living+Quotes+to+Help+You+Slow+Down&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-living-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsimple-living-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-living-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsimple-living-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-living-quotes%2F)
 
 [More](#)
 

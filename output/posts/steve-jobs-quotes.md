@@ -65,15 +65,15 @@ Steve Jobs, the visionary behind Apple, left a legacy filled with insightful quo
 49.  “And the only way to do great work is to love what you do.” – Steve Jobs
 50.  “You have to have a lot of passion for what you do… because if you don’t, any rational person would give up.” – Steve Jobs
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsteve-jobs-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsteve-jobs-quotes%2F)
 
-[Pin7](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/steve-jobs-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSteve-Jobs-Quotes-PIN.jpg&description=50+of+Steve+Jobs%27+best+quotes%2C+offering+a+glimpse+into+the+mindset+of+a+man+who+changed+technology+and+the+world.+via+%40SeffSaid)
+[Pin7](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/steve-jobs-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSteve-Jobs-Quotes-PIN.jpg&description=50+of+Steve+Jobs%27+best+quotes%2C+offering+a+glimpse+into+the+mindset+of+a+man+who+changed+technology+and+the+world.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Steve+Jobs%27+50+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fsteve-jobs-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Steve+Jobs%27+50+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsteve-jobs-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsteve-jobs-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsteve-jobs-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsteve-jobs-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsteve-jobs-quotes%2F)
 
 [More](#)
 

@@ -95,15 +95,15 @@ Self-love is essential for [building confidence](/10-ways-to-appear-more-confide
 *   “Be your own biggest cheerleader.” — Unknown
 *   “To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment.” — Ralph Waldo Emerson
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-love-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-love-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/self-love-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fself-love-quotes-PIN.jpg&description=Find+inspiration+to+build+a+better+relationship+with+yourself+through+76+self-love+quotes+that+bring+positivity%2C+strength%2C+and+a+renewed+sense+of+self-worth+to+your+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/self-love-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fself-love-quotes-PIN.jpg&description=Find+inspiration+to+build+a+better+relationship+with+yourself+through+76+self-love+quotes+that+bring+positivity%2C+strength%2C+and+a+renewed+sense+of+self-worth+to+your+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=76+Self-Love+Quotes+for+Loving+Yourself+More&url=https%3A%2F%2Fseffsaid.com%2Fself-love-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=76+Self-Love+Quotes+for+Loving+Yourself+More&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-love-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-love-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-love-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-love-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-love-quotes%2F)
 
 [More](#)
 

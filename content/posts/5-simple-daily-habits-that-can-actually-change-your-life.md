@@ -53,15 +53,15 @@ Quite often we set unachievable goals for ourselves, so recognize that and know 
 
 Each of these five steps will help you every day to be productive and happy. The goal is never to be perfect, never to compete with anyone, but simply to cultivate motivation and fulfillment. These five simple daily habits will prove to be powerful and motivating and you’ll soon [feel better about life and yourself.](/quotes-to-make-you-feel-better)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F5-simple-daily-habits-that-can-actually-change-your-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F5-simple-daily-habits-that-can-actually-change-your-life%2F)
 
 Pin21
 
-[Tweet](https://twitter.com/intent/tweet?text=5+Simple+Daily+Habits+That+Can+Change+Your+Life+For+The+Better&url=https%3A%2F%2Fseffsaid.com%2F5-simple-daily-habits-that-can-actually-change-your-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=5+Simple+Daily+Habits+That+Can+Change+Your+Life+For+The+Better&url=https%3A%2F%2Fselfsaid.30tools.com%2F5-simple-daily-habits-that-can-actually-change-your-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F5-simple-daily-habits-that-can-actually-change-your-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-simple-daily-habits-that-can-actually-change-your-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F5-simple-daily-habits-that-can-actually-change-your-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-simple-daily-habits-that-can-actually-change-your-life%2F)
 
 [More](#)
 

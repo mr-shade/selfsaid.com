@@ -69,15 +69,15 @@ Gratitude has a special way of bringing positivity into daily life, helping you 
 49.  “Gratitude changes the pangs of memory into a tranquil joy.” – Dietrich Bonhoeffer
 50.  “Gratitude turns a meal into a feast, a house into a home, a stranger into a friend.” – Anonymous
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fgratitude-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgratitude-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/gratitude-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fgratitude-quotes-PIN.jpg&description=Bring+more+positivity+into+your+day+with+these+50+powerful+gratitude+quotes+that+encourage+thankfulness+and+inner+peace.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/gratitude-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fgratitude-quotes-PIN.jpg&description=Bring+more+positivity+into+your+day+with+these+50+powerful+gratitude+quotes+that+encourage+thankfulness+and+inner+peace.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Powerful+Gratitude+Quotes+To+Inspire+Thankfulness&url=https%3A%2F%2Fseffsaid.com%2Fgratitude-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Powerful+Gratitude+Quotes+To+Inspire+Thankfulness&url=https%3A%2F%2Fselfsaid.30tools.com%2Fgratitude-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fgratitude-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgratitude-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fgratitude-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgratitude-quotes%2F)
 
 [More](#)
 

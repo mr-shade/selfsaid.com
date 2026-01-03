@@ -66,15 +66,15 @@ Working too much will dampen most people’s enthusiasm. Taking a break can ofte
 
 Try these techniques until you find your personal formula for self-motivation. You’ll soon find you have the motivational boost you need to get you over your next slump and back to work.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-motivate-yourself%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-motivate-yourself%2F)
 
-[Pin10](https://pinterest.com/pin/create/button/?url=/how-to-motivate-yourself/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2017%2F02%2Fhow-to-motivate-yourself-motivation.jpg&description=Learn+how+to+effectively+motivate+yourself+in+10+easy+and+practical+steps.+via+%40SeffSaid)
+[Pin10](https://pinterest.com/pin/create/button/?url=/how-to-motivate-yourself/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2017%2F02%2Fhow-to-motivate-yourself-motivation.jpg&description=Learn+how+to+effectively+motivate+yourself+in+10+easy+and+practical+steps.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Motivate+Yourself+in+10+Easy+Steps&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-motivate-yourself%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Motivate+Yourself+in+10+Easy+Steps&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-motivate-yourself%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-motivate-yourself%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-motivate-yourself%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-motivate-yourself%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-motivate-yourself%2F)
 
 [More](#)
 

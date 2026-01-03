@@ -178,15 +178,15 @@ They inspire you to [follow your heart](/follow-your-heart-quotes), no matter th
 *   “I think of you, and the world seems right again.” – Unknown
 *   “My heart whispers your name when I’m thinking of you.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthinking-of-you-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthinking-of-you-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/thinking-of-you-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FThinking-Of-You-Quotes-PIN.jpg&description=Dive+into+our+collection+of+160+Thinking+Of+You+Quotes+and+discover+the+perfect+way+to+express+your+deepest+emotions+to+someone+special.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/thinking-of-you-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FThinking-Of-You-Quotes-PIN.jpg&description=Dive+into+our+collection+of+160+Thinking+Of+You+Quotes+and+discover+the+perfect+way+to+express+your+deepest+emotions+to+someone+special.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=160+Thinking+of+You+Quotes+for+the+Love+of+Your+Life&url=https%3A%2F%2Fseffsaid.com%2Fthinking-of-you-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=160+Thinking+of+You+Quotes+for+the+Love+of+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthinking-of-you-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthinking-of-you-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthinking-of-you-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthinking-of-you-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthinking-of-you-quotes%2F)
 
 [More](#)
 

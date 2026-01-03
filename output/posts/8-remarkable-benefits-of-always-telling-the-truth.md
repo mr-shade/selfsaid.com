@@ -48,15 +48,15 @@ Getting caught lying is embarrassing. If you always tell the truth you can’t g
 
 100% truthful people are rare in today’s society and are an important and valuable commodity. People who tell the truth are instinctively drawn to other honest speaking people. Being honest can bring you better quality friends and acquaintances.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F8-remarkable-benefits-of-always-telling-the-truth%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F8-remarkable-benefits-of-always-telling-the-truth%2F)
 
 Pin16
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Benefits+Of+Always+Telling+The+Truth&url=https%3A%2F%2Fseffsaid.com%2F8-remarkable-benefits-of-always-telling-the-truth%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Benefits+Of+Always+Telling+The+Truth&url=https%3A%2F%2Fselfsaid.30tools.com%2F8-remarkable-benefits-of-always-telling-the-truth%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F8-remarkable-benefits-of-always-telling-the-truth%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F8-remarkable-benefits-of-always-telling-the-truth%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F8-remarkable-benefits-of-always-telling-the-truth%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F8-remarkable-benefits-of-always-telling-the-truth%2F)
 
 [More](#)
 

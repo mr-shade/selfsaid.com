@@ -90,15 +90,15 @@ Believe Trust Love
 
 [ADD TO CART](https://payhip.com/b/8jJG7)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fprintable-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fprintable-quotes%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=/printable-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FPrintable-Quotes-PIN.jpg&description=Explore+our+collection+of+high-quality+printable+quotes+that+will+bring+positivity+and+inspiration+into+your+life.+via+%40SeffSaid)
+[Pin](https://pinterest.com/pin/create/button/?url=/printable-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FPrintable-Quotes-PIN.jpg&description=Explore+our+collection+of+high-quality+printable+quotes+that+will+bring+positivity+and+inspiration+into+your+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=SEFFSAID+Printable+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fprintable-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=SEFFSAID+Printable+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fprintable-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fprintable-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fprintable-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fprintable-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fprintable-quotes%2F)
 
 [More](#)
 

@@ -442,15 +442,15 @@ Few artists have left such an impact on how we view life and love as Bob Marley.
 
 Read more [quotes by famous singers](https://seffsaid.com/quotes-by-famous-people/) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbob-marley-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-marley-quotes%2F)
 
-[Pin12](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/bob-marley-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBob-Marley-Quotes-PIN.jpg&description=Bob+Marley%27s+quotes+offer+a+fresh+perspective+on+how+to+live+a+life+full+of+happiness%2C+love%2C+meaning%2C+and+positivity+every+day.+via+%40SeffSaid)
+[Pin12](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/bob-marley-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBob-Marley-Quotes-PIN.jpg&description=Bob+Marley%27s+quotes+offer+a+fresh+perspective+on+how+to+live+a+life+full+of+happiness%2C+love%2C+meaning%2C+and+positivity+every+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Bob+Marley+Quotes+On+Life%2C+Love+%26+Happiness&url=https%3A%2F%2Fseffsaid.com%2Fbob-marley-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Bob+Marley+Quotes+On+Life%2C+Love+%26+Happiness&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-marley-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbob-marley-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-marley-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbob-marley-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-marley-quotes%2F)
 
 [More](#)
 

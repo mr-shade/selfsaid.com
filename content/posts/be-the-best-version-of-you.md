@@ -51,15 +51,15 @@ $1.99 – Instant Download
 
 “Be The Best Version Of Yourself” means striving to reach your highest potential by continually improving and growing. This quote encourages self-improvement, self-awareness, and the pursuit of personal excellence. By focusing on becoming the best you can be, you prioritize your goals, values, and well-being, ultimately leading to a more fulfilling and meaningful life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbe-the-best-version-of-you%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbe-the-best-version-of-you%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=/be-the-best-version-of-you/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBe-The-Best-Version-Of-You-PIN.jpg&description=Decorate+your+home+with+the+SEFFSAID+exclusive+%22Be+The+Best+Version+Of+You%22+printable+quote+now+available+for+instant+download.+via+%40SeffSaid)
+[Pin](https://pinterest.com/pin/create/button/?url=/be-the-best-version-of-you/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBe-The-Best-Version-Of-You-PIN.jpg&description=Decorate+your+home+with+the+SEFFSAID+exclusive+%22Be+The+Best+Version+Of+You%22+printable+quote+now+available+for+instant+download.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=%22Be+The+Best+Version+Of+You%22+Printable+Quote&url=https%3A%2F%2Fseffsaid.com%2Fbe-the-best-version-of-you%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=%22Be+The+Best+Version+Of+You%22+Printable+Quote&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbe-the-best-version-of-you%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbe-the-best-version-of-you%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbe-the-best-version-of-you%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbe-the-best-version-of-you%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbe-the-best-version-of-you%2F)
 
 [More](#)
 

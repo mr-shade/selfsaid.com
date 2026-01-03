@@ -88,15 +88,15 @@ Accountability is a [powerful motivator](https://seffsaid.com/motivational-quote
 
 Using these strategies can help reduce delays, make tasks more manageable, and keep you moving forward. Implementing even a few of these steps can make a big difference in [staying productive](https://seffsaid.com/tips-for-productive-living/) and on schedule.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fslay-the-day%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fslay-the-day%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/slay-the-day/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fslay-the-day-PIN.jpg&description=18+strategies+to+tackle+delays%2C+stay+productive%2C+keep+moving+forward%2C+and+ensuring+you+slay+the+day%2C+every+day.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/slay-the-day/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fslay-the-day-PIN.jpg&description=18+strategies+to+tackle+delays%2C+stay+productive%2C+keep+moving+forward%2C+and+ensuring+you+slay+the+day%2C+every+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=18+Ways+to+Slay+the+Day%2C+Every+Day&url=https%3A%2F%2Fseffsaid.com%2Fslay-the-day%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=18+Ways+to+Slay+the+Day%2C+Every+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2Fslay-the-day%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fslay-the-day%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fslay-the-day%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fslay-the-day%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fslay-the-day%2F)
 
 [More](#)
 

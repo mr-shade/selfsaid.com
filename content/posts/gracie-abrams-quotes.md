@@ -80,15 +80,15 @@ A collection of Gracie Abrams quotes on music, creativity, life, and love.
 
 Read more [quotes from celebrities](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fgracie-abrams-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgracie-abrams-quotes%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/gracie-abrams-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FGracie-Abrams-Quotes-PIN.jpg&description=A+collection+of+Gracie+Abrams+quotes+on+music%2C+creativity%2C+life%2C+and+love.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/gracie-abrams-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FGracie-Abrams-Quotes-PIN.jpg&description=A+collection+of+Gracie+Abrams+quotes+on+music%2C+creativity%2C+life%2C+and+love.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Gracie+Abrams+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fgracie-abrams-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Gracie+Abrams+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fgracie-abrams-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fgracie-abrams-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgracie-abrams-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fgracie-abrams-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgracie-abrams-quotes%2F)
 
 [More](#)
 

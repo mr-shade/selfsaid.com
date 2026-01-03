@@ -67,15 +67,15 @@ Elvis Presley, the King of Rock ‘n’ Roll, left behind a legacy filled with i
 
 Read more quotes from [famous people](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Felvis-presley-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Felvis-presley-quotes%2F)
 
-[Pin67](https://pinterest.com/pin/create/button/?url=/elvis-presley-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FElvis-Presley-Quotes-PIN.jpg&description=Discover+50+of+the+best+quotes+from+the+King+of+Rock+%27n%27+Roll%2C+Elvis+Presley.+via+%40SeffSaid)
+[Pin67](https://pinterest.com/pin/create/button/?url=/elvis-presley-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FElvis-Presley-Quotes-PIN.jpg&description=Discover+50+of+the+best+quotes+from+the+King+of+Rock+%27n%27+Roll%2C+Elvis+Presley.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Elvis+Presley%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Felvis-presley-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Elvis+Presley%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Felvis-presley-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Felvis-presley-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Felvis-presley-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Felvis-presley-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Felvis-presley-quotes%2F)
 
 [More](#)
 

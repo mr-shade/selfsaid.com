@@ -114,15 +114,15 @@ Remember, every no is an opportunity to reinforce your commitment to your goals.
 
 Simply implementing a few of these techniques will help improve your self-discipline. The improvements will be obvious, boosting your morale and raising your motivation to make more and bigger changes. And very soon strong self-discipline will be a habit that you couldn’t imagine being without.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F8-techniques-to-build-self-discipline%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F8-techniques-to-build-self-discipline%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/8-techniques-to-build-self-discipline/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F10%2Fbuild-self-discipline-pin.jpg&description=Ready+to+Take+Control%3F+Discover+the+8+techniques+that+will+help+you+build+unshakable+Self-Discipline.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/8-techniques-to-build-self-discipline/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F10%2Fbuild-self-discipline-pin.jpg&description=Ready+to+Take+Control%3F+Discover+the+8+techniques+that+will+help+you+build+unshakable+Self-Discipline.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Techniques+To+Build+Unshakable+Self-Discipline&url=https%3A%2F%2Fseffsaid.com%2F8-techniques-to-build-self-discipline%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Techniques+To+Build+Unshakable+Self-Discipline&url=https%3A%2F%2Fselfsaid.30tools.com%2F8-techniques-to-build-self-discipline%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F8-techniques-to-build-self-discipline%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F8-techniques-to-build-self-discipline%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F8-techniques-to-build-self-discipline%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F8-techniques-to-build-self-discipline%2F)
 
 [More](#)
 

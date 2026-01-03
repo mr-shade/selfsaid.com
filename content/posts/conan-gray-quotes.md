@@ -71,15 +71,15 @@ A collection of Conan Gray quotes that reflect his perspective on creativity, li
 
 Read more [quotes from famous people](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fconan-gray-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fconan-gray-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/conan-gray-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fconan-gray-quotes-PIN.jpg&description=A+collection+of+Conan+Gray+quotes+that+reflect+his+perspective+on+creativity%2C+life%2C+love%2C+growing+up%2C+and+his+personal+experiences.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/conan-gray-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fconan-gray-quotes-PIN.jpg&description=A+collection+of+Conan+Gray+quotes+that+reflect+his+perspective+on+creativity%2C+life%2C+love%2C+growing+up%2C+and+his+personal+experiences.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Conan+Gray+Quotes+on+Life%2C+Love%2C+Creativity%2C+and+Growing+Up&url=https%3A%2F%2Fseffsaid.com%2Fconan-gray-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Conan+Gray+Quotes+on+Life%2C+Love%2C+Creativity%2C+and+Growing+Up&url=https%3A%2F%2Fselfsaid.30tools.com%2Fconan-gray-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fconan-gray-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fconan-gray-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fconan-gray-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fconan-gray-quotes%2F)
 
 [More](#)
 

@@ -100,15 +100,15 @@ A collection of Harry Styles’s best quotes on life, love, personal growth, kin
 
 Read more [quotes from your favorite singers](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fharry-styles-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fharry-styles-quotes%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/harry-styles-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fharry-styles-quotes-PIN.jpg&description=Discover+a+collection+of+Harry+Styles%27s+best+quotes+on+life%2C+love%2C+personal+growth%2C+kindness%2C+and+relationships.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/harry-styles-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fharry-styles-quotes-PIN.jpg&description=Discover+a+collection+of+Harry+Styles%27s+best+quotes+on+life%2C+love%2C+personal+growth%2C+kindness%2C+and+relationships.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Harry+Styles+Quotes+on+Life%2C+Love%2C+Kindness%2C+and+Growth&url=https%3A%2F%2Fseffsaid.com%2Fharry-styles-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Harry+Styles+Quotes+on+Life%2C+Love%2C+Kindness%2C+and+Growth&url=https%3A%2F%2Fselfsaid.30tools.com%2Fharry-styles-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fharry-styles-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fharry-styles-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fharry-styles-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fharry-styles-quotes%2F)
 
 [More](#)
 

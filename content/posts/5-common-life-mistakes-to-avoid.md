@@ -100,15 +100,15 @@ Healthy relationships are a cornerstone of a fulfilling life, but neglecting the
 
 While making mistakes is inevitable, avoiding common life mistakes can significantly improve your overall well-being and happiness. Remember that change takes time and effort, so be patient with yourself as you work towards a better future.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F5-common-life-mistakes-to-avoid%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F5-common-life-mistakes-to-avoid%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/5-common-life-mistakes-to-avoid/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FCommon-Life-Mistakes-To-Avoid-PIN.jpg&description=Mistakes+are+a+part+of+life%2C+but+some+can+be+avoided+completely.+Here+are+the+five+most+common+life+mistakes+to+avoid.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/5-common-life-mistakes-to-avoid/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FCommon-Life-Mistakes-To-Avoid-PIN.jpg&description=Mistakes+are+a+part+of+life%2C+but+some+can+be+avoided+completely.+Here+are+the+five+most+common+life+mistakes+to+avoid.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=5+Common+Life+Mistakes+To+Avoid&url=https%3A%2F%2Fseffsaid.com%2F5-common-life-mistakes-to-avoid%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=5+Common+Life+Mistakes+To+Avoid&url=https%3A%2F%2Fselfsaid.30tools.com%2F5-common-life-mistakes-to-avoid%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F5-common-life-mistakes-to-avoid%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-common-life-mistakes-to-avoid%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F5-common-life-mistakes-to-avoid%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F5-common-life-mistakes-to-avoid%2F)
 
 [More](#)
 

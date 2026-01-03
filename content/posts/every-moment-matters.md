@@ -51,15 +51,15 @@ $1.99 – Instant Download
 
 “Every Moment Matters” highlights the meaning and significance of each moment in our lives. This quote reminds us that every second holds value and potential. It suggests that we should be mindful and appreciate all moments, as each one can influence our lives. Recognizing that every moment matters encourages us to live attentively and make the most of our time.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fevery-moment-matters%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fevery-moment-matters%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=/every-moment-matters/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSEFFSAID-Every-Moment-Matters-PIN.jpg&description=Boost+your+inspiration+and+your+spirit+with+our+exclusive+%22Every+Moment+Matters%22+printable+quote+available+for+instant+download.+via+%40SeffSaid)
+[Pin](https://pinterest.com/pin/create/button/?url=/every-moment-matters/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSEFFSAID-Every-Moment-Matters-PIN.jpg&description=Boost+your+inspiration+and+your+spirit+with+our+exclusive+%22Every+Moment+Matters%22+printable+quote+available+for+instant+download.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=%22Every+Moment+Matters%22+Printable+Quote&url=https%3A%2F%2Fseffsaid.com%2Fevery-moment-matters%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=%22Every+Moment+Matters%22+Printable+Quote&url=https%3A%2F%2Fselfsaid.30tools.com%2Fevery-moment-matters%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fevery-moment-matters%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fevery-moment-matters%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fevery-moment-matters%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fevery-moment-matters%2F)
 
 [More](#)
 

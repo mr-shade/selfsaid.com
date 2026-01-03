@@ -69,15 +69,15 @@ Marilyn Monroe remains a captivating figure decades after her time, known not ju
 
 Enjoyed these quotes? You can read more [quotes from famous people](/quotes-by-famous-people) here!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmarilyn-monroe-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmarilyn-monroe-quotes%2F)
 
-[Pin7](https://pinterest.com/pin/create/button/?url=/marilyn-monroe-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMarilyn-Monroe-Quotes-PIN.jpg&description=Explore+Marilyn+Monroe%27s+thoughts+on+love+and+life+in+these+50+revealing+quotes.+via+%40SeffSaid)
+[Pin7](https://pinterest.com/pin/create/button/?url=/marilyn-monroe-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMarilyn-Monroe-Quotes-PIN.jpg&description=Explore+Marilyn+Monroe%27s+thoughts+on+love+and+life+in+these+50+revealing+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Marilyn+Monroe+Quotes+on+Love+and+Life&url=https%3A%2F%2Fseffsaid.com%2Fmarilyn-monroe-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Marilyn+Monroe+Quotes+on+Love+and+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmarilyn-monroe-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmarilyn-monroe-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmarilyn-monroe-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmarilyn-monroe-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmarilyn-monroe-quotes%2F)
 
 [More](#)
 

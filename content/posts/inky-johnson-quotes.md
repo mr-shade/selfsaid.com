@@ -71,15 +71,15 @@ His powerful messages often resonate deeply with those facing their own battles.
 49.  “If you can’t handle someone at their worst then you don’t deserve them when they are at their best.”​​ – Inky Johnson
 50.  “No amount of money ever bought a second of time. Don’t get so busy making a living that you forget to make a life!”​​ – Inky Johnson
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Finky-johnson-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Finky-johnson-quotes%2F)
 
-[Pin9](https://pinterest.com/pin/create/button/?url=/inky-johnson-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FInky-Johnson-Quotes-PIN2.jpg&description=Explore+50+Inky+Johnson+quotes%3A+powerful+lessons+on+resilience%2C+hard+work%2C+and+personal+growth+from+a+motivational+icon.+Get+inspired%21+via+%40SeffSaid)
+[Pin9](https://pinterest.com/pin/create/button/?url=/inky-johnson-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FInky-Johnson-Quotes-PIN2.jpg&description=Explore+50+Inky+Johnson+quotes%3A+powerful+lessons+on+resilience%2C+hard+work%2C+and+personal+growth+from+a+motivational+icon.+Get+inspired%21+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Inky+Johnson+Quotes+To+Motivate+And+Inspire+You&url=https%3A%2F%2Fseffsaid.com%2Finky-johnson-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Inky+Johnson+Quotes+To+Motivate+And+Inspire+You&url=https%3A%2F%2Fselfsaid.30tools.com%2Finky-johnson-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Finky-johnson-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Finky-johnson-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Finky-johnson-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Finky-johnson-quotes%2F)
 
 [More](#)
 

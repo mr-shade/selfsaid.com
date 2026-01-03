@@ -125,15 +125,15 @@ Below you’ll find a list of 100 of the most [powerful affirmations that can ch
 99.  My mind, body and soul are are fit and strong.
 100.  Negative thoughts only have the power I allow them.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F100-positive-affirmations-that-will-change-your-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F100-positive-affirmations-that-will-change-your-life%2F)
 
-[Pin20](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/100-positive-affirmations-that-will-change-your-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fpositive-affirmations-PIN.jpg&description=Need+more+positivity+in+your+life%3F+Discover+100+affirmations+that+have+the+power+to+change+your+life+forever.+via+%40SeffSaid)
+[Pin20](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/100-positive-affirmations-that-will-change-your-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fpositive-affirmations-PIN.jpg&description=Need+more+positivity+in+your+life%3F+Discover+100+affirmations+that+have+the+power+to+change+your+life+forever.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Need+more+positivity+in+your+life%3F+Check+out+these+100+positive+affirmations+that+when+repeated+daily+have+the+power+to+change+your+life+forever.&url=https%3A%2F%2Fseffsaid.com%2F100-positive-affirmations-that-will-change-your-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Need+more+positivity+in+your+life%3F+Check+out+these+100+positive+affirmations+that+when+repeated+daily+have+the+power+to+change+your+life+forever.&url=https%3A%2F%2Fselfsaid.30tools.com%2F100-positive-affirmations-that-will-change-your-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F100-positive-affirmations-that-will-change-your-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F100-positive-affirmations-that-will-change-your-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F100-positive-affirmations-that-will-change-your-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F100-positive-affirmations-that-will-change-your-life%2F)
 
 [More](#)
 

@@ -62,15 +62,15 @@ If you find it difficult to move on despite your best efforts, consider reaching
 
 By taking these steps, you can stop reliving past mistakes and begin living in the present. Each moment offers an opportunity to grow, learn, and build a better future.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-stop-reliving-past-mistakes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-reliving-past-mistakes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/how-to-stop-reliving-past-mistakes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fstop-reliving-past-mistakes-PIN.jpg&description=Learn+how+to+stop+reliving+past+mistakes+and+focus+on+building+a+brighter+future.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/how-to-stop-reliving-past-mistakes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fstop-reliving-past-mistakes-PIN.jpg&description=Learn+how+to+stop+reliving+past+mistakes+and+focus+on+building+a+brighter+future.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Stop+Reliving+Past+Mistakes&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stop-reliving-past-mistakes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Stop+Reliving+Past+Mistakes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-reliving-past-mistakes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stop-reliving-past-mistakes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-reliving-past-mistakes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stop-reliving-past-mistakes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-reliving-past-mistakes%2F)
 
 [More](#)
 

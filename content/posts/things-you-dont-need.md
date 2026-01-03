@@ -90,15 +90,15 @@ So much of what we think we need is built on the belief that peace comes _after_
 
 Let go of the noise. The pressure. The endless chase. Calm is already within reach, and it starts by dropping what was never really yours to carry.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthings-you-dont-need%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-you-dont-need%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/things-you-dont-need/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fthings-you-dont-need-PIN.jpg&description=Think+you+need+a+perfect+routine%2C+constant+motivation%2C+or+more+stuff+to+feel+calm%3F+You+don%E2%80%99t.+This+post+explores+10+things+you%E2%80%99ve+been+told+you+need+that+might+be+quietly+draining+your+energy+and+peace+of+mind.+A+must-read+for+anyone+craving+a+slower%2C+simpler%2C+more+intentional+life.++via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/things-you-dont-need/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fthings-you-dont-need-PIN.jpg&description=Think+you+need+a+perfect+routine%2C+constant+motivation%2C+or+more+stuff+to+feel+calm%3F+You+don%E2%80%99t.+This+post+explores+10+things+you%E2%80%99ve+been+told+you+need+that+might+be+quietly+draining+your+energy+and+peace+of+mind.+A+must-read+for+anyone+craving+a+slower%2C+simpler%2C+more+intentional+life.++via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Things+You+Think+You+Need+%28But+Really+Don%E2%80%99t%29&url=https%3A%2F%2Fseffsaid.com%2Fthings-you-dont-need%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Things+You+Think+You+Need+%28But+Really+Don%E2%80%99t%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-you-dont-need%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthings-you-dont-need%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-you-dont-need%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthings-you-dont-need%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthings-you-dont-need%2F)
 
 [More](#)
 

@@ -36,15 +36,15 @@ Many people feel pressure to be available, helpful, and responsive all the time.
 
 You do not have to reach the edge of burnout before you pause. You can [take care of yourself](/what-taking-care-of-yourself-really-means) as a daily practice, not as an emergency. When your cup is full, even slightly, you’re more present, more steady, and more able to live in a way that feels right to you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fyou-cant-pour-from-an-empty-cup%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-cant-pour-from-an-empty-cup%2F)
 
-[Pin8](https://pinterest.com/pin/create/button/?url=/you-cant-pour-from-an-empty-cup/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fyou-cant-pour-from-an-empty-cup-PIN.jpg&description=Discover+the+meaning+of+the+quote+%E2%80%9CYou+can%E2%80%99t+pour+from+an+empty+cup%E2%80%9D.+A+thoughtful+reflection+on+self-care%2C+boundaries%2C+and+emotional+rest.+via+%40SeffSaid)
+[Pin8](https://pinterest.com/pin/create/button/?url=/you-cant-pour-from-an-empty-cup/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fyou-cant-pour-from-an-empty-cup-PIN.jpg&description=Discover+the+meaning+of+the+quote+%E2%80%9CYou+can%E2%80%99t+pour+from+an+empty+cup%E2%80%9D.+A+thoughtful+reflection+on+self-care%2C+boundaries%2C+and+emotional+rest.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=%E2%80%9CYou+Can%E2%80%99t+Pour+from+an+Empty+Cup%E2%80%9D+-+Meaning+and+Why+It+Matters&url=https%3A%2F%2Fseffsaid.com%2Fyou-cant-pour-from-an-empty-cup%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=%E2%80%9CYou+Can%E2%80%99t+Pour+from+an+Empty+Cup%E2%80%9D+-+Meaning+and+Why+It+Matters&url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-cant-pour-from-an-empty-cup%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fyou-cant-pour-from-an-empty-cup%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-cant-pour-from-an-empty-cup%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fyou-cant-pour-from-an-empty-cup%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-cant-pour-from-an-empty-cup%2F)
 
 [More](#)
 

@@ -124,15 +124,15 @@ Reading personal development books is an effective way to gain insights and stra
 
 Each book offers unique perspectives and actionable advice that you can tailor to your own life and goals. Whether you’re looking to make a significant change or simply enhance your daily routines, you’ll find that the lessons learned from these books can be incredibly valuable. They can inspire you to set clearer goals, improve your habits, and develop and [keep a positive mindset](/always-keep-a-positive-mindset).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F12-personal-development-tips%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F12-personal-development-tips%2F)
 
-[Pin10](https://pinterest.com/pin/create/button/?url=/12-personal-development-tips/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2018%2F06%2F12-Personal-Development-Tips.gif&description=It+can+be+hard+to+know+where+to+begin+when+putting+together+a+personal+development+plan.+Discover+12+personal+development+tips+that+you+can+start+implementing+today+to+build+a+better+you+and+a+better+life.+via+%40SeffSaid)
+[Pin10](https://pinterest.com/pin/create/button/?url=/12-personal-development-tips/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2018%2F06%2F12-Personal-Development-Tips.gif&description=It+can+be+hard+to+know+where+to+begin+when+putting+together+a+personal+development+plan.+Discover+12+personal+development+tips+that+you+can+start+implementing+today+to+build+a+better+you+and+a+better+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=12+personal+development+tips+that+you+can+start+implementing+today+to+build+a+better+you+and+a+better+life.&url=https%3A%2F%2Fseffsaid.com%2F12-personal-development-tips%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=12+personal+development+tips+that+you+can+start+implementing+today+to+build+a+better+you+and+a+better+life.&url=https%3A%2F%2Fselfsaid.30tools.com%2F12-personal-development-tips%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F12-personal-development-tips%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F12-personal-development-tips%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F12-personal-development-tips%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F12-personal-development-tips%2F)
 
 [More](#)
 

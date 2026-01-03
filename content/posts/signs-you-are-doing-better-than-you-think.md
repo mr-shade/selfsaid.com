@@ -72,15 +72,15 @@ Trust the quiet shifts. Celebrate the little wins. Keep showing up for yourself 
 
 You’re already on your way.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsigns-you-are-doing-better-than-you-think%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsigns-you-are-doing-better-than-you-think%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/signs-you-are-doing-better-than-you-think/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fcloser-to-okay-PIN.jpg&description=You%27re+likely+doing+better+than+you+think.+Discover+the+signs+that+show+you%27re+on+the+right+path+-+even+if+it+doesn%E2%80%99t+feel+like+it.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/signs-you-are-doing-better-than-you-think/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fcloser-to-okay-PIN.jpg&description=You%27re+likely+doing+better+than+you+think.+Discover+the+signs+that+show+you%27re+on+the+right+path+-+even+if+it+doesn%E2%80%99t+feel+like+it.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Why+You%E2%80%99re+Closer+to+Okay+Than+You+Think&url=https%3A%2F%2Fseffsaid.com%2Fsigns-you-are-doing-better-than-you-think%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Why+You%E2%80%99re+Closer+to+Okay+Than+You+Think&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsigns-you-are-doing-better-than-you-think%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsigns-you-are-doing-better-than-you-think%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsigns-you-are-doing-better-than-you-think%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsigns-you-are-doing-better-than-you-think%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsigns-you-are-doing-better-than-you-think%2F)
 
 [More](#)
 

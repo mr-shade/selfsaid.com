@@ -35,15 +35,15 @@ In an ideal world I would be able to quieten my inner critic internally rather t
 
 And the rest of the garden? Well, that can wait for another day…
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-i-cheated-my-need-for-perfectionism%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cheated-my-need-for-perfectionism%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/how-i-cheated-my-need-for-perfectionism/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FHow-I-Cheated-My-Need-For-Perfectionism-PIN.jpg&description=A+short+story+of+a+frustrated+gardener%27s+search+for+perfectionism.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/how-i-cheated-my-need-for-perfectionism/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FHow-I-Cheated-My-Need-For-Perfectionism-PIN.jpg&description=A+short+story+of+a+frustrated+gardener%27s+search+for+perfectionism.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+I+Cheated+My+Need+For+Perfectionism&url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cheated-my-need-for-perfectionism%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+I+Cheated+My+Need+For+Perfectionism&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cheated-my-need-for-perfectionism%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cheated-my-need-for-perfectionism%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cheated-my-need-for-perfectionism%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-i-cheated-my-need-for-perfectionism%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-i-cheated-my-need-for-perfectionism%2F)
 
 [More](#)
 

@@ -181,15 +181,15 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 165.  “You have power over your mind – not outside events. Realize this, and you will find strength.” – Marcus Aurelius
 166.  “You never know how strong you are until being strong is the only choice you have.” – Bob Marley
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-being-strong%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-being-strong%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/quotes-about-being-strong/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fquotes-about-being-strong-PIN.jpg&description=Need+a+boost+of+courage%3F+Read+our+curated+collection+of+166+inspiring+quotes+about+being+strong+during+difficult+times.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/quotes-about-being-strong/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fquotes-about-being-strong-PIN.jpg&description=Need+a+boost+of+courage%3F+Read+our+curated+collection+of+166+inspiring+quotes+about+being+strong+during+difficult+times.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=166+Quotes+About+Being+Strong+During+Difficult+Times&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-being-strong%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=166+Quotes+About+Being+Strong+During+Difficult+Times&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-being-strong%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-being-strong%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-being-strong%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-being-strong%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-being-strong%2F)
 
 [More](#)
 

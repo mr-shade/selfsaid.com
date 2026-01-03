@@ -120,15 +120,15 @@ These quotes reflect a range of Kamala Harris’s thoughts and perspectives on l
 
 Read more [quotes by politicians](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fkamala-harris-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fkamala-harris-quotes%2F)
 
-[Pin26](https://pinterest.com/pin/create/button/?url=/kamala-harris-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FKamala-Harris-Quotes-PIN.jpg&description=These+quotes+reflect+a+range+of+Kamala+Harris%27s+thoughts+and+perspectives+on+leadership%2C+justice%2C+equality%2C+and+hope.+via+%40SeffSaid)
+[Pin26](https://pinterest.com/pin/create/button/?url=/kamala-harris-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FKamala-Harris-Quotes-PIN.jpg&description=These+quotes+reflect+a+range+of+Kamala+Harris%27s+thoughts+and+perspectives+on+leadership%2C+justice%2C+equality%2C+and+hope.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Kamala+Harris+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fkamala-harris-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Kamala+Harris+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fkamala-harris-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fkamala-harris-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkamala-harris-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fkamala-harris-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fkamala-harris-quotes%2F)
 
 [More](#)
 

@@ -60,15 +60,15 @@ Thought of a new business idea or thinking of a career change? Don’t mention i
 
 By choosing to distance yourself from negativity, you create space for growth and happiness and greatly improve your well-being and outlook on life. Choose to spend your time with people who uplift and inspire you, and watch how your life changes for the better.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstay-away-from-negative-people%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstay-away-from-negative-people%2F)
 
 Pin12
 
-[Tweet](https://twitter.com/intent/tweet?text=9+Reasons+To+Stay+Away+From+Negative+People&url=https%3A%2F%2Fseffsaid.com%2Fstay-away-from-negative-people%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=9+Reasons+To+Stay+Away+From+Negative+People&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstay-away-from-negative-people%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstay-away-from-negative-people%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstay-away-from-negative-people%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstay-away-from-negative-people%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstay-away-from-negative-people%2F)
 
 [More](#)
 

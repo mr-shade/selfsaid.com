@@ -63,15 +63,15 @@ $4.99 – Instant Download
 
 [ADD TO CART](https://payhip.com/b/y46C8)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdream-big%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fdream-big%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=Dream+Big+Printable+Quote&url=https%3A%2F%2Fseffsaid.com%2Fdream-big%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Dream+Big+Printable+Quote&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdream-big%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdream-big%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdream-big%2F)
 
 [More](#)
 

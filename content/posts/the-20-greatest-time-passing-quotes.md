@@ -37,15 +37,15 @@ Here’s a list of the 20 [greatest quotes](/the-greatest-quotes-of-all-time) (w
 19.  “Sure, everything is ending,” Jules said, “but not yet.” – Jennifer Egan
 20.  “With enough time, you can get used to almost anything.” – Katherine Applegate
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fthe-20-greatest-time-passing-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-20-greatest-time-passing-quotes%2F)
 
-[Pin20](https://pinterest.com/pin/create/button/?url=/the-20-greatest-time-passing-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FTime-Passing-Quotes-PIN.jpg&description=Discover+the+20+greatest+time-passing+quotes+about+the+importance+of+making+every+second+count.+via+%40SeffSaid)
+[Pin20](https://pinterest.com/pin/create/button/?url=/the-20-greatest-time-passing-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FTime-Passing-Quotes-PIN.jpg&description=Discover+the+20+greatest+time-passing+quotes+about+the+importance+of+making+every+second+count.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+20+Greatest+Time+Passing+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fthe-20-greatest-time-passing-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+20+Greatest+Time+Passing+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-20-greatest-time-passing-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fthe-20-greatest-time-passing-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-20-greatest-time-passing-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fthe-20-greatest-time-passing-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-20-greatest-time-passing-quotes%2F)
 
 [More](#)
 

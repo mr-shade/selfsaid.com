@@ -66,15 +66,15 @@ Spending a few minutes on something you enjoy can be incredibly refreshing. Whet
 
 By incorporating these simple practices into your day, you can create moments of refreshment that keep you energized and focused. These strategies require minimal effort but can make a significant difference in how you feel and function. Next time you’re short on time but need a boost, try one of these tips and experience the positive impact it can bring.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fways-to-feel-refreshed%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-feel-refreshed%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/ways-to-feel-refreshed/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FWays-to-Feel-Refreshed-PIN.jpg&description=Learn+how+to+feel+more+awake+and+focused+with+these+easy+ten-minute+refresh+tricks.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/ways-to-feel-refreshed/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FWays-to-Feel-Refreshed-PIN.jpg&description=Learn+how+to+feel+more+awake+and+focused+with+these+easy+ten-minute+refresh+tricks.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=12+Ways+To+Feel+Refreshed+In+Just+Ten+Minutes&url=https%3A%2F%2Fseffsaid.com%2Fways-to-feel-refreshed%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=12+Ways+To+Feel+Refreshed+In+Just+Ten+Minutes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-feel-refreshed%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fways-to-feel-refreshed%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-feel-refreshed%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fways-to-feel-refreshed%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-feel-refreshed%2F)
 
 [More](#)
 

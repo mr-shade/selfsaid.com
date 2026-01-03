@@ -72,15 +72,15 @@ A person who calls themselves ‘a healthy eater’ is more likely to take it se
 
 Our productivity can ebb and flow but we can see that there are so many small changes we can make in our choices, our psychology and our day-to-day lives. These small changes will allow us to fuel-charge our motivation on an ongoing basis, meeting our goals whilst increasing our happiness, satisfaction, and well-being.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-more-productive%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-more-productive%2F)
 
-[Pin20](https://pinterest.com/pin/create/button/?url=/how-to-be-more-productive/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2020%2F01%2Fhow-to-be-productive.jpg&description=Become+the+most+productive+person+you+know+with+these+8+simple+tips.+via+%40SeffSaid)
+[Pin20](https://pinterest.com/pin/create/button/?url=/how-to-be-more-productive/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2020%2F01%2Fhow-to-be-productive.jpg&description=Become+the+most+productive+person+you+know+with+these+8+simple+tips.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Simple+Tips+for+Becoming+the+Most+Productive+Person+You+Know&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-more-productive%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Simple+Tips+for+Becoming+the+Most+Productive+Person+You+Know&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-more-productive%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-more-productive%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-more-productive%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-more-productive%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-more-productive%2F)
 
 [More](#)
 

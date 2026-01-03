@@ -44,15 +44,15 @@ In need of some motivation? Well, aren’t we all! Read the list below of possib
 *   “I never lose. Either I win or I learn.” – Nelson Mandela
 *   “The master has failed more times than the beginner has even tried.” _–_ Stephen McCranie
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F30-motivational-quotes-you-must-know%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F30-motivational-quotes-you-must-know%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/30-motivational-quotes-you-must-know/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmotivational-quotes-PIN.jpg&description=These+30+epic+motivational+quotes+will+inspire+you+to+achieve+success%2C+fortune%2C+and+happiness.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/30-motivational-quotes-you-must-know/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmotivational-quotes-PIN.jpg&description=These+30+epic+motivational+quotes+will+inspire+you+to+achieve+success%2C+fortune%2C+and+happiness.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=30+Motivational+Quotes+Everyone+Needs+To+Hear&url=https%3A%2F%2Fseffsaid.com%2F30-motivational-quotes-you-must-know%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=30+Motivational+Quotes+Everyone+Needs+To+Hear&url=https%3A%2F%2Fselfsaid.30tools.com%2F30-motivational-quotes-you-must-know%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F30-motivational-quotes-you-must-know%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F30-motivational-quotes-you-must-know%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F30-motivational-quotes-you-must-know%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F30-motivational-quotes-you-must-know%2F)
 
 [More](#)
 

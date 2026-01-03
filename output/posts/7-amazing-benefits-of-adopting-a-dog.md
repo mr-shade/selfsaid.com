@@ -62,15 +62,15 @@ Nothing makes us feel safer than knowing we will be woken up if there’s a prob
 
 Adopting a dog is not a decision to be taken lightly. The responsibility is huge, you need patience, a lifestyle that allows you to be home a lot of the time. You need to make a long-term commitment of care and love for an animal that could be with you for many years and may encounter expensive food and vet bills along the way. But if you are able and willing, the benefits really can be huge, for both the dog and for you.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F7-amazing-benefits-of-adopting-a-dog%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F7-amazing-benefits-of-adopting-a-dog%2F)
 
 Pin1
 
-[Tweet](https://twitter.com/intent/tweet?text=7+Amazing+Benefits+Of+Adopting+A+Dog&url=https%3A%2F%2Fseffsaid.com%2F7-amazing-benefits-of-adopting-a-dog%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=7+Amazing+Benefits+Of+Adopting+A+Dog&url=https%3A%2F%2Fselfsaid.30tools.com%2F7-amazing-benefits-of-adopting-a-dog%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F7-amazing-benefits-of-adopting-a-dog%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F7-amazing-benefits-of-adopting-a-dog%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F7-amazing-benefits-of-adopting-a-dog%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F7-amazing-benefits-of-adopting-a-dog%2F)
 
 [More](#)
 

@@ -69,15 +69,15 @@ Sunny days have a way of lifting spirits and adding a touch of warmth to life. Q
 49.  “Let your light shine so brightly that others can see their way out of the dark.” — Katrina Mayer
 50.  “Sunshine is a reminder that we are loved and life is precious.” — Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsunny-day-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsunny-day-quotes%2F)
 
-[Pin8](https://pinterest.com/pin/create/button/?url=/sunny-day-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fsunny-day-quotes-PIN.jpg&description=50+sunny+day+quotes+to+bring+a+little+extra+warmth+to+your+day+and+inspire+you+to+enjoy+each+moment+in+the+sun.+via+%40SeffSaid)
+[Pin8](https://pinterest.com/pin/create/button/?url=/sunny-day-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fsunny-day-quotes-PIN.jpg&description=50+sunny+day+quotes+to+bring+a+little+extra+warmth+to+your+day+and+inspire+you+to+enjoy+each+moment+in+the+sun.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Sunny+Day+Quotes+To+Light+Up+Your+Life&url=https%3A%2F%2Fseffsaid.com%2Fsunny-day-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Sunny+Day+Quotes+To+Light+Up+Your+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsunny-day-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsunny-day-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsunny-day-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsunny-day-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsunny-day-quotes%2F)
 
 [More](#)
 

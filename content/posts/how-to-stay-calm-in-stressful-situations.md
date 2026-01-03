@@ -73,15 +73,15 @@ Calm is a skill. The more often you practice it in quiet times, the easier it is
 
 Start with one small step. Slow your breathing, name what you feel, or simply pause before reacting. Every time you choose calm, you strengthen it. Over time, it becomes less of a practice and more of a way of living, a steady thread running quietly through your days.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-calm-in-stressful-situations%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-calm-in-stressful-situations%2F)
 
 Pin455
 
-[Tweet](https://twitter.com/intent/tweet?text=Developing+the+ability+to+stay+calm+in+stressful+situations+is+a+valuable+technique+to+master.+Here+are+7+simple+yet+powerful+tips+to+help+you+keep+your+cool+when+under+pressure.&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-calm-in-stressful-situations%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Developing+the+ability+to+stay+calm+in+stressful+situations+is+a+valuable+technique+to+master.+Here+are+7+simple+yet+powerful+tips+to+help+you+keep+your+cool+when+under+pressure.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-calm-in-stressful-situations%2F&via=SeffSaid)
 
-[Reddit1](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-calm-in-stressful-situations%2F)
+[Reddit1](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-calm-in-stressful-situations%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-calm-in-stressful-situations%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-calm-in-stressful-situations%2F)
 
 [More](#)
 

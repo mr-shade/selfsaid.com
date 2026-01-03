@@ -96,15 +96,15 @@ This collection is divided into six sections to meet you where you are. Let thes
 59.  “You don’t have to be perfect to be valuable.” – Seff Bray
 60.  “Your worth was never meant to be earned. It was always yours.” – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fknow-your-worth-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fknow-your-worth-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/know-your-worth-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fknow-your-worth-PIN.jpg&description=Need+a+reminder+of+your+value%3F+This+thoughtful+list+of+60+quotes+about+knowing+your+worth+offers+supportive+words+for+when+you+feel+overlooked%2C+undervalued%2C+or+unsure+of+yourself.+Divided+into+six+steady+sections%2C+these+quotes+help+you+come+back+to+your+voice%2C+your+boundaries%2C+and+your+inner+strength.+Save+this+post+for+days+when+you+need+to+remember+who+you+are.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/know-your-worth-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fknow-your-worth-PIN.jpg&description=Need+a+reminder+of+your+value%3F+This+thoughtful+list+of+60+quotes+about+knowing+your+worth+offers+supportive+words+for+when+you+feel+overlooked%2C+undervalued%2C+or+unsure+of+yourself.+Divided+into+six+steady+sections%2C+these+quotes+help+you+come+back+to+your+voice%2C+your+boundaries%2C+and+your+inner+strength.+Save+this+post+for+days+when+you+need+to+remember+who+you+are.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Empowering+Quotes+About+Knowing+Your+Worth&url=https%3A%2F%2Fseffsaid.com%2Fknow-your-worth-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Empowering+Quotes+About+Knowing+Your+Worth&url=https%3A%2F%2Fselfsaid.30tools.com%2Fknow-your-worth-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fknow-your-worth-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fknow-your-worth-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fknow-your-worth-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fknow-your-worth-quotes%2F)
 
 [More](#)
 

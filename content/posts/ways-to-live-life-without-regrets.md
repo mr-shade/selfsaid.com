@@ -68,15 +68,15 @@ Practice mindfulness techniques such as [meditation](/benefits-of-meditation) or
 
 By adopting these eight strategies, you can create a life that’s rich and satisfying, free from the weight of regrets. Each day is an opportunity to make choices that align with your true desires and values. Start today, and make every moment count.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fways-to-live-life-without-regrets%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-live-life-without-regrets%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/ways-to-live-life-without-regrets/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FLive-Life-Without-Regrets-PIN.jpg&description=Learn+8+powerful+ways+to+ensure+your+life+is+full+of+joy+and+free+from+regrets.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/ways-to-live-life-without-regrets/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FLive-Life-Without-Regrets-PIN.jpg&description=Learn+8+powerful+ways+to+ensure+your+life+is+full+of+joy+and+free+from+regrets.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=8+Courageous+Ways+to+Live+Life+Without+Regrets&url=https%3A%2F%2Fseffsaid.com%2Fways-to-live-life-without-regrets%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=8+Courageous+Ways+to+Live+Life+Without+Regrets&url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-live-life-without-regrets%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fways-to-live-life-without-regrets%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-live-life-without-regrets%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fways-to-live-life-without-regrets%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-live-life-without-regrets%2F)
 
 [More](#)
 

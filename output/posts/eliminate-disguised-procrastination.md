@@ -52,15 +52,15 @@ Finally, list your jobs in order of urgency from urgent to important to not impo
 
 Prioritization is a valuable strategy in helping to eliminate disguised procrastination, so grab a pencil and a sheet of paper and start making your list!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Feliminate-disguised-procrastination%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Feliminate-disguised-procrastination%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/eliminate-disguised-procrastination/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FDisguised-Procrastination-PIN.jpg&description=Discover+effective+strategies+to+identify+and+overcome+disguised+procrastination.+A+must-read+for+boosting+productivity+and+achieving+goals.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/eliminate-disguised-procrastination/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FDisguised-Procrastination-PIN.jpg&description=Discover+effective+strategies+to+identify+and+overcome+disguised+procrastination.+A+must-read+for+boosting+productivity+and+achieving+goals.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Eliminate+Disguised+Procrastination&url=https%3A%2F%2Fseffsaid.com%2Feliminate-disguised-procrastination%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Eliminate+Disguised+Procrastination&url=https%3A%2F%2Fselfsaid.30tools.com%2Feliminate-disguised-procrastination%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Feliminate-disguised-procrastination%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Feliminate-disguised-procrastination%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Feliminate-disguised-procrastination%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Feliminate-disguised-procrastination%2F)
 
 [More](#)
 

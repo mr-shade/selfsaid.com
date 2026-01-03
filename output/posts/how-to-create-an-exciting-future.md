@@ -30,15 +30,15 @@ Don’t forget to assess risks and pros and cons of making big changes, both for
 
 In conclusion, an exciting future, whatever that means to you, is there for the taking if you tread carefully, assess realistically, plan, visualize and take it step by step. Small consistent efforts can lead to a brighter future! I hope these tips help you as much as they did me in creating a more fulfilling life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-create-an-exciting-future%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-create-an-exciting-future%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/how-to-create-an-exciting-future/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fcreate-an-exciting-future-PIN.jpg&description=Five+tips+for+creating+an+exciting+future+that+will+make+you+feel+good+right+now%21+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/how-to-create-an-exciting-future/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fcreate-an-exciting-future-PIN.jpg&description=Five+tips+for+creating+an+exciting+future+that+will+make+you+feel+good+right+now%21+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Create+An+Exciting+Future&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-create-an-exciting-future%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Create+An+Exciting+Future&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-create-an-exciting-future%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-create-an-exciting-future%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-create-an-exciting-future%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-create-an-exciting-future%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-create-an-exciting-future%2F)
 
 [More](#)
 

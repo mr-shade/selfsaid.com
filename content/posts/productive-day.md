@@ -80,15 +80,15 @@ Once the workday is complete, take a few moments to assess what went well and wh
 
 Writing down unfinished tasks for the next day can also give you a sense of closure, helping you leave work-related stress behind. A calm and organized evening helps you recharge and prepare for another productive day ahead.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fproductive-day%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fproductive-day%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/productive-day/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fproductive-day-pin.jpg&description=Tired+of+unproductive+days%3F+Here%E2%80%99s+how+to+turn+every+morning+into+a+success+story.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/productive-day/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fproductive-day-pin.jpg&description=Tired+of+unproductive+days%3F+Here%E2%80%99s+how+to+turn+every+morning+into+a+success+story.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Set+Yourself+Up+For+A+Productive+Day&url=https%3A%2F%2Fseffsaid.com%2Fproductive-day%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Set+Yourself+Up+For+A+Productive+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductive-day%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fproductive-day%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductive-day%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fproductive-day%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductive-day%2F)
 
 [More](#)
 

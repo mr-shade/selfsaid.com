@@ -49,15 +49,15 @@ Madison Beer’s best quotes that reflect her thoughts on self-love, authenticit
 
 Read more [quotes by celebrities](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmadison-beer-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmadison-beer-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/madison-beer-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmadison-beer-quotes-PIN.jpg&description=A+collection+of+Madison+Beer%E2%80%99s+best+quotes+that+encourage+confidence%2C+authenticity+and+personal+growth+in+your+daily+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/madison-beer-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmadison-beer-quotes-PIN.jpg&description=A+collection+of+Madison+Beer%E2%80%99s+best+quotes+that+encourage+confidence%2C+authenticity+and+personal+growth+in+your+daily+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Madison+Beer%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fmadison-beer-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Madison+Beer%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmadison-beer-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmadison-beer-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmadison-beer-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmadison-beer-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmadison-beer-quotes%2F)
 
 [More](#)
 

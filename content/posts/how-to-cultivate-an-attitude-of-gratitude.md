@@ -81,15 +81,15 @@ Will I feel, think, and act the same next time, with an initial outpouring of an
 
 For now, I have the smugness of feeling just a little wiser. And for that, I’m truly grateful.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-cultivate-an-attitude-of-gratitude%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-cultivate-an-attitude-of-gratitude%2F)
 
-[Pin10](https://pinterest.com/pin/create/button/?url=/how-to-cultivate-an-attitude-of-gratitude/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F11%2Fhow-to-cultivate-attitude-of-gratitude.jpg&description=An+attitude+of+gratitude+is+simply+making+a+habit+of+feeling+and+expressing+gratitude+for+everything+you+have+and+that+happens+in+your+life.+Easier+said+than+done%2C+but+it%E2%80%99s+a+lifestyle+and+mindset+choice+that+can+drastically+change+your+life.+According+to+psychologists%2C+being+grateful+for+everything+you+have+can+boost+your+happiness+and+increase+your+overall+sense+of+well-being.+Here%27s+how+I+cultivated+my+own+attitude+for+gratitude.%0D%0A+via+%40SeffSaid)
+[Pin10](https://pinterest.com/pin/create/button/?url=/how-to-cultivate-an-attitude-of-gratitude/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F11%2Fhow-to-cultivate-attitude-of-gratitude.jpg&description=An+attitude+of+gratitude+is+simply+making+a+habit+of+feeling+and+expressing+gratitude+for+everything+you+have+and+that+happens+in+your+life.+Easier+said+than+done%2C+but+it%E2%80%99s+a+lifestyle+and+mindset+choice+that+can+drastically+change+your+life.+According+to+psychologists%2C+being+grateful+for+everything+you+have+can+boost+your+happiness+and+increase+your+overall+sense+of+well-being.+Here%27s+how+I+cultivated+my+own+attitude+for+gratitude.%0D%0A+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Cultivate+An+Attitude+Of+Gratitude&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-cultivate-an-attitude-of-gratitude%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Cultivate+An+Attitude+Of+Gratitude&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-cultivate-an-attitude-of-gratitude%2F&via=SeffSaid)
 
-[Reddit1](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-cultivate-an-attitude-of-gratitude%2F)
+[Reddit1](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-cultivate-an-attitude-of-gratitude%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-cultivate-an-attitude-of-gratitude%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-cultivate-an-attitude-of-gratitude%2F)
 
 [More](#)
 

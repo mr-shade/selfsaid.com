@@ -58,15 +58,15 @@ I’m only human, of course, and these habits come and go a little, depending on
 
 And when I remember that, I take my one deep breath and remind myself of just how good it feels to breathe and to be alive.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbreath-a-bridge-to-conscious-and-mindful-living%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbreath-a-bridge-to-conscious-and-mindful-living%2F)
 
 Pin3
 
-[Tweet](https://twitter.com/intent/tweet?text=Using+Breath+As+A+Bridge+To+Conscious+And+Mindful+Living&url=https%3A%2F%2Fseffsaid.com%2Fbreath-a-bridge-to-conscious-and-mindful-living%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Using+Breath+As+A+Bridge+To+Conscious+And+Mindful+Living&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbreath-a-bridge-to-conscious-and-mindful-living%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbreath-a-bridge-to-conscious-and-mindful-living%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbreath-a-bridge-to-conscious-and-mindful-living%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbreath-a-bridge-to-conscious-and-mindful-living%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbreath-a-bridge-to-conscious-and-mindful-living%2F)
 
 [More](#)
 

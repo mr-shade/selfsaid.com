@@ -71,15 +71,15 @@ Discover the wisdom and inspiration behind BTS with this list of 50 of their bes
 
 Read more [quotes from famous bands](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbts-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbts-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/bts-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBTS-Quotes-PIN.jpg&description=Discover+the+50+best+BTS+quotes+on+life%2C+love%2C+music%2C+philosophy%2C+and+the+wisdom+they%27ve+gained+through+their+experiences.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/bts-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBTS-Quotes-PIN.jpg&description=Discover+the+50+best+BTS+quotes+on+life%2C+love%2C+music%2C+philosophy%2C+and+the+wisdom+they%27ve+gained+through+their+experiences.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Best+BTS+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fbts-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Best+BTS+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbts-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbts-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbts-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbts-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbts-quotes%2F)
 
 [More](#)
 

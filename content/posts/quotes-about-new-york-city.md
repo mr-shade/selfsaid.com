@@ -179,15 +179,15 @@ New York City has inspired countless people with its energy, culture, and unique
 159.  “New York is the city of a million lives, all different, all unique.” – Unknown
 160.  “In New York, every day is a new adventure.” – Unknown
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-new-york-city%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-new-york-city%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/quotes-about-new-york-city/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FNew-York-City-PIN.jpg&description=160+quotes+about+New+York+City+that+bring+its+bustling+streets%2C+iconic+landmarks%2C+and+vibrant+energy+to+life.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/quotes-about-new-york-city/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FNew-York-City-PIN.jpg&description=160+quotes+about+New+York+City+that+bring+its+bustling+streets%2C+iconic+landmarks%2C+and+vibrant+energy+to+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=160+Quotes+About+New+York+City&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-new-york-city%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=160+Quotes+About+New+York+City&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-new-york-city%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-new-york-city%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-new-york-city%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-new-york-city%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-new-york-city%2F)
 
 [More](#)
 

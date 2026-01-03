@@ -67,15 +67,15 @@ Meditation is not about perfection or discipline. It’s about awareness. Some d
 
 You don’t have to do it right. You only have to begin. Sit for a minute, breathe, notice, and start again tomorrow. The benefits come quietly, building layer by layer, until calm becomes part of your everyday life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbenefits-of-meditation%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbenefits-of-meditation%2F)
 
-[Pin201](https://pinterest.com/pin/create/button/?url=/benefits-of-meditation/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2019%2F05%2FFIve-Amazing-Benefits-Of-Meditation.jpg&description=Discover+how+meditation+can+calm+your+mind%2C+balance+your+emotions%2C+and+bring+more+peace+into+your+daily+life.+via+%40SeffSaid)
+[Pin201](https://pinterest.com/pin/create/button/?url=/benefits-of-meditation/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2019%2F05%2FFIve-Amazing-Benefits-Of-Meditation.jpg&description=Discover+how+meditation+can+calm+your+mind%2C+balance+your+emotions%2C+and+bring+more+peace+into+your+daily+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Regular+meditation+can+improve+the+quality+of+our+lives+in+a+broad+range+of+ways.+In+this+article%2C+you+will+discover+5+amazing+benefits+of+meditation.&url=https%3A%2F%2Fseffsaid.com%2Fbenefits-of-meditation%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Regular+meditation+can+improve+the+quality+of+our+lives+in+a+broad+range+of+ways.+In+this+article%2C+you+will+discover+5+amazing+benefits+of+meditation.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbenefits-of-meditation%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbenefits-of-meditation%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbenefits-of-meditation%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbenefits-of-meditation%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbenefits-of-meditation%2F)
 
 [More](#)
 

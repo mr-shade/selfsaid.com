@@ -65,15 +65,15 @@ Ringo Starr, the legendary drummer of [The Beatles](https://seffsaid.com/beatles
 49.  “Being a Beatle was a dream I never dreamed.” – Ringo Starr
 50.  “I’m not the best, I’m not the worst, but I’m in the first division.” – Ringo Starr
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fringo-starr-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fringo-starr-quotes%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/ringo-starr-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FRingo-Starr-Quotes-PIN.jpg&description=Discover+Ringo+Starr%27s+wisdom+on+life%2C+love+and+music+through+50+of+his+best+quotes.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/ringo-starr-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FRingo-Starr-Quotes-PIN.jpg&description=Discover+Ringo+Starr%27s+wisdom+on+life%2C+love+and+music+through+50+of+his+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Ringo+Starr%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fringo-starr-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Ringo+Starr%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fringo-starr-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fringo-starr-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fringo-starr-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fringo-starr-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fringo-starr-quotes%2F)
 
 [More](#)
 

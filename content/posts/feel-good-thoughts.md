@@ -86,15 +86,15 @@ Repeating kind and steady thoughts has real power. Your mind tends to follow the
 
 Over time, these thoughts become more than phrases. They become habits of perspective, helping you notice the small wins, trust your strength, and remember that peace is always possible.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ffeel-good-thoughts%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ffeel-good-thoughts%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/feel-good-thoughts/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ffeel-good-thoughts-PIN.jpg&description=15+feel-good+thoughts+to+ease+stress+and+lift+your+mood.+Simple+reminders+that+bring+comfort%2C+calm%2C+and+perspective+when+life+feels+heavy.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/feel-good-thoughts/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ffeel-good-thoughts-PIN.jpg&description=15+feel-good+thoughts+to+ease+stress+and+lift+your+mood.+Simple+reminders+that+bring+comfort%2C+calm%2C+and+perspective+when+life+feels+heavy.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=15+Feel+Good+Thoughts+For+A+Bad+Day&url=https%3A%2F%2Fseffsaid.com%2Ffeel-good-thoughts%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=15+Feel+Good+Thoughts+For+A+Bad+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2Ffeel-good-thoughts%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ffeel-good-thoughts%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffeel-good-thoughts%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ffeel-good-thoughts%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ffeel-good-thoughts%2F)
 
 [More](#)
 

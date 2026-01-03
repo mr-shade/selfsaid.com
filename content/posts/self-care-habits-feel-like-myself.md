@@ -100,15 +100,15 @@ Music I love instantly makes me feel more like myself, providing comfort and fam
 
 Self-care doesn’t have to be complicated. Simple habits, practiced with intention, can profoundly reconnect you with yourself. Choose one or two habits this week and let yourself gently return to who you truly are.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-care-habits-feel-like-myself%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-habits-feel-like-myself%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/self-care-habits-feel-like-myself/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fself-care-habits-PIN-1.jpg&description=Feeling+disconnected+or+overwhelmed%3F+Here+are+10+calming+self-care+habits+that+always+help+me+feel+more+like+myself+again.+Simple%2C+practical+ideas+you+can+start+today.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/self-care-habits-feel-like-myself/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fself-care-habits-PIN-1.jpg&description=Feeling+disconnected+or+overwhelmed%3F+Here+are+10+calming+self-care+habits+that+always+help+me+feel+more+like+myself+again.+Simple%2C+practical+ideas+you+can+start+today.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Self-Care+Habits+That+Help+Me+Feel+Like+Myself+Again&url=https%3A%2F%2Fseffsaid.com%2Fself-care-habits-feel-like-myself%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Self-Care+Habits+That+Help+Me+Feel+Like+Myself+Again&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-habits-feel-like-myself%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-care-habits-feel-like-myself%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-habits-feel-like-myself%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-care-habits-feel-like-myself%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-habits-feel-like-myself%2F)
 
 [More](#)
 

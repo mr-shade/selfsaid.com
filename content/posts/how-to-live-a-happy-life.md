@@ -74,15 +74,15 @@ There is no single path to a happy life. Yours might be quiet. It might be slow.
 
 You do not need to chase a perfect life. A happy life is often the one where you are honest with yourself, kind to your mind, and willing to care for what matters.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-a-happy-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-a-happy-life%2F)
 
 Pin5
 
-[Tweet](https://twitter.com/intent/tweet?text=Learn+how+to+live+a+happy+life+by+putting+into+practice+these+14+simple+yet+effective+lifestyle+changes.&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-a-happy-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Learn+how+to+live+a+happy+life+by+putting+into+practice+these+14+simple+yet+effective+lifestyle+changes.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-a-happy-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-a-happy-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-a-happy-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-live-a-happy-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-a-happy-life%2F)
 
 [More](#)
 

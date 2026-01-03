@@ -64,15 +64,15 @@ This practice does not require hours of free time. Even short breaks, such as si
 
 Instead of [feeling guilty](/how-to-prioritize-self-care) for pausing, think of it as an investment in long-term well-being. By giving yourself permission to slow down, you create space for clarity, creativity, and a deeper sense of peace.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Freasons-to-do-nothing%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-to-do-nothing%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/reasons-to-do-nothing/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Freasons-to-do-nothing-PIN.jpg&description=Taking+time+to+do+absolutely+nothing+might+be+the+smartest+decision+you+ever+make+for+your+mind+and+body.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/reasons-to-do-nothing/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Freasons-to-do-nothing-PIN.jpg&description=Taking+time+to+do+absolutely+nothing+might+be+the+smartest+decision+you+ever+make+for+your+mind+and+body.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Valid+Reasons+To+Spend+Time+Doing+Absolutely+Nothing&url=https%3A%2F%2Fseffsaid.com%2Freasons-to-do-nothing%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Valid+Reasons+To+Spend+Time+Doing+Absolutely+Nothing&url=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-to-do-nothing%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Freasons-to-do-nothing%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-to-do-nothing%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Freasons-to-do-nothing%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-to-do-nothing%2F)
 
 [More](#)
 

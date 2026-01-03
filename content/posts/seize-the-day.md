@@ -67,15 +67,15 @@ $4.99 – Instant Download
 
 [ADD TO CART](https://payhip.com/b/3JyOP)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fseize-the-day%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fseize-the-day%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/seize-the-day/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSeize-The-Day-Printable-Quote.jpg&description=Add+energy+and+focus+to+your+workspace+with+this+Seize+The+Day+printable+quote+wall+art%2C+a+reminder+to+take+charge+and+pursue+your+goals+each+day.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/seize-the-day/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSeize-The-Day-Printable-Quote.jpg&description=Add+energy+and+focus+to+your+workspace+with+this+Seize+The+Day+printable+quote+wall+art%2C+a+reminder+to+take+charge+and+pursue+your+goals+each+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Seize+The+Day+Printable+Quote&url=https%3A%2F%2Fseffsaid.com%2Fseize-the-day%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Seize+The+Day+Printable+Quote&url=https%3A%2F%2Fselfsaid.30tools.com%2Fseize-the-day%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fseize-the-day%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fseize-the-day%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fseize-the-day%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fseize-the-day%2F)
 
 [More](#)
 

@@ -67,15 +67,15 @@ Life often throws challenges your way, and staying positive can feel like an uph
 *   “Success is stumbling from failure to failure with no loss of enthusiasm.” – Winston Churchill
 *   “The only thing that overcomes hard luck is hard work.” – Harry Golden
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftough-times-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftough-times-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/tough-times-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftough-times-quotes-PIN.jpg&description=Find+the+inspiration+you+need+to+face+life%E2%80%99s+challenges+with+these+50+tough+times+quotes+that+remind+you+of+your+strength+and+resilience.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/tough-times-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftough-times-quotes-PIN.jpg&description=Find+the+inspiration+you+need+to+face+life%E2%80%99s+challenges+with+these+50+tough+times+quotes+that+remind+you+of+your+strength+and+resilience.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+On+Staying+Positive+In+Tough+Times&url=https%3A%2F%2Fseffsaid.com%2Ftough-times-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+On+Staying+Positive+In+Tough+Times&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftough-times-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftough-times-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftough-times-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftough-times-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftough-times-quotes%2F)
 
 [More](#)
 

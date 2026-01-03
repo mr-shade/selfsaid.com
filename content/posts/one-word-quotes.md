@@ -244,15 +244,15 @@ As you reflect on these 100 one-word quotes, consider the power each holds. A si
 
 Carry them in your thoughts and let them echo in your actions. May each word resonate with you in a unique and meaningful way, offering comfort, motivation, and inspiration whenever needed. Before you go, if you like these quotes, you’ll love my collection of [two-word quotes](/two-word-quotes), go take a look.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fone-word-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fone-word-quotes%2F)
 
 Pin13
 
-[Tweet](https://twitter.com/intent/tweet?text=100+One+Word+Quotes+For+Daily+Motivation+and+Inspiration&url=https%3A%2F%2Fseffsaid.com%2Fone-word-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=100+One+Word+Quotes+For+Daily+Motivation+and+Inspiration&url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-word-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fone-word-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-word-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fone-word-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fone-word-quotes%2F)
 
 [More](#)
 

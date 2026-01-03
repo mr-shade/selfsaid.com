@@ -70,15 +70,15 @@ You’re allowed to be fully you and fully loved. You’re allowed to find your 
 
 Keep being who you are. The right people will notice.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-build-your-tribe%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-build-your-tribe%2F)
 
 Pin4
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Build+Your+Tribe+%E2%80%93+Finding+%E2%80%98Your+People%E2%80%99&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-build-your-tribe%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Build+Your+Tribe+%E2%80%93+Finding+%E2%80%98Your+People%E2%80%99&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-build-your-tribe%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-build-your-tribe%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-build-your-tribe%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-build-your-tribe%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-build-your-tribe%2F)
 
 [More](#)
 

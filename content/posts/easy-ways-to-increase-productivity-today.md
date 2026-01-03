@@ -102,15 +102,15 @@ Increasing productivity doesn’t require drastic changes in your life. By imple
 
 So, start with one or two of these tips that resonate with you the most, and gradually incorporate more as you progress towards becoming a more productive and efficient version of yourself.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-increase-productivity-today%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-increase-productivity-today%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/easy-ways-to-increase-productivity-today/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fincrease-productivity-today-PIN.jpg&description=Unlock+your+potential+for+greater+efficiency+by+embracing+these+15+simple+yet+powerful+strategies+to+increase+productivity+today.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/easy-ways-to-increase-productivity-today/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fincrease-productivity-today-PIN.jpg&description=Unlock+your+potential+for+greater+efficiency+by+embracing+these+15+simple+yet+powerful+strategies+to+increase+productivity+today.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=15+Easy+Ways+to+Increase+Productivity+Today&url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-increase-productivity-today%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=15+Easy+Ways+to+Increase+Productivity+Today&url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-increase-productivity-today%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-increase-productivity-today%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-increase-productivity-today%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Feasy-ways-to-increase-productivity-today%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Feasy-ways-to-increase-productivity-today%2F)
 
 [More](#)
 

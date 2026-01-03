@@ -102,15 +102,15 @@ Discover the impact Bruce Lee had on the world, not just as a martial arts icon,
 
 You can read more [quotes from famous people](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbruce-lee-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-lee-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/bruce-lee-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fbruce-lee-quotes-PIN.jpg&description=Embrace+the+wisdom+and+insight+of+Bruce+Lee+with+this+collection+of+his+very+best+quotes.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/bruce-lee-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fbruce-lee-quotes-PIN.jpg&description=Embrace+the+wisdom+and+insight+of+Bruce+Lee+with+this+collection+of+his+very+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Bruce+Lee%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fbruce-lee-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Bruce+Lee%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-lee-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbruce-lee-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-lee-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbruce-lee-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-lee-quotes%2F)
 
 [More](#)
 

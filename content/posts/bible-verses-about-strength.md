@@ -77,15 +77,15 @@ Strength is something we all need, whether facing challenges or supporting those
 *   “But you, Lord, do not be far from me. You are my strength; come quickly to help me.” (Psalm 22:19)
 *   “We are hard pressed on every side, but not crushed; perplexed, but not in despair.” (2 Corinthians 4:8)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbible-verses-about-strength%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbible-verses-about-strength%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/bible-verses-about-strength/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBible-Quotes-About-Strength-PIN2.jpg&description=Discover+60+powerful+Bible+verses+about+strength+that+remind+you+of+the+incredible+strength+found+in+faith+and+trust+in+God.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/bible-verses-about-strength/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBible-Quotes-About-Strength-PIN2.jpg&description=Discover+60+powerful+Bible+verses+about+strength+that+remind+you+of+the+incredible+strength+found+in+faith+and+trust+in+God.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Bible+Verses+About+Strength&url=https%3A%2F%2Fseffsaid.com%2Fbible-verses-about-strength%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Bible+Verses+About+Strength&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbible-verses-about-strength%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbible-verses-about-strength%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbible-verses-about-strength%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbible-verses-about-strength%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbible-verses-about-strength%2F)
 
 [More](#)
 

@@ -62,15 +62,15 @@ When faced with a decision, write down your answers to these questions. Seeing y
 
 Major life decisions can shape your future in profound ways. By taking the time to reflect on these questions, you’ll approach your choices with [greater confidence](/ways-to-become-more-confident) and a stronger sense of purpose. This thoughtful process ensures that your decisions align with both your present needs and your long-term aspirations, helping you create a life that feels intentional and fulfilling.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flife-decisions-guide%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flife-decisions-guide%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/life-decisions-guide/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Flife-decisions-guide-PIN.jpg&description=Learn+the+10+key+questions+that+will+reshape+how+you+approach+major+life+decisions.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/life-decisions-guide/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Flife-decisions-guide-PIN.jpg&description=Learn+the+10+key+questions+that+will+reshape+how+you+approach+major+life+decisions.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Guide+You+Through+Major+Life+Decisions&url=https%3A%2F%2Fseffsaid.com%2Flife-decisions-guide%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Guide+You+Through+Major+Life+Decisions&url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-decisions-guide%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flife-decisions-guide%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-decisions-guide%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flife-decisions-guide%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flife-decisions-guide%2F)
 
 [More](#)
 

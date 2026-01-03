@@ -145,15 +145,15 @@ Here are 128 thought-provoking, heartwarming, and inspirational best friend quot
 127.  “Truly great friends are hard to find, difficult to leave, and impossible to forget”. – Unknown
 128.  “They may forget what you said, but they will never forget how you made them feel”. – Carl W. Buechner
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F128-best-friend-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F128-best-friend-quotes%2F)
 
 Pin101
 
-[Tweet](https://twitter.com/intent/tweet?text=128+Heartwarming+Quotes+About+Best+Friends&url=https%3A%2F%2Fseffsaid.com%2F128-best-friend-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=128+Heartwarming+Quotes+About+Best+Friends&url=https%3A%2F%2Fselfsaid.30tools.com%2F128-best-friend-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F128-best-friend-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F128-best-friend-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F128-best-friend-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F128-best-friend-quotes%2F)
 
 [More](#)
 

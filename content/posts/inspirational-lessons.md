@@ -58,15 +58,15 @@ Henry Ford revolutionized the automobile industry by creating a faster and more 
 
 Each of these individuals has left a lasting mark by following principles that anyone can apply. Whether it is persistence, belief in oneself, or a commitment to hard work, these lessons can help shape a more successful and fulfilling life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Finspirational-lessons%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-lessons%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/inspirational-lessons/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FInspirational-Lessons-PIN.jpg&description=Discover+the+habits%2C+mindset%2C+and+strategies+that+set+highly+successful+people+apart+from+the+rest+and+allow+them+to+achieve+extraordinary+results.+Learn+how+to+apply+these+lessons+to+your+own+life+to+improve+your+focus%2C+overcome+obstacles%2C+and+reach+new+levels+of+success.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/inspirational-lessons/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FInspirational-Lessons-PIN.jpg&description=Discover+the+habits%2C+mindset%2C+and+strategies+that+set+highly+successful+people+apart+from+the+rest+and+allow+them+to+achieve+extraordinary+results.+Learn+how+to+apply+these+lessons+to+your+own+life+to+improve+your+focus%2C+overcome+obstacles%2C+and+reach+new+levels+of+success.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Inspirational+Lessons+From+Highly+Successful+People&url=https%3A%2F%2Fseffsaid.com%2Finspirational-lessons%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Inspirational+Lessons+From+Highly+Successful+People&url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-lessons%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Finspirational-lessons%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-lessons%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Finspirational-lessons%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-lessons%2F)
 
 [More](#)
 

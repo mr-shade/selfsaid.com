@@ -70,15 +70,15 @@ Try making your stride longer than normal. Take long purposeful steps, rather th
 
 There you go, you now know how to appear confident! As I mentioned earlier, the greatest benefit of practicing a positive body language is that you can trick yourself into becoming confident. Don’t try to implement all these techniques at once, just start with one of the techniques and when it has become a habit, add another. The more you practice, the more comfortable you’ll appear and more importantly, you’ll actually start feeling more confident.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F10-ways-to-appear-more-confident%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-appear-more-confident%2F)
 
 Pin36.66K
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Appear+Confident+%28When+You%27re+Really+Not%29&url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-appear-more-confident%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Appear+Confident+%28When+You%27re+Really+Not%29&url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-appear-more-confident%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-appear-more-confident%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-appear-more-confident%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F10-ways-to-appear-more-confident%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-appear-more-confident%2F)
 
 [More](#)
 

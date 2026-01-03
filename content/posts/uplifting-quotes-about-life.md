@@ -121,15 +121,15 @@ Here’s a list I’ve put together of the 100 best uplifting quotes about life 
 99.  “Live as if you were to die tomorrow. Learn as if you were to live forever.” – Mahatma Gandhi
 100.  “The best and most beautiful things in the world cannot be seen or even touched – they must be felt with the heart.” – Helen Keller
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fuplifting-quotes-about-life%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fuplifting-quotes-about-life%2F)
 
-[Pin5](https://pinterest.com/pin/create/button/?url=/uplifting-quotes-about-life/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2F2018%2F07%2FThe-100-Best-Uplifting-Quotes-About-Life.jpg&description=Discover+the+power+of+the+100+best+uplifting+quotes+about+life%2C+designed+to+inspire+and+motivate+you+towards+positive+change.+via+%40SeffSaid)
+[Pin5](https://pinterest.com/pin/create/button/?url=/uplifting-quotes-about-life/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2F2018%2F07%2FThe-100-Best-Uplifting-Quotes-About-Life.jpg&description=Discover+the+power+of+the+100+best+uplifting+quotes+about+life%2C+designed+to+inspire+and+motivate+you+towards+positive+change.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+100+best+uplifting+quotes+about+life.+These+awesome+quotes+have+the+power+to+inspire+you%2C+motivate+you%2C+and+change+your+life+for+the+better.&url=https%3A%2F%2Fseffsaid.com%2Fuplifting-quotes-about-life%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+100+best+uplifting+quotes+about+life.+These+awesome+quotes+have+the+power+to+inspire+you%2C+motivate+you%2C+and+change+your+life+for+the+better.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fuplifting-quotes-about-life%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fuplifting-quotes-about-life%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fuplifting-quotes-about-life%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fuplifting-quotes-about-life%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fuplifting-quotes-about-life%2F)
 
 [More](#)
 

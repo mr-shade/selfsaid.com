@@ -139,15 +139,15 @@ Best regards,
 
 Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmaya-angelou-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmaya-angelou-quotes%2F)
 
-[Pin56](https://pinterest.com/pin/create/button/?url=/maya-angelou-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMaya-Angelou-Quotes-PIN.jpg&description=Explore+the+wisdom+of+a+literary+icon+with+these+112+famous+Maya+Angelou+quotes+and+sayings.+via+%40SeffSaid)
+[Pin56](https://pinterest.com/pin/create/button/?url=/maya-angelou-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMaya-Angelou-Quotes-PIN.jpg&description=Explore+the+wisdom+of+a+literary+icon+with+these+112+famous+Maya+Angelou+quotes+and+sayings.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=112+Maya+Angelou+Quotes+And+Sayings&url=https%3A%2F%2Fseffsaid.com%2Fmaya-angelou-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=112+Maya+Angelou+Quotes+And+Sayings&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmaya-angelou-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmaya-angelou-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmaya-angelou-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmaya-angelou-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmaya-angelou-quotes%2F)
 
 [More](#)
 

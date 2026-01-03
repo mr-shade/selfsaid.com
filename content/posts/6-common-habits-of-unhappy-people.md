@@ -44,15 +44,15 @@ Just as regretting the past can make you unhappy, worrying about the future can 
 
 None of us can have happy thoughts all the time as we’re all going to encounter negative thoughts and emotions. What is important is how quickly we move our focus back to positive feelings. Changing your daily habits in the quest for happiness is probably one of the best things that you can do for yourself.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2F6-common-habits-of-unhappy-people%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F6-common-habits-of-unhappy-people%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/6-common-habits-of-unhappy-people/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FHabits-Of-Unhappy-People-PIN.jpg&description=Uncover+the+six+common+habits+that+could+be+sabotaging+your+happiness.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/6-common-habits-of-unhappy-people/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FHabits-Of-Unhappy-People-PIN.jpg&description=Uncover+the+six+common+habits+that+could+be+sabotaging+your+happiness.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=6+Common+Habits+Of+Unhappy+People+%28That+Everyone+Should+Avoid%29&url=https%3A%2F%2Fseffsaid.com%2F6-common-habits-of-unhappy-people%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=6+Common+Habits+Of+Unhappy+People+%28That+Everyone+Should+Avoid%29&url=https%3A%2F%2Fselfsaid.30tools.com%2F6-common-habits-of-unhappy-people%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2F6-common-habits-of-unhappy-people%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2F6-common-habits-of-unhappy-people%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2F6-common-habits-of-unhappy-people%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2F6-common-habits-of-unhappy-people%2F)
 
 [More](#)
 

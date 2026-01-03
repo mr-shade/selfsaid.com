@@ -90,15 +90,15 @@ You don’t have to move quickly. You don’t have to feel better right away. It
 
 This is a moment you can stay in. You are here. And for now, that is enough.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fsupportive-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsupportive-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/supportive-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fsupportive-quotes-PIN.jpg&description=Feeling+overwhelmed+can+make+even+the+smallest+tasks+feel+too+heavy.+This+collection+of+supportive+quotes+offers+a+calm+place+to+land+when+life+feels+too+much.+Each+quote+is+a+reminder+to+pause%2C+breathe%2C+and+soften+your+expectations.+Whether+you%E2%80%99re+having+a+tough+day+or+just+need+a+quiet+moment+of+reassurance%2C+these+quotes+can+help+you+feel+a+little+more+steady.+Click+through+to+read+them+all+and+save+your+favourites+for+the+days+that+feel+harder+than+most.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/supportive-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fsupportive-quotes-PIN.jpg&description=Feeling+overwhelmed+can+make+even+the+smallest+tasks+feel+too+heavy.+This+collection+of+supportive+quotes+offers+a+calm+place+to+land+when+life+feels+too+much.+Each+quote+is+a+reminder+to+pause%2C+breathe%2C+and+soften+your+expectations.+Whether+you%E2%80%99re+having+a+tough+day+or+just+need+a+quiet+moment+of+reassurance%2C+these+quotes+can+help+you+feel+a+little+more+steady.+Click+through+to+read+them+all+and+save+your+favourites+for+the+days+that+feel+harder+than+most.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Supportive+Quotes+for+When+Life+Feels+a+Little+Too+Much&url=https%3A%2F%2Fseffsaid.com%2Fsupportive-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Supportive+Quotes+for+When+Life+Feels+a+Little+Too+Much&url=https%3A%2F%2Fselfsaid.30tools.com%2Fsupportive-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fsupportive-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsupportive-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fsupportive-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fsupportive-quotes%2F)
 
 [More](#)
 

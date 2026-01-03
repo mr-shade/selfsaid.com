@@ -58,15 +58,15 @@ Finally, keep your eyes on the future you are planning together. Having shared g
 
 By employing these strategies, you can maintain a loving and fulfilling relationship, even over long distances. Good luck!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-long-distance-relationships-work%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-long-distance-relationships-work%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/how-to-make-long-distance-relationships-work/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Flong-distance-relationship-PIN.jpg&description=Discover+10+practical+tips+on+maintaining+a+loving+and+fulfilling+long-distance+relationship.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/how-to-make-long-distance-relationships-work/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Flong-distance-relationship-PIN.jpg&description=Discover+10+practical+tips+on+maintaining+a+loving+and+fulfilling+long-distance+relationship.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Make+Long+Distance+Relationships+Work&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-long-distance-relationships-work%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Make+Long+Distance+Relationships+Work&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-long-distance-relationships-work%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-long-distance-relationships-work%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-long-distance-relationships-work%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-make-long-distance-relationships-work%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-make-long-distance-relationships-work%2F)
 
 [More](#)
 

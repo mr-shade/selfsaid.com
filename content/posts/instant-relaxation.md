@@ -78,15 +78,15 @@ Rub your shoulders, neck, or temples with gentle pressure. Use small circular mo
 
 Relaxation does not have to wait for a holiday, a weekend, or the perfect setting. Calm can be created in small ways, even on busy days. Try one or two of these hacks the next time you [feel overwhelmed](/calming-quotes). Small pauses like these remind you that rest is always possible, and that you can choose calm even in the middle of stress.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Finstant-relaxation%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Finstant-relaxation%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/instant-relaxation/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Finstant-relaxation-PIN.jpg&description=Need+calm+right+now%3F+These+14+simple+self-care+hacks+for+instant+relaxation+will+ease+stress%2C+restore+balance%2C+and+bring+peace+into+your+day.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/instant-relaxation/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Finstant-relaxation-PIN.jpg&description=Need+calm+right+now%3F+These+14+simple+self-care+hacks+for+instant+relaxation+will+ease+stress%2C+restore+balance%2C+and+bring+peace+into+your+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=14+Self-Care+Hacks+For+Instant+Relaxation&url=https%3A%2F%2Fseffsaid.com%2Finstant-relaxation%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=14+Self-Care+Hacks+For+Instant+Relaxation&url=https%3A%2F%2Fselfsaid.30tools.com%2Finstant-relaxation%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Finstant-relaxation%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Finstant-relaxation%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Finstant-relaxation%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Finstant-relaxation%2F)
 
 [More](#)
 

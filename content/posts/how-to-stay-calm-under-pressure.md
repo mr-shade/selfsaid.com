@@ -94,15 +94,15 @@ You are not alone in this. You are not broken. You are still becoming.
 
 – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-calm-under-pressure%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-calm-under-pressure%2F)
 
 Pin6
 
-[Tweet](https://twitter.com/intent/tweet?text=Learn+how+to+stay+calm+under+pressure+with+these+10+simple+techniques.&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-calm-under-pressure%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Learn+how+to+stay+calm+under+pressure+with+these+10+simple+techniques.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-calm-under-pressure%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-calm-under-pressure%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-calm-under-pressure%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-calm-under-pressure%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-calm-under-pressure%2F)
 
 [More](#)
 

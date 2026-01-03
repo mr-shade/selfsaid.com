@@ -48,15 +48,15 @@ You are allowed to be tired. You are allowed to stop reaching for productivity. 
 
 Sometimes, rest arrives quietly, once you stop trying to force it. And sometimes, that’s enough.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftired-but-wired-switch-off%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftired-but-wired-switch-off%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/tired-but-wired-switch-off/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftired-but-wired-switch-off-PIN.jpg&description=When+your+body+is+tired+but+your+mind+won%E2%80%99t+settle%2C+try+this+simple+way+to+unwind+and+find+calm.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/tired-but-wired-switch-off/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftired-but-wired-switch-off-PIN.jpg&description=When+your+body+is+tired+but+your+mind+won%E2%80%99t+settle%2C+try+this+simple+way+to+unwind+and+find+calm.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Tired+but+Wired%3F+This+Helped+Me+Switch+Off&url=https%3A%2F%2Fseffsaid.com%2Ftired-but-wired-switch-off%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Tired+but+Wired%3F+This+Helped+Me+Switch+Off&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftired-but-wired-switch-off%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftired-but-wired-switch-off%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftired-but-wired-switch-off%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftired-but-wired-switch-off%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftired-but-wired-switch-off%2F)
 
 [More](#)
 

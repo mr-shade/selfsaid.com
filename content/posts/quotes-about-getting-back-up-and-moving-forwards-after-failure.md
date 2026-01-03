@@ -225,15 +225,15 @@ If you’re feeling down after a setback and struggling to get back up, don’t 
 199.  “FEARLESS is getting back up and fighting for what you want over and over again….even though every time you’ve tried before you’ve lost.” – Taylor Swift
 200.  “You can’t lose confidence in yourself, or you’ve lost already. When you get knocked down, you’ve got to keep getting back up.” – Tim Tebow
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F)
+[Pin3](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=200+Quotes+About+Getting+Back+Up+And+Moving+Forwards+After+Failure&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=200+Quotes+About+Getting+Back+Up+And+Moving+Forwards+After+Failure&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-getting-back-up-and-moving-forwards-after-failure%2F)
 
 [More](#)
 

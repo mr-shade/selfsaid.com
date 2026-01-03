@@ -59,15 +59,15 @@ David Bowie was a master of [reinvention](https://seffsaid.com/reinvent-yourself
 41.  “I don’t have stylistic loyalty. That’s why people perceive me changing all the time.” – David Bowie
 42.  “I’ve never responded well to entrenched negative thinking.” – David Bowie
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdavid-bowie-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdavid-bowie-quotes%2F)
 
-[Pin31](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/david-bowie-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FDavid-Bowie-Quotes-PIN.jpg&description=Explore+the+unique+and+thought-provoking+words+of+David+Bowie+that+showcase+his+remarkable+perspective+on+fame%2C+life+and+art.+via+%40SeffSaid)
+[Pin31](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/david-bowie-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FDavid-Bowie-Quotes-PIN.jpg&description=Explore+the+unique+and+thought-provoking+words+of+David+Bowie+that+showcase+his+remarkable+perspective+on+fame%2C+life+and+art.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=David+Bowie%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fdavid-bowie-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=David+Bowie%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdavid-bowie-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdavid-bowie-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdavid-bowie-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdavid-bowie-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdavid-bowie-quotes%2F)
 
 [More](#)
 

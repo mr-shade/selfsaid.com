@@ -168,15 +168,15 @@ When something is important enough, you do it even if the odds are not in your f
 
 “Success is not how high you have climbed, but how you make a positive difference to the world.” — Roy T. Bennett
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fnothing-is-impossible-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fnothing-is-impossible-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/nothing-is-impossible-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fnothing-is-impossible-quotes-PIN.jpg&description=Nothing+is+impossible+quotes+remind+us+that+with+the+right+mindset%2C+no+challenge+is+too+great%2C+and+no+dream+is+too+big+to+achieve.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/nothing-is-impossible-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fnothing-is-impossible-quotes-PIN.jpg&description=Nothing+is+impossible+quotes+remind+us+that+with+the+right+mindset%2C+no+challenge+is+too+great%2C+and+no+dream+is+too+big+to+achieve.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=80+Nothing+Is+Impossible+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fnothing-is-impossible-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=80+Nothing+Is+Impossible+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fnothing-is-impossible-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fnothing-is-impossible-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fnothing-is-impossible-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fnothing-is-impossible-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fnothing-is-impossible-quotes%2F)
 
 [More](#)
 

@@ -99,15 +99,15 @@ Sometimes strength is knowing when to step back, slow down, or change direction.
 **Z – Zero in on what matters**  
 Energy is precious. Focus it carefully. Let go of distractions and noise, and center your life around what brings you meaning, peace, and joy.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Ftips-for-productive-living%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftips-for-productive-living%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/tips-for-productive-living/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Ftips-for-productive-living-PIN.jpg&description=Explore+a+gentle+A+to+Z+guide+for+productive+living.+Build+resilience%2C+honor+self-care%2C+and+create+a+life+of+calm+progress+and+meaningful+habits.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/tips-for-productive-living/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Ftips-for-productive-living-PIN.jpg&description=Explore+a+gentle+A+to+Z+guide+for+productive+living.+Build+resilience%2C+honor+self-care%2C+and+create+a+life+of+calm+progress+and+meaningful+habits.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=A+to+Z+Tips+for+Productive+Living&url=https%3A%2F%2Fseffsaid.com%2Ftips-for-productive-living%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=A+to+Z+Tips+for+Productive+Living&url=https%3A%2F%2Fselfsaid.30tools.com%2Ftips-for-productive-living%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Ftips-for-productive-living%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftips-for-productive-living%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Ftips-for-productive-living%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Ftips-for-productive-living%2F)
 
 [More](#)
 

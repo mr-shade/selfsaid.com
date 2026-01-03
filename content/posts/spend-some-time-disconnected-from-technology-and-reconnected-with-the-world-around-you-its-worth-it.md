@@ -29,15 +29,15 @@ The quote “Spend some time disconnected from technology and reconnected with t
 
 In essence, this quote highlights the importance of finding a balance between our digital and real-world interactions. It acknowledges the integral role that technology plays in modern life, but also reminds us of the richness and depth found in direct, unmediated experiences with the natural world and human relationships. The quote suggests that while technology can connect us in many ways, there is unparalleled value in physically and mentally engaging with the world directly around us.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fspend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fspend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fseffsaid-971.jpg&description=Discover+the+balance+between+digital+and+real-world+experiences+with+our+insightful+analysis+of+the+quote+by+Germany+Kent+-+%27Spend+some+time+disconnected+from+technology+and+reconnected+with+the+world+around+you.+It%E2%80%99s+worth+it.%27+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fseffsaid-971.jpg&description=Discover+the+balance+between+digital+and+real-world+experiences+with+our+insightful+analysis+of+the+quote+by+Germany+Kent+-+%27Spend+some+time+disconnected+from+technology+and+reconnected+with+the+world+around+you.+It%E2%80%99s+worth+it.%27+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Spend+Some+Time+Disconnected+From+Technology+And+Reconnected+With+The+World+Around+You.+It%E2%80%99s+Worth+It.&url=https%3A%2F%2Fseffsaid.com%2Fspend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Spend+Some+Time+Disconnected+From+Technology+And+Reconnected+With+The+World+Around+You.+It%E2%80%99s+Worth+It.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fspend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fspend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fspend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fspend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fspend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it%2F)
 
 [More](#)
 

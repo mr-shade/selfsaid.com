@@ -99,15 +99,15 @@ But this book isn’t just theory. It’s a practical guide with 25 actionable s
 
 ## [**Read The Kindle Edition On Amazon**](https://www.amazon.com/dp/B0CSZ12TNF)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Flearn-how-to-say-no%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flearn-how-to-say-no%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Flearn-how-to-say-no%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Flearn-how-to-say-no%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=Discover+the+power+of+%27no%27+with+Seff+Bray%27s+latest+book%2C+%27How+To+Say+No%27+and+start+owning+your+time+and+your+life.&url=https%3A%2F%2Fseffsaid.com%2Flearn-how-to-say-no%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Discover+the+power+of+%27no%27+with+Seff+Bray%27s+latest+book%2C+%27How+To+Say+No%27+and+start+owning+your+time+and+your+life.&url=https%3A%2F%2Fselfsaid.30tools.com%2Flearn-how-to-say-no%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Flearn-how-to-say-no%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Flearn-how-to-say-no%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Flearn-how-to-say-no%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Flearn-how-to-say-no%2F)
 
 [More](#)
 

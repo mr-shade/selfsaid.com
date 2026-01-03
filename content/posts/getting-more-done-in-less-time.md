@@ -60,15 +60,15 @@ You don’t need to do everything. You just need to come back to yourself.
 
 Want more gentle ideas that actually help? Try [The Everyday Self-Care Routine](/everyday-self-care-routine) or explore [Doing One Thing Slowly](/doing-one-thing-slowly).
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fgetting-more-done-in-less-time%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgetting-more-done-in-less-time%2F)
 
 Pin2
 
-[Tweet](https://twitter.com/intent/tweet?text=Getting+More+Done+in+Less+Time+%28By+Doing+Less+on+Purpose%29&url=https%3A%2F%2Fseffsaid.com%2Fgetting-more-done-in-less-time%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Getting+More+Done+in+Less+Time+%28By+Doing+Less+on+Purpose%29&url=https%3A%2F%2Fselfsaid.30tools.com%2Fgetting-more-done-in-less-time%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fgetting-more-done-in-less-time%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgetting-more-done-in-less-time%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fgetting-more-done-in-less-time%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fgetting-more-done-in-less-time%2F)
 
 [More](#)
 

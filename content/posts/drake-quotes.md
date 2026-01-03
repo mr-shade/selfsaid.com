@@ -67,15 +67,15 @@ Drake’s quotes have a unique way of being both inspirational and practical, in
 49.  “I like when money makes a difference but don’t make you different.” – Drake
 50.  “Your happiness is the only thing worth fighting for in your life.” – Drake
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdrake-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdrake-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/drake-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FDrake-Quotes-PIN.jpg&description=+Drake%27s+50+best+quotes+that+will+inspire+and+guide+you+in+your+everyday+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/drake-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FDrake-Quotes-PIN.jpg&description=+Drake%27s+50+best+quotes+that+will+inspire+and+guide+you+in+your+everyday+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Drake%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fdrake-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Drake%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdrake-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdrake-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdrake-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdrake-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdrake-quotes%2F)
 
 [More](#)
 

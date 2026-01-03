@@ -58,15 +58,15 @@ Difficulties can be exhausting, and progress may be slow. Be kind and patient wi
 
 By applying these strategies, you can navigate tough times with greater strength and resolve. Each step taken builds your ability to weather life’s storms and emerge with newfound resilience.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-strong%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-strong%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-stay-strong/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FHow-To-Stay-Strong-PIN.jpg&description=Tough+times+don%E2%80%99t+last%2C+but+strong+people+do+-+see+how+you+can+become+one+of+them+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/how-to-stay-strong/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FHow-To-Stay-Strong-PIN.jpg&description=Tough+times+don%E2%80%99t+last%2C+but+strong+people+do+-+see+how+you+can+become+one+of+them+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Stay+Strong+When+Everything+Goes+Wrong&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-strong%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Stay+Strong+When+Everything+Goes+Wrong&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-strong%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-strong%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-strong%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-stay-strong%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stay-strong%2F)
 
 [More](#)
 

@@ -71,15 +71,15 @@ Bob Dylan has shared countless thoughts on life, love, and music that continue t
 
 Read more [quotes by famous singers](/quotes-by-famous-people) here.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbob-dylan-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-dylan-quotes%2F)
 
-[Pin65](https://pinterest.com/pin/create/button/?url=/bob-dylan-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FBob-Dylan-Quotes-PIN.jpg&description=These+50+Bob+Dylan+quotes+offer+a+glimpse+into+the+mind+of+one+of+the+most+influential+voices+of+our+time.+via+%40SeffSaid)
+[Pin65](https://pinterest.com/pin/create/button/?url=/bob-dylan-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FBob-Dylan-Quotes-PIN.jpg&description=These+50+Bob+Dylan+quotes+offer+a+glimpse+into+the+mind+of+one+of+the+most+influential+voices+of+our+time.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Bob+Dylan+Quotes+On+Life%2C+Love%2C+And+Music&url=https%3A%2F%2Fseffsaid.com%2Fbob-dylan-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Bob+Dylan+Quotes+On+Life%2C+Love%2C+And+Music&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-dylan-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbob-dylan-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-dylan-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbob-dylan-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-dylan-quotes%2F)
 
 [More](#)
 

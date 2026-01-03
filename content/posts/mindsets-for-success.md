@@ -168,15 +168,15 @@ Success is shaped by the mindsets we develop. Success looks different for everyo
 
 Success is an ongoing process of learning, growing, and adapting. These mindsets help you reach your goals and lead a fulfilling life, preparing you to navigate setbacks and pursue continual improvement.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmindsets-for-success%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmindsets-for-success%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/mindsets-for-success/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmindsets-for-success-PIN.jpg&description=Don%27t+wait+any+longer+to+develop+these+10+mindsets+for+success+that+can+change+your+life+forever.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/mindsets-for-success/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmindsets-for-success-PIN.jpg&description=Don%27t+wait+any+longer+to+develop+these+10+mindsets+for+success+that+can+change+your+life+forever.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Mindsets+for+Success+You+Should+Develop+ASAP&url=https%3A%2F%2Fseffsaid.com%2Fmindsets-for-success%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Mindsets+for+Success+You+Should+Develop+ASAP&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmindsets-for-success%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmindsets-for-success%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmindsets-for-success%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmindsets-for-success%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmindsets-for-success%2F)
 
 [More](#)
 

@@ -42,15 +42,15 @@ Sometimes tiredness and lethargy are caused by a lack of good food. Maybe you’
 
 If you are chronically tired then you should consider consulting your doctor. But if it’s just a case of a little lethargy and lack of motivation then hopefully some of these tips will help you get your energy back and get going in life. Best of luck and let me know how you get on!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fdont-want-to-do-anything-anymore%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdont-want-to-do-anything-anymore%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/dont-want-to-do-anything-anymore/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhow-to-regain-motivation-PIN.jpg&description=Don%27t+want+to+do+anything+anymore%3F+These+tips+will+help+you+get+your+energy+and+motivation+back+and+get+you+going+in+life.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/dont-want-to-do-anything-anymore/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhow-to-regain-motivation-PIN.jpg&description=Don%27t+want+to+do+anything+anymore%3F+These+tips+will+help+you+get+your+energy+and+motivation+back+and+get+you+going+in+life.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Regain+Motivation&url=https%3A%2F%2Fseffsaid.com%2Fdont-want-to-do-anything-anymore%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Regain+Motivation&url=https%3A%2F%2Fselfsaid.30tools.com%2Fdont-want-to-do-anything-anymore%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fdont-want-to-do-anything-anymore%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdont-want-to-do-anything-anymore%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fdont-want-to-do-anything-anymore%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fdont-want-to-do-anything-anymore%2F)
 
 [More](#)
 

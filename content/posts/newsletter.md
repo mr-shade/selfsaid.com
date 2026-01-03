@@ -14,15 +14,15 @@ original_url: "https://selfsaid.pages.dev/newsletter/"
 
 You can unsubscribe at any time. We DO NOT share your information with 3rd parties.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fnewsletter%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fnewsletter%2F)
 
 Pin2
 
-[Tweet](https://twitter.com/intent/tweet?text=&url=https%3A%2F%2Fseffsaid.com%2Fnewsletter%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=&url=https%3A%2F%2Fselfsaid.30tools.com%2Fnewsletter%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fnewsletter%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fnewsletter%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fnewsletter%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fnewsletter%2F)
 
 [More](#)
 

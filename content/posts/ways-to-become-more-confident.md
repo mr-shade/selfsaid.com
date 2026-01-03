@@ -58,15 +58,15 @@ Stress and anxiety can undermine confidence. Techniques such as deep breathing, 
 
 Confidence is not about never feeling unsure; it’s about moving forward despite those feelings. By consistently applying these strategies, you can cultivate a steady belief in your abilities and tackle any situation with assurance.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fways-to-become-more-confident%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-become-more-confident%2F)
 
-[Pin10](https://pinterest.com/pin/create/button/?url=/ways-to-become-more-confident/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FWays-to-Become-More-Confident-PIN.jpg&description=Discover+simple+yet+powerful+strategies+that+will+help+you+exude+confidence+in+any+situation.+via+%40SeffSaid)
+[Pin10](https://pinterest.com/pin/create/button/?url=/ways-to-become-more-confident/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FWays-to-Become-More-Confident-PIN.jpg&description=Discover+simple+yet+powerful+strategies+that+will+help+you+exude+confidence+in+any+situation.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Ways+To+Become+More+Confident+In+Any+Situation&url=https%3A%2F%2Fseffsaid.com%2Fways-to-become-more-confident%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Ways+To+Become+More+Confident+In+Any+Situation&url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-become-more-confident%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fways-to-become-more-confident%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-become-more-confident%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fways-to-become-more-confident%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-become-more-confident%2F)
 
 [More](#)
 

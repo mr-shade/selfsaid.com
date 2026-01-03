@@ -85,15 +85,15 @@ These pick-me-up quotes are not meant to fix you. They are here to sit beside yo
 
 Take what you need. Let the rest wait. Sometimes a few quiet words can carry you farther than you expect.. You do not need to fix the whole day. Just stay kind to yourself, and let that be enough.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fpick-me-up-quotes-when-feeling-down%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fpick-me-up-quotes-when-feeling-down%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/pick-me-up-quotes-when-feeling-down/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fpick-me-up-quotes-PIN-1.jpg&description=50+gentle+pick-me-up+quotes+by+Seff+Bray+for+when+you%27re+feeling+down.+Calming+reminders+of+strength%2C+rest%2C+and+self-kindness+from+SeffSaid.+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/pick-me-up-quotes-when-feeling-down/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fpick-me-up-quotes-PIN-1.jpg&description=50+gentle+pick-me-up+quotes+by+Seff+Bray+for+when+you%27re+feeling+down.+Calming+reminders+of+strength%2C+rest%2C+and+self-kindness+from+SeffSaid.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Pick+Me+Up+Quotes+For+When+You%27re+Feeling+Down&url=https%3A%2F%2Fseffsaid.com%2Fpick-me-up-quotes-when-feeling-down%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Pick+Me+Up+Quotes+For+When+You%27re+Feeling+Down&url=https%3A%2F%2Fselfsaid.30tools.com%2Fpick-me-up-quotes-when-feeling-down%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fpick-me-up-quotes-when-feeling-down%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpick-me-up-quotes-when-feeling-down%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fpick-me-up-quotes-when-feeling-down%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fpick-me-up-quotes-when-feeling-down%2F)
 
 [More](#)
 

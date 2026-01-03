@@ -87,15 +87,15 @@ Here are 50 self-care quotes to soothe your mind and soul. Read slowly. Pause wh
 
 Let these quotes meet you gently, wherever you are in your day or in your life. Come back to them often. Save the ones that speak to you. You don’t need to rush into action. Sometimes, reading a kind word is the self-care you need.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fself-care-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/self-care-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSelf-Care-Quotes-PIN.jpg&description=Discover+50+self-care+quotes+to+calm+your+mind+and+nourish+your+soul.+Gentle+reminders+for+slowing+down%2C+healing%2C+and+coming+back+to+yourself.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/self-care-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSelf-Care-Quotes-PIN.jpg&description=Discover+50+self-care+quotes+to+calm+your+mind+and+nourish+your+soul.+Gentle+reminders+for+slowing+down%2C+healing%2C+and+coming+back+to+yourself.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Self-Care+Quotes+to+Soothe+Your+Mind+%26+Soul&url=https%3A%2F%2Fseffsaid.com%2Fself-care-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Self-Care+Quotes+to+Soothe+Your+Mind+%26+Soul&url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fself-care-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fself-care-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-quotes%2F)
 
 [More](#)
 

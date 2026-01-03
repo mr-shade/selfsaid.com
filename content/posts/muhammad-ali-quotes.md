@@ -67,15 +67,15 @@ Muhammad Ali, one of the greatest boxers of all time, was known for his sharp wi
 49.  “Champions are made from something they have deep inside them: a desire, a dream, a vision.” – Muhammad Ali
 50.  “Friendship is the hardest thing in the world to explain. It’s not something you learn in school. But if you haven’t learned the meaning of friendship, you really haven’t learned anything.” – Muhammad Ali
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmuhammad-ali-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmuhammad-ali-quotes%2F)
 
-[Pin38](https://pinterest.com/pin/create/button/?url=/muhammad-ali-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FMuhammad-Ali-Quotes-PIN.jpg&description=Discover+the+unforgettable+quotes+of+Muhammad+Ali+that+continue+to+inspire+millions+of+people+around+the+world.+via+%40SeffSaid)
+[Pin38](https://pinterest.com/pin/create/button/?url=/muhammad-ali-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FMuhammad-Ali-Quotes-PIN.jpg&description=Discover+the+unforgettable+quotes+of+Muhammad+Ali+that+continue+to+inspire+millions+of+people+around+the+world.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Muhammad+Ali%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fmuhammad-ali-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Muhammad+Ali%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmuhammad-ali-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmuhammad-ali-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmuhammad-ali-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmuhammad-ali-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmuhammad-ali-quotes%2F)
 
 [More](#)
 

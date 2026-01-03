@@ -68,15 +68,15 @@ Exploring the mind of J. Robert Oppenheimer offers a glimpse into the thoughts o
 49.  “It is not possible to be a scientist unless you believe that the knowledge of the world, and the power which this gives, is a thing which is of intrinsic value to humanity, and that you are using it to help in the spread of knowledge and are willing to take the consequences.” – J. Robert Oppenheimer
 50.  “Man is not made for defeat.” – J. Robert Oppenheimer
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fj-robert-oppenheimer-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fj-robert-oppenheimer-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/j-robert-oppenheimer-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FJ-Robert-Oppenheimer-Quotes-PIN.jpg&description=50+quotes+by+J.+Robert+Oppenheimer+revealing+his+perspective+on+life%2C+science%2C+and+the+moral+complexities+of+technological+advancement.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/j-robert-oppenheimer-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FJ-Robert-Oppenheimer-Quotes-PIN.jpg&description=50+quotes+by+J.+Robert+Oppenheimer+revealing+his+perspective+on+life%2C+science%2C+and+the+moral+complexities+of+technological+advancement.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+by+J.+Robert+Oppenheimer&url=https%3A%2F%2Fseffsaid.com%2Fj-robert-oppenheimer-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Quotes+by+J.+Robert+Oppenheimer&url=https%3A%2F%2Fselfsaid.30tools.com%2Fj-robert-oppenheimer-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fj-robert-oppenheimer-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fj-robert-oppenheimer-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fj-robert-oppenheimer-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fj-robert-oppenheimer-quotes%2F)
 
 [More](#)
 

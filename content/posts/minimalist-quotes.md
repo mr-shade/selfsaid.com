@@ -83,15 +83,15 @@ Divided into five calming sections, this collection speaks to clarity, stillness
 49.  “Beneath the noise, there’s something steady. Listen to that.” – Seff Bray
 50.  “Simplicity is not a destination. It’s a way of moving through the day.” – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fminimalist-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fminimalist-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/minimalist-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fminimalist-quotes-PIN.jpg&description=Looking+for+a+little+more+calm+in+your+day%3F+This+collection+of+50+minimalist+quotes+is+all+about+living+with+intention%2C+letting+go+of+the+unnecessary%2C+and+finding+peace+in+simplicity.+Divided+into+five+soothing+sections%2C+these+quotes+offer+a+gentle+reminder+that+less+can+be+more+-+not+just+in+your+home%2C+but+in+your+thoughts%2C+routines%2C+and+energy.+Save+this+post+for+when+life+starts+to+feel+too+cluttered.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/minimalist-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fminimalist-quotes-PIN.jpg&description=Looking+for+a+little+more+calm+in+your+day%3F+This+collection+of+50+minimalist+quotes+is+all+about+living+with+intention%2C+letting+go+of+the+unnecessary%2C+and+finding+peace+in+simplicity.+Divided+into+five+soothing+sections%2C+these+quotes+offer+a+gentle+reminder+that+less+can+be+more+-+not+just+in+your+home%2C+but+in+your+thoughts%2C+routines%2C+and+energy.+Save+this+post+for+when+life+starts+to+feel+too+cluttered.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Minimalist+Quotes+That+Inspire+a+Calmer+Life&url=https%3A%2F%2Fseffsaid.com%2Fminimalist-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Minimalist+Quotes+That+Inspire+a+Calmer+Life&url=https%3A%2F%2Fselfsaid.30tools.com%2Fminimalist-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fminimalist-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fminimalist-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fminimalist-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fminimalist-quotes%2F)
 
 [More](#)
 

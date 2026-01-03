@@ -23,15 +23,15 @@ The quote “No guts. No glory. No legend. No story.” is a succinct expression
 
 Overall, the quote conveys the message that to achieve extraordinary success, earn widespread recognition, or have a compelling life story, one must be willing to take bold risks and exhibit courage. It champions the idea that remarkable achievements often require stepping out of one’s comfort zone and facing challenges head-on.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fno-guts-no-glory-no-legend-no-story%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fno-guts-no-glory-no-legend-no-story%2F)
 
-[Pin9](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/no-guts-no-glory-no-legend-no-story/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FNo-guts-No-glory-No-legend-No-story.jpg&description=Delve+into+the+essence+of+courage+and+success+with+our+exploration+of+the+quote+%27No+guts.+No+glory.+No+legend.+No+story%2C%27+via+%40SeffSaid)
+[Pin9](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/no-guts-no-glory-no-legend-no-story/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FNo-guts-No-glory-No-legend-No-story.jpg&description=Delve+into+the+essence+of+courage+and+success+with+our+exploration+of+the+quote+%27No+guts.+No+glory.+No+legend.+No+story%2C%27+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=No+Guts.+No+Glory.+No+Legend.+No+Story.&url=https%3A%2F%2Fseffsaid.com%2Fno-guts-no-glory-no-legend-no-story%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=No+Guts.+No+Glory.+No+Legend.+No+Story.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fno-guts-no-glory-no-legend-no-story%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fno-guts-no-glory-no-legend-no-story%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fno-guts-no-glory-no-legend-no-story%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fno-guts-no-glory-no-legend-no-story%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fno-guts-no-glory-no-legend-no-story%2F)
 
 [More](#)
 

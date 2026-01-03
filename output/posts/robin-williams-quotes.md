@@ -65,15 +65,15 @@ This article brings together 50 of Robin Williams’s most memorable quotes, off
 49.  “Cricket is basically baseball on valium.” – Robin Williams
 50.  “I love kids, but they are a tough audience.” – Robin Williams
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Frobin-williams-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Frobin-williams-quotes%2F)
 
-[Pin6.19K](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/robin-williams-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Frobin-williams-quotes-PIN.jpg&description=Let+Robin+Williams+guide+you+through+life%27s+ups+and+downs+with+his+50+most+unforgettable+quotes.+via+%40SeffSaid)
+[Pin6.19K](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/robin-williams-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Frobin-williams-quotes-PIN.jpg&description=Let+Robin+Williams+guide+you+through+life%27s+ups+and+downs+with+his+50+most+unforgettable+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=The+Wisdom+of+Robin+Williams+in+50+Unforgettable+Quotes&url=https%3A%2F%2Fseffsaid.com%2Frobin-williams-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=The+Wisdom+of+Robin+Williams+in+50+Unforgettable+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Frobin-williams-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Frobin-williams-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Frobin-williams-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Frobin-williams-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Frobin-williams-quotes%2F)
 
 [More](#)
 

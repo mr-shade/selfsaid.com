@@ -86,15 +86,15 @@ And the more you take care of yourself, the more you can offer others something 
 
 – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-a-good-friend%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-a-good-friend%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=/how-to-be-a-good-friend/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fhow-to-be-a-good-friend-PIN-1.jpg&description=You+can+be+a+good+friend+without+burning+out.+This+post+explores+how+to+offer+support%2C+hold+space%2C+and+stay+connected%2C+without+abandoning+yourself+in+the+process.+Real+friendship+is+rooted+in+presence%2C+not+perfection.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=/how-to-be-a-good-friend/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fhow-to-be-a-good-friend-PIN-1.jpg&description=You+can+be+a+good+friend+without+burning+out.+This+post+explores+how+to+offer+support%2C+hold+space%2C+and+stay+connected%2C+without+abandoning+yourself+in+the+process.+Real+friendship+is+rooted+in+presence%2C+not+perfection.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=How+To+Be+A+Good+Friend+Without+Losing+Yourself&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-a-good-friend%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+To+Be+A+Good+Friend+Without+Losing+Yourself&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-a-good-friend%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-a-good-friend%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-a-good-friend%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-be-a-good-friend%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-be-a-good-friend%2F)
 
 [More](#)
 

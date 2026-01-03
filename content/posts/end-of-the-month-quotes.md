@@ -120,15 +120,15 @@ As the month slips away, remember: every ending is a quiet achievement, worthy o
 
 Before you step into a new month, honor the moments, big and small, that shaped this one. – Lisa Congdon
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fend-of-the-month-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fend-of-the-month-quotes%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/end-of-the-month-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FEnd-Of-The-Month-Quotes-PIN.jpg&description=End+of+the+month+quotes+that+offer+a+perfect+opportunity+to+reflect+on+your+progress%2C+celebrate+small+victories%2C+and+embrace+a+fresh+start.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/end-of-the-month-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FEnd-Of-The-Month-Quotes-PIN.jpg&description=End+of+the+month+quotes+that+offer+a+perfect+opportunity+to+reflect+on+your+progress%2C+celebrate+small+victories%2C+and+embrace+a+fresh+start.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=50+Inspiring+%22End+Of+The+Month%22+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fend-of-the-month-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=50+Inspiring+%22End+Of+The+Month%22+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fend-of-the-month-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fend-of-the-month-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fend-of-the-month-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fend-of-the-month-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fend-of-the-month-quotes%2F)
 
 [More](#)
 

@@ -81,15 +81,15 @@ Music has a unique way of touching your heart and bringing people together acros
 *   “Music is a higher revelation than philosophy.” — Ludwig van Beethoven
 *   “Music gives a soul to the universe, wings to the mind, flight to the imagination, and life to everything.” — Plato
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmusic-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmusic-quotes%2F)
 
-[Pin17](https://pinterest.com/pin/create/button/?url=/music-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmusic-quotes-PIN.jpg&description=A+compilation+of+60+music+quotes+that+celebrate+it%27s+universal+power+to+heal%2C+connect%2C+and+uplift+the+human+spirit.+via+%40SeffSaid)
+[Pin17](https://pinterest.com/pin/create/button/?url=/music-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmusic-quotes-PIN.jpg&description=A+compilation+of+60+music+quotes+that+celebrate+it%27s+universal+power+to+heal%2C+connect%2C+and+uplift+the+human+spirit.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Inspiring+Quotes+About+Music&url=https%3A%2F%2Fseffsaid.com%2Fmusic-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Inspiring+Quotes+About+Music&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmusic-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmusic-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmusic-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmusic-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmusic-quotes%2F)
 
 [More](#)
 

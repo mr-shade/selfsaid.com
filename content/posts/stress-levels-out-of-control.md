@@ -64,15 +64,15 @@ If several of these questions feel familiar, it may be a sign that stress is aff
 
 Remember, you do not need to manage stress alone. Talking to a trusted friend, a doctor, or a counsellor can help lighten the load. Most importantly, be kind to yourself. Stress may be part of life, but so is calm, and calm is always worth making space for.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fstress-levels-out-of-control%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-levels-out-of-control%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/stress-levels-out-of-control/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FStress-Levels-PIN.jpg&description=Before+stress+takes+a+serious+toll+on+your+mind+and+body%2C+these+ten+questions+will+tell+you+if+your+stress+levels+are+getting+out+of+control.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/stress-levels-out-of-control/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FStress-Levels-PIN.jpg&description=Before+stress+takes+a+serious+toll+on+your+mind+and+body%2C+these+ten+questions+will+tell+you+if+your+stress+levels+are+getting+out+of+control.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Determine+If+Your+Stress+Levels+Are+Out+Of+Control&url=https%3A%2F%2Fseffsaid.com%2Fstress-levels-out-of-control%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Questions+To+Determine+If+Your+Stress+Levels+Are+Out+Of+Control&url=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-levels-out-of-control%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fstress-levels-out-of-control%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-levels-out-of-control%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fstress-levels-out-of-control%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-levels-out-of-control%2F)
 
 [More](#)
 

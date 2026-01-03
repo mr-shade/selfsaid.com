@@ -54,15 +54,15 @@ Take time to reflect on what you hold most important, whether it’s family, cre
 
 By focusing on these eight pillars, you can nurture a life that feels balanced and fulfilling. True happiness arises not from chasing fleeting pleasures but from consistently building a foundation of purpose, connection, and gratitude. Each day offers an opportunity to enhance your well-being by incorporating practices that reflect what truly matters most.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Funlock-the-secrets-to-true-happiness%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Funlock-the-secrets-to-true-happiness%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/unlock-the-secrets-to-true-happiness/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FSecrets-To-True-Happiness-PIN.jpg&description=Learn+how+to+cultivate+a+life+filled+with+purpose%2C+connection%2C+and+true+happiness+through+8+simple+yet+powerful+practices.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/unlock-the-secrets-to-true-happiness/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FSecrets-To-True-Happiness-PIN.jpg&description=Learn+how+to+cultivate+a+life+filled+with+purpose%2C+connection%2C+and+true+happiness+through+8+simple+yet+powerful+practices.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Unlock+The+Secrets+To+True+Happiness&url=https%3A%2F%2Fseffsaid.com%2Funlock-the-secrets-to-true-happiness%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Unlock+The+Secrets+To+True+Happiness&url=https%3A%2F%2Fselfsaid.30tools.com%2Funlock-the-secrets-to-true-happiness%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Funlock-the-secrets-to-true-happiness%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Funlock-the-secrets-to-true-happiness%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Funlock-the-secrets-to-true-happiness%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Funlock-the-secrets-to-true-happiness%2F)
 
 [More](#)
 

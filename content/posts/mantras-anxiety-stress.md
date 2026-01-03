@@ -109,15 +109,15 @@ Anxiety and stress may not disappear overnight, but these mantras give you somet
 
 Over time, these phrases become more than words, they become steady reminders that calm is possible, rest is allowed, and peace can be part of your daily life.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fmantras-anxiety-stress%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmantras-anxiety-stress%2F)
 
-[Pin7](https://pinterest.com/pin/create/button/?url=/mantras-anxiety-stress/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fmantras-anxiety-stress-PIN.jpg&description=Ease+anxiety+and+stress+with+20+calming+mantras.+Repeat+these+simple+phrases+anytime+to+quiet+racing+thoughts%2C+steady+your+breath%2C+and+bring+peace+back+into+your+day.+via+%40SeffSaid)
+[Pin7](https://pinterest.com/pin/create/button/?url=/mantras-anxiety-stress/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fmantras-anxiety-stress-PIN.jpg&description=Ease+anxiety+and+stress+with+20+calming+mantras.+Repeat+these+simple+phrases+anytime+to+quiet+racing+thoughts%2C+steady+your+breath%2C+and+bring+peace+back+into+your+day.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=20+Powerful+Mantras+For+Overcoming+Anxiety+And+Stress&url=https%3A%2F%2Fseffsaid.com%2Fmantras-anxiety-stress%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=20+Powerful+Mantras+For+Overcoming+Anxiety+And+Stress&url=https%3A%2F%2Fselfsaid.30tools.com%2Fmantras-anxiety-stress%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fmantras-anxiety-stress%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmantras-anxiety-stress%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fmantras-anxiety-stress%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fmantras-anxiety-stress%2F)
 
 [More](#)
 

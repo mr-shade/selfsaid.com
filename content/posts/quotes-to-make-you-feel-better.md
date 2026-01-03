@@ -60,15 +60,15 @@ So sit back, relax, read these inspirational quotes about life and you’ll be f
 *   “Life is too short to worry about stupid things. Have fun. Fall in love. [Regret nothing](/7-things-youll-never-regret-doing) and don’t let people bring you down.” – Anonymous
 *   “There is nothing wrong with being afraid. It’s not the absence of fear; it’s overcoming it.” – [Emma Watson](/emma-watson-quotes)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-to-make-you-feel-better%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-to-make-you-feel-better%2F)
 
-[Pin6](https://pinterest.com/pin/create/button/?url=/quotes-to-make-you-feel-better/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FQuotes-To-Make-You-Feel-Better-PIN.jpg&description=Discover+35+hand-selected+quotes+written+specifically+to+make+you+feel+better+about+life+and+yourself.+So+sit+back%2C+relax%2C+read+these+inspirational+quotes+about+life%2C+and+you%27ll+be+feeling+better+in+no+time%21+via+%40SeffSaid)
+[Pin6](https://pinterest.com/pin/create/button/?url=/quotes-to-make-you-feel-better/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FQuotes-To-Make-You-Feel-Better-PIN.jpg&description=Discover+35+hand-selected+quotes+written+specifically+to+make+you+feel+better+about+life+and+yourself.+So+sit+back%2C+relax%2C+read+these+inspirational+quotes+about+life%2C+and+you%27ll+be+feeling+better+in+no+time%21+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Quotes+To+Make+You+Feel+Better+About+Life+And+Yourself&url=https%3A%2F%2Fseffsaid.com%2Fquotes-to-make-you-feel-better%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Quotes+To+Make+You+Feel+Better+About+Life+And+Yourself&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-to-make-you-feel-better%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-to-make-you-feel-better%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-to-make-you-feel-better%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-to-make-you-feel-better%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-to-make-you-feel-better%2F)
 
 [More](#)
 

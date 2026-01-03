@@ -121,15 +121,15 @@ Benefits include reducing stress, lowering blood pressure, burning calories, boo
 
 So next time you are skulking around bored and wondering what to do, don’t switch on the TV or read the news. Just have a read of this article and pick something new to try. There are so many productive things to do when you’re bored that can improve your life and simply make you a better person. Good luck!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fproductive-things-to-do-when-bored%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fproductive-things-to-do-when-bored%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/productive-things-to-do-when-bored/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FProductive-Things-To-Do-When-Bored-PIN.jpg&description=Feeling+Stuck+in+a+Rut%3F+Discover+20+Productive+Ways+to+Transform+Boredom+into+Opportunity%21+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/productive-things-to-do-when-bored/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FProductive-Things-To-Do-When-Bored-PIN.jpg&description=Feeling+Stuck+in+a+Rut%3F+Discover+20+Productive+Ways+to+Transform+Boredom+into+Opportunity%21+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=20+Productive+Things+To+Do+When+Bored&url=https%3A%2F%2Fseffsaid.com%2Fproductive-things-to-do-when-bored%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=20+Productive+Things+To+Do+When+Bored&url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductive-things-to-do-when-bored%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fproductive-things-to-do-when-bored%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductive-things-to-do-when-bored%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fproductive-things-to-do-when-bored%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fproductive-things-to-do-when-bored%2F)
 
 [More](#)
 

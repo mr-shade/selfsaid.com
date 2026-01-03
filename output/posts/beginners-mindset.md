@@ -70,15 +70,15 @@ By adopting a beginner’s mindset, you can learn anything free of preconception
 
 Borrow the easy, carefree beginner’s mindset of a child, and use the tenacity and maturity of an adult.  Blend these together and you will learn quickly and easily and, who knows, you might even enjoy it.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbeginners-mindset%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbeginners-mindset%2F)
 
-[Pin7](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/beginners-mindset/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fbeginners-PIN.webp&description=Discover+how+a+beginner%27s+mindset+can+revolutionize+your+approach+to+challenges+and+opportunities.+via+%40SeffSaid)
+[Pin7](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/beginners-mindset/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fbeginners-PIN.webp&description=Discover+how+a+beginner%27s+mindset+can+revolutionize+your+approach+to+challenges+and+opportunities.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=7+Ways+To+Cultivate+A+Beginner%27s+Mindset&url=https%3A%2F%2Fseffsaid.com%2Fbeginners-mindset%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=7+Ways+To+Cultivate+A+Beginner%27s+Mindset&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeginners-mindset%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbeginners-mindset%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeginners-mindset%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbeginners-mindset%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeginners-mindset%2F)
 
 [More](#)
 

@@ -119,15 +119,15 @@ This collection of Beatles quotes goes beyond their lyrics to explore the though
 99.  “In the end, we will remember not the words of our enemies, but the silence of our friends.” – Martin Luther King Jr. (influenced The Beatles’ message of peace)
 100.  “I don’t believe in yesterday, I believe in today.” – Paul McCartney
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fbeatles-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbeatles-quotes%2F)
 
-[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fseffsaid.com%2Fbeatles-quotes%2F)
+[Pin](https://pinterest.com/pin/create/button/?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeatles-quotes%2F)
 
-[Tweet](https://twitter.com/intent/tweet?text=100+Famous+Quotes+From+The+Beatles&url=https%3A%2F%2Fseffsaid.com%2Fbeatles-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=100+Famous+Quotes+From+The+Beatles&url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeatles-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fbeatles-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeatles-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fbeatles-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fbeatles-quotes%2F)
 
 [More](#)
 

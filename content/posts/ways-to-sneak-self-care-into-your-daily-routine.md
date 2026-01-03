@@ -58,15 +58,15 @@ Physical activity doesn’t have to mean intense workouts. Instead, find ways to
 
 By weaving these simple practices into your daily routine, you can build a foundation of self-care that fits seamlessly into your life. Small changes add up over time, supporting your well-being without requiring dramatic shifts. These easy ideas can help you maintain balance and recharge, even on the busiest days.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fways-to-sneak-self-care-into-your-daily-routine%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-sneak-self-care-into-your-daily-routine%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/ways-to-sneak-self-care-into-your-daily-routine/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fself-care-daily-routine-PIN.jpg&description=Transform+ordinary+moments+into+opportunities+for+self-care+that+will+leave+you+refreshed+and+energized.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/ways-to-sneak-self-care-into-your-daily-routine/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fself-care-daily-routine-PIN.jpg&description=Transform+ordinary+moments+into+opportunities+for+self-care+that+will+leave+you+refreshed+and+energized.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=10+Genius+Ways+To+Sneak+Self-Care+Into+Your+Daily+Routine&url=https%3A%2F%2Fseffsaid.com%2Fways-to-sneak-self-care-into-your-daily-routine%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=10+Genius+Ways+To+Sneak+Self-Care+Into+Your+Daily+Routine&url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-sneak-self-care-into-your-daily-routine%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fways-to-sneak-self-care-into-your-daily-routine%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-sneak-self-care-into-your-daily-routine%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fways-to-sneak-self-care-into-your-daily-routine%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fways-to-sneak-self-care-into-your-daily-routine%2F)
 
 [More](#)
 

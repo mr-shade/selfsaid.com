@@ -97,15 +97,15 @@ These 60 quotes are steady reminders that a calmer day often begins with a slowe
 59.  “Sleep is not the end of effort. It’s part of it.” – Seff Bray
 60.  “Let stillness be your closing thought.” – Seff Bray
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fslow-down-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fslow-down-quotes%2F)
 
-[Pin3](https://pinterest.com/pin/create/button/?url=/slow-down-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Fslow-down-quotes-PIN.jpg&description=Feeling+rushed+or+overwhelmed%3F+These+60+slow+down+quotes+offer+gentle+reminders+to+pause%2C+breathe%2C+and+return+to+a+calmer+pace.+Divided+into+six+soothing+sections%2C+this+quote+collection+will+help+you+let+go+of+hurry+and+reconnect+with+what+matters+most+-+peace%2C+presence%2C+and+your+own+rhythm.+Save+this+post+for+days+when+life+feels+too+fast.+via+%40SeffSaid)
+[Pin3](https://pinterest.com/pin/create/button/?url=/slow-down-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Fslow-down-quotes-PIN.jpg&description=Feeling+rushed+or+overwhelmed%3F+These+60+slow+down+quotes+offer+gentle+reminders+to+pause%2C+breathe%2C+and+return+to+a+calmer+pace.+Divided+into+six+soothing+sections%2C+this+quote+collection+will+help+you+let+go+of+hurry+and+reconnect+with+what+matters+most+-+peace%2C+presence%2C+and+your+own+rhythm.+Save+this+post+for+days+when+life+feels+too+fast.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=60+Slow+Down+Quotes+for+a+Calmer+Day&url=https%3A%2F%2Fseffsaid.com%2Fslow-down-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=60+Slow+Down+Quotes+for+a+Calmer+Day&url=https%3A%2F%2Fselfsaid.30tools.com%2Fslow-down-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fslow-down-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fslow-down-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fslow-down-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fslow-down-quotes%2F)
 
 [More](#)
 

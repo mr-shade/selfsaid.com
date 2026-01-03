@@ -70,15 +70,15 @@ If your work area or desk faces an external window and you are finding yourself 
 
 Although eliminating all distractions at work is probably not possible, following these 7 simple strategies will go a long way to helping you avoid the most common everyday disturbances.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fhow-to-eliminate-distractions-at-work%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-eliminate-distractions-at-work%2F)
 
 Pin3
 
-[Tweet](https://twitter.com/intent/tweet?text=How+to+eliminate+distractions+at+work%3F+Click+through+to+the+article+and+discover+7+simple+yet+powerful+strategies+that+will+help+you+eliminate+the+most+common+distractions+from+the+workplace.&url=https%3A%2F%2Fseffsaid.com%2Fhow-to-eliminate-distractions-at-work%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=How+to+eliminate+distractions+at+work%3F+Click+through+to+the+article+and+discover+7+simple+yet+powerful+strategies+that+will+help+you+eliminate+the+most+common+distractions+from+the+workplace.&url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-eliminate-distractions-at-work%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-eliminate-distractions-at-work%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-eliminate-distractions-at-work%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fhow-to-eliminate-distractions-at-work%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-eliminate-distractions-at-work%2F)
 
 [More](#)
 

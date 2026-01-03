@@ -87,15 +87,15 @@ In today’s fast-paced, digitally-driven world, the concept of ‘unplugging’
 69.  “Within you, there is a stillness and a sanctuary to which you can retreat at any time and be yourself.” – Hermann Hesse
 70.  Nowhere can man find a quieter or more untroubled retreat than in his own soul.” – [Marcus Aurelius](/marcus-aurelius-quotes)
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fquotes-about-unplugging%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-unplugging%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=/quotes-about-unplugging/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2Funplugging-quotes-PIN.jpg&description=Discover+the+benefits+of+a+digital+detox+where+insights+from+philosophers%2C+spiritual+leaders+and+others+enlighten+you+on+the+virtues+of+unplugging.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=/quotes-about-unplugging/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2Funplugging-quotes-PIN.jpg&description=Discover+the+benefits+of+a+digital+detox+where+insights+from+philosophers%2C+spiritual+leaders+and+others+enlighten+you+on+the+virtues+of+unplugging.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=70+Quotes+About+Unplugging+And+Embracing+A+Digital+Detox&url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-unplugging%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=70+Quotes+About+Unplugging+And+Embracing+A+Digital+Detox&url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-unplugging%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-unplugging%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-unplugging%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fquotes-about-unplugging%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-about-unplugging%2F)
 
 [More](#)
 

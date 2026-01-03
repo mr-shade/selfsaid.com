@@ -217,15 +217,15 @@ Inspirational sports quotes hold a unique and powerful position. They are not me
 
 If you like sports quotes, you might like to check out this collection of [Inky Johnson quotes](https://seffsaid.com/inky-johnson-quotes/). Powerful lessons on resilience, hard work, and personal growth from a [motivational quotes](https://seffsaid.com/30-motivational-quotes-you-must-know/) sports icon. Get inspired!
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Finspirational-sports-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-sports-quotes%2F)
 
-[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/inspirational-sports-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FInspirational-Sports-Quotes-PIN.jpg&description=Discover+200+Inspirational+Sports+Quotes+and+unleash+your+inner+champion+while+soaking+in+the+timeless+wisdom+from+legendary+sports+heroes.+via+%40SeffSaid)
+[Pin2](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/inspirational-sports-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FInspirational-Sports-Quotes-PIN.jpg&description=Discover+200+Inspirational+Sports+Quotes+and+unleash+your+inner+champion+while+soaking+in+the+timeless+wisdom+from+legendary+sports+heroes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Inspirational+Sports+Quotes%3A+Goals%2C+Grit%2C+and+Greatness&url=https%3A%2F%2Fseffsaid.com%2Finspirational-sports-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Inspirational+Sports+Quotes%3A+Goals%2C+Grit%2C+and+Greatness&url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-sports-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Finspirational-sports-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-sports-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Finspirational-sports-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-sports-quotes%2F)
 
 [More](#)
 

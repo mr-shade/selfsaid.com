@@ -65,15 +65,15 @@ Nicki Minaj has shared many powerful and memorable quotes over the years, making
 49.  “You have to be able to accept failure to get better.” — Nicki Minaj
 50.  “Your imperfections are what make you beautiful.” — Nicki Minaj
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Fnicki-minaj-quotes%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fnicki-minaj-quotes%2F)
 
-[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/nicki-minaj-quotes/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FNicki-Minaj-Quotes-PIN.jpg&description=Experience+the+brilliance+of+Nicki+Minaj+with+this+compilation+of+her+50+best+quotes.+via+%40SeffSaid)
+[Pin4](https://pinterest.com/pin/create/button/?url=https://seffsaid.com/nicki-minaj-quotes/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FNicki-Minaj-Quotes-PIN.jpg&description=Experience+the+brilliance+of+Nicki+Minaj+with+this+compilation+of+her+50+best+quotes.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Nicki+Minaj%27s+Best+Quotes&url=https%3A%2F%2Fseffsaid.com%2Fnicki-minaj-quotes%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Nicki+Minaj%27s+Best+Quotes&url=https%3A%2F%2Fselfsaid.30tools.com%2Fnicki-minaj-quotes%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Fnicki-minaj-quotes%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Fnicki-minaj-quotes%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Fnicki-minaj-quotes%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Fnicki-minaj-quotes%2F)
 
 [More](#)
 

@@ -24,15 +24,15 @@ The quote “Always keep a positive mindset” is a piece of advice emphasizing 
 
 The underlying message of the quote is that consistently nurturing a positive attitude can significantly influence one’s overall experience of life. It can affect how one handles challenges, interacts with others, and perceives events. A positive mindset is often linked with increased happiness, better stress management, and even improved health outcomes.
 
-[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fseffsaid.com%2Falways-keep-a-positive-mindset%2F)
+[Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Falways-keep-a-positive-mindset%2F)
 
-[Pin1](https://pinterest.com/pin/create/button/?url=/always-keep-a-positive-mindset/&media=https%3A%2F%2Fseffsaid.com%2Fwp-content%2Fuploads%2FAlways-keep-a-positive-mindset.jpg&description=Discover+the+transformative+power+of+optimism+with+our+page+dedicated+to+the+quote+-+Always+keep+a+positive+mindset.+via+%40SeffSaid)
+[Pin1](https://pinterest.com/pin/create/button/?url=/always-keep-a-positive-mindset/&media=https%3A%2F%2Fselfsaid.30tools.com%2Fwp-content%2Fuploads%2FAlways-keep-a-positive-mindset.jpg&description=Discover+the+transformative+power+of+optimism+with+our+page+dedicated+to+the+quote+-+Always+keep+a+positive+mindset.+via+%40SeffSaid)
 
-[Tweet](https://twitter.com/intent/tweet?text=Always+Keep+A+Positive+Mindset&url=https%3A%2F%2Fseffsaid.com%2Falways-keep-a-positive-mindset%2F&via=SeffSaid)
+[Tweet](https://twitter.com/intent/tweet?text=Always+Keep+A+Positive+Mindset&url=https%3A%2F%2Fselfsaid.30tools.com%2Falways-keep-a-positive-mindset%2F&via=SeffSaid)
 
-[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fseffsaid.com%2Falways-keep-a-positive-mindset%2F)
+[Reddit](https://www.reddit.com/submit?url=https%3A%2F%2Fselfsaid.30tools.com%2Falways-keep-a-positive-mindset%2F)
 
-[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fseffsaid.com%2Falways-keep-a-positive-mindset%2F)
+[Share](https://www.linkedin.com/cws/share?url=https%3A%2F%2Fselfsaid.30tools.com%2Falways-keep-a-positive-mindset%2F)
 
 [More](#)
 
