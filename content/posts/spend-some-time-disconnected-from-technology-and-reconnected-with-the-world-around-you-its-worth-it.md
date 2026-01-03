@@ -1,11 +1,18 @@
 ---
-title: "Spend Some Time Disconnected From Technology And Reconnected With The World Around You. It’s Worth It."
-date: "2023-09-29T12:10:00+02:00"
-author: "Seff Bray"
-description: "Discover the balance between digital and real-world experiences with our insightful analysis of the quote, 'Spend some time disconnected from technology and reconnected with the world around you. It’s worth it.'"
+title: >-
+  Spend Some Time Disconnected From Technology And Reconnected With The World
+  Around You. It’s Worth It.
+date: '2023-09-29T12:10:00+02:00'
+author: Seff Bray
+description: >-
+  Discover the balance between digital and real-world experiences with our
+  insightful analysis of the quote, 'Spend some time disconnected from
+  technology and reconnected with the world around you. It’s worth it.'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-Its-worth-it-1.jpg
+original_url: >-
+  https://selfsaid.pages.dev/spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it/
 ---
 
 ![Spend Some Time Disconnected From Technology And Reconnected With The World Around You. It’s Worth It.](https://seffsaid.com/wp-content/uploads/Spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-Its-worth-it-1.jpg)

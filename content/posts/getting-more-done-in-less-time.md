@@ -1,11 +1,13 @@
 ---
-title: "Getting More Done in Less Time (By Doing Less on Purpose)"
-date: "2025-03-18T16:15:19+01:00"
-author: "Seff Bray"
-description: "Feel like you’re always behind, no matter how much you do? This gentle guide shares 5 ways to get more done in less time by doing less."
+title: Getting More Done in Less Time (By Doing Less on Purpose)
+date: '2025-03-18T16:15:19+01:00'
+author: Seff Bray
+description: >-
+  Feel like you’re always behind, no matter how much you do? This gentle guide
+  shares 5 ways to get more done in less time by doing less.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/getting-more-done-in-less-time/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/more-done.webp'
+original_url: 'https://selfsaid.pages.dev/getting-more-done-in-less-time/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/more-done.webp)

@@ -1,11 +1,13 @@
 ---
-title: "How To Stay Strong When Everything Goes Wrong"
-date: "2024-12-12T16:24:03+01:00"
-author: "Seff Bray"
-description: "Tough times don’t last, but strong people do - see how you can become one of them"
+title: How To Stay Strong When Everything Goes Wrong
+date: '2024-12-12T16:24:03+01:00'
+author: Seff Bray
+description: >-
+  Tough times don’t last, but strong people do - see how you can become one of
+  them
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-stay-strong/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Stay-Strong.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-stay-strong/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Stay-Strong.webp)

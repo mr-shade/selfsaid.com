@@ -1,11 +1,13 @@
 ---
-title: "8 Benefits Of Always Telling The Truth"
-date: "2024-08-26T15:38:00+02:00"
-author: "Seff Bray"
-description: "8 remarkable benefits of always telling the truth and why being truthful far outweighs any short term advantages of lying."
+title: 8 Benefits Of Always Telling The Truth
+date: '2024-08-26T15:38:00+02:00'
+author: Seff Bray
+description: >-
+  8 remarkable benefits of always telling the truth and why being truthful far
+  outweighs any short term advantages of lying.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/8-remarkable-benefits-of-always-telling-the-truth/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/benefits-of-telling-the-truth.webp'
+original_url: 'https://selfsaid.pages.dev/8-remarkable-benefits-of-always-telling-the-truth/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/benefits-of-telling-the-truth.webp)

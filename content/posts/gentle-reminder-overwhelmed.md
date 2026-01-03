@@ -1,11 +1,13 @@
 ---
-title: "A Gentle Reminder for When You’re Overwhelmed"
-date: "2025-05-04T19:49:22+02:00"
-author: "Seff Bray"
-description: "A calming reminder for when life feels too heavy. Slow down, breathe, and return to yourself with small, steady acts of care."
+title: A Gentle Reminder for When You’re Overwhelmed
+date: '2025-05-04T19:49:22+02:00'
+author: Seff Bray
+description: >-
+  A calming reminder for when life feels too heavy. Slow down, breathe, and
+  return to yourself with small, steady acts of care.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/gentle-reminder-overwhelmed/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/gentle-reminder-overwhelmed.webp'
+original_url: 'https://selfsaid.pages.dev/gentle-reminder-overwhelmed/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/gentle-reminder-overwhelmed.webp)

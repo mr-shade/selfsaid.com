@@ -1,11 +1,13 @@
 ---
-title: "Muhammad Ali’s Best Quotes"
-date: "2024-06-14T12:47:18+02:00"
-author: "Seff Bray"
-description: "Discover the unforgettable quotes of Muhammad Ali that continue to inspire millions of people around the world."
+title: Muhammad Ali’s Best Quotes
+date: '2024-06-14T12:47:18+02:00'
+author: Seff Bray
+description: >-
+  Discover the unforgettable quotes of Muhammad Ali that continue to inspire
+  millions of people around the world.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/muhammad-ali-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Muhammad-Ali-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/muhammad-ali-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Muhammad-Ali-Quotes.webp)

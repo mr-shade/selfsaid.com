@@ -1,11 +1,11 @@
 ---
-title: "Gracie Abrams Best Quotes"
-date: "2024-10-23T12:12:51+02:00"
-author: "Seff Bray"
-description: "A collection of Gracie Abrams quotes on music, creativity, life, and love."
+title: Gracie Abrams Best Quotes
+date: '2024-10-23T12:12:51+02:00'
+author: Seff Bray
+description: 'A collection of Gracie Abrams quotes on music, creativity, life, and love.'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/gracie-abrams-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Gracie-Abrams-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/gracie-abrams-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Gracie-Abrams-Quotes.webp)

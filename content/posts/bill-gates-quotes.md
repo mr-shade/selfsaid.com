@@ -1,11 +1,13 @@
 ---
-title: "Bill Gates’s 50 Best Quotes"
-date: "2024-04-22T17:06:06+02:00"
-author: "Seff Bray"
-description: "Bill Gates’s 50 best quotes that offer a glimpse into the mind of one of the world’s most successful entrepreneurs and philanthropists."
+title: Bill Gates’s 50 Best Quotes
+date: '2024-04-22T17:06:06+02:00'
+author: Seff Bray
+description: >-
+  Bill Gates’s 50 best quotes that offer a glimpse into the mind of one of the
+  world’s most successful entrepreneurs and philanthropists.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/bill-gates-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Bill-Gates-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/bill-gates-quotes/'
 ---
 
 ![Bill Gates thinking up one of his inspirational quotes.](https://seffsaid.com/wp-content/uploads/Bill-Gates-Quotes.webp)

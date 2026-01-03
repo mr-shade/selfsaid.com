@@ -1,11 +1,14 @@
 ---
-title: "Emotional Self-Care: 10 Simple Ways to Start"
-date: "2025-04-13T12:59:38+02:00"
-author: "Seff Bray"
-description: "Learn how to begin emotional self-care. These gentle steps will help you reconnect with your feelings, set boundaries, and support your emotional well-being."
+title: 'Emotional Self-Care: 10 Simple Ways to Start'
+date: '2025-04-13T12:59:38+02:00'
+author: Seff Bray
+description: >-
+  Learn how to begin emotional self-care. These gentle steps will help you
+  reconnect with your feelings, set boundaries, and support your emotional
+  well-being.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/emotional-self-care-10-simple-ways-to-start/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/emotional-self-care-start.webp'
+original_url: 'https://selfsaid.pages.dev/emotional-self-care-10-simple-ways-to-start/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/emotional-self-care-start.webp)

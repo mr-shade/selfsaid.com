@@ -1,11 +1,11 @@
 ---
-title: "8 Simple Tips for Becoming the Most Productive Person You Know"
-date: "2024-04-17T12:43:04+02:00"
-author: "Seff Bray"
-description: "Become the most productive person you know with these 8 simple tips."
+title: 8 Simple Tips for Becoming the Most Productive Person You Know
+date: '2024-04-17T12:43:04+02:00'
+author: Seff Bray
+description: Become the most productive person you know with these 8 simple tips.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-be-more-productive/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-be-more-productive.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-be-more-productive/'
 ---
 
 ![Man sitting at his office desk working productively](https://seffsaid.com/wp-content/uploads/how-to-be-more-productive.webp)

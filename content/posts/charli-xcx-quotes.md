@@ -1,11 +1,13 @@
 ---
-title: "Charli XCX’s Best Quotes"
-date: "2024-11-05T17:41:54+01:00"
-author: "Seff Bray"
-description: "Discover Charli XCX's thoughts on creativity, individuality, and pop culture that redefine what it means to be a modern artist."
+title: Charli XCX’s Best Quotes
+date: '2024-11-05T17:41:54+01:00'
+author: Seff Bray
+description: >-
+  Discover Charli XCX's thoughts on creativity, individuality, and pop culture
+  that redefine what it means to be a modern artist.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/charli-xcx-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Charli-XCX-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/charli-xcx-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Charli-XCX-Quotes.webp)

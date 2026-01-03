@@ -1,11 +1,13 @@
 ---
-title: "How To Enter A Flow State Of Mind"
-date: "2024-02-05T12:30:42+01:00"
-author: "Seff Bray"
-description: "Learn how to achieve a flow state of mind, the incredible mental state that emerges when one is fully absorbed in an activity."
+title: How To Enter A Flow State Of Mind
+date: '2024-02-05T12:30:42+01:00'
+author: Seff Bray
+description: >-
+  Learn how to achieve a flow state of mind, the incredible mental state that
+  emerges when one is fully absorbed in an activity.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/flow-state-of-mind/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/flow-state-of-mind.webp'
+original_url: 'https://selfsaid.pages.dev/flow-state-of-mind/'
 ---
 
 ![Woman running while in a flow state of mind.](https://seffsaid.com/wp-content/uploads/flow-state-of-mind.webp)

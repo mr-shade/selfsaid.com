@@ -1,11 +1,13 @@
 ---
-title: "4 Ways to Beat the Monday Blues"
-date: "2025-08-25T11:48:49+02:00"
-author: "Seff Bray"
-description: "Struggling with the Monday blues? Discover 4 simple ways to prepare, reset your mindset, and start the week feeling calmer and more in control."
+title: 4 Ways to Beat the Monday Blues
+date: '2025-08-25T11:48:49+02:00'
+author: Seff Bray
+description: >-
+  Struggling with the Monday blues? Discover 4 simple ways to prepare, reset
+  your mindset, and start the week feeling calmer and more in control.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/monday-blues/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/monday-blues.jpg'
+original_url: 'https://selfsaid.pages.dev/monday-blues/'
 ---
 
 ![4 Ways to Beat the Monday Blues](https://seffsaid.com/wp-content/uploads/monday-blues.jpg)

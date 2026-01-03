@@ -1,11 +1,13 @@
 ---
-title: "26 Positive Affirmations For Anxiety"
-date: "2024-05-23T17:46:12+02:00"
-author: "Seff Bray"
-description: "26 positive affirmations for anxiety that you can use at any time to convert your negative thoughts into positive ones."
+title: 26 Positive Affirmations For Anxiety
+date: '2024-05-23T17:46:12+02:00'
+author: Seff Bray
+description: >-
+  26 positive affirmations for anxiety that you can use at any time to convert
+  your negative thoughts into positive ones.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/26-positive-affirmations-for-anxiety/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Positive-Affirmations-For-Anxiety.webp'
+original_url: 'https://selfsaid.pages.dev/26-positive-affirmations-for-anxiety/'
 ---
 
 ![Anxious man using affirmations to control his anxiety](https://seffsaid.com/wp-content/uploads/Positive-Affirmations-For-Anxiety.webp)

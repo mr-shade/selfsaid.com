@@ -1,11 +1,13 @@
 ---
-title: "12 Personal Development Tips For A Better You And A Better Life"
-date: "2024-03-09T15:55:46+01:00"
-author: "Seff Bray"
-description: "12 personal development tips that you can start implementing today to build a better you and a better life."
+title: 12 Personal Development Tips For A Better You And A Better Life
+date: '2024-03-09T15:55:46+01:00'
+author: Seff Bray
+description: >-
+  12 personal development tips that you can start implementing today to build a
+  better you and a better life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/12-personal-development-tips/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/personal-development-tips.webp'
+original_url: 'https://selfsaid.pages.dev/12-personal-development-tips/'
 ---
 
 ![Woman with outstretched arms facing out to sea on a beautiful sunny day](https://seffsaid.com/wp-content/uploads/personal-development-tips.webp)

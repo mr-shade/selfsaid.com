@@ -1,11 +1,13 @@
 ---
-title: "Ariana Grande’s Best Quotes"
-date: "2024-05-30T14:59:10+02:00"
-author: "Seff Bray"
-description: "Uncover the wisdom of Ariana Grande's in this collection of her very best quotes."
+title: Ariana Grande’s Best Quotes
+date: '2024-05-30T14:59:10+02:00'
+author: Seff Bray
+description: >-
+  Uncover the wisdom of Ariana Grande's in this collection of her very best
+  quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ariana-grande-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Ariana-Grande-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/ariana-grande-quotes/'
 ---
 
 ![Ariana Grande live on stage](https://seffsaid.com/wp-content/uploads/Ariana-Grande-Quotes.webp)

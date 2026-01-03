@@ -1,11 +1,13 @@
 ---
-title: "12 Ways To Feel Refreshed In Just Ten Minutes"
-date: "2025-01-07T13:08:08+01:00"
-author: "Seff Bray"
-description: "Learn how to feel more awake and focused with these easy ten-minute refresh tricks."
+title: 12 Ways To Feel Refreshed In Just Ten Minutes
+date: '2025-01-07T13:08:08+01:00'
+author: Seff Bray
+description: >-
+  Learn how to feel more awake and focused with these easy ten-minute refresh
+  tricks.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ways-to-feel-refreshed/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Ways-to-Feel-Refreshed.webp'
+original_url: 'https://selfsaid.pages.dev/ways-to-feel-refreshed/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Ways-to-Feel-Refreshed.webp)

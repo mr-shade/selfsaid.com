@@ -1,11 +1,13 @@
 ---
-title: "50 Billie Eilish Quotes on Life, Love and Music"
-date: "2024-05-05T16:57:22+02:00"
-author: "Seff Bray"
-description: "Explore the mind of a music icon through this collection of 50 Billie Eilish's quotes on life, love and music."
+title: '50 Billie Eilish Quotes on Life, Love and Music'
+date: '2024-05-05T16:57:22+02:00'
+author: Seff Bray
+description: >-
+  Explore the mind of a music icon through this collection of 50 Billie Eilish's
+  quotes on life, love and music.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/billie-eilish-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Billie-Eilish-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/billie-eilish-quotes/'
 ---
 
 ![Billie Eilish live on stage](https://seffsaid.com/wp-content/uploads/Billie-Eilish-Quotes.webp)

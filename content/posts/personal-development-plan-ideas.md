@@ -1,11 +1,13 @@
 ---
-title: "18 Personal Development Plan Ideas To Transform Your Life"
-date: "2024-08-30T16:01:32+02:00"
-author: "Seff Bray"
-description: "Discover 18 personal development plan ideas to help you transform your life and achieve your goals."
+title: 18 Personal Development Plan Ideas To Transform Your Life
+date: '2024-08-30T16:01:32+02:00'
+author: Seff Bray
+description: >-
+  Discover 18 personal development plan ideas to help you transform your life
+  and achieve your goals.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/personal-development-plan-ideas/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Personal-Development-Plan-Ideas.webp'
+original_url: 'https://selfsaid.pages.dev/personal-development-plan-ideas/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Personal-Development-Plan-Ideas.webp)

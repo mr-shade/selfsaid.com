@@ -1,11 +1,13 @@
 ---
-title: "50 Best No Regrets Quotes"
-date: "2024-10-01T11:50:12+02:00"
-author: "Seff Bray"
-description: "Discover 50 of the best no regrets quotes that will encourage you to take risks, live fully, and let go of what holds you back."
+title: 50 Best No Regrets Quotes
+date: '2024-10-01T11:50:12+02:00'
+author: Seff Bray
+description: >-
+  Discover 50 of the best no regrets quotes that will encourage you to take
+  risks, live fully, and let go of what holds you back.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/no-regrets-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/no-regrets-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/no-regrets-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/no-regrets-quotes.webp)

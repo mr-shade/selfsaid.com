@@ -1,11 +1,13 @@
 ---
-title: "Cristiano Ronaldo Quotes"
-date: "2024-08-26T15:15:06+02:00"
-author: "Seff Bray"
-description: "Discover the power of motivation and self-belief with a collection of inspiring quotes from the footballer Cristiano Ronaldo."
+title: Cristiano Ronaldo Quotes
+date: '2024-08-26T15:15:06+02:00'
+author: Seff Bray
+description: >-
+  Discover the power of motivation and self-belief with a collection of
+  inspiring quotes from the footballer Cristiano Ronaldo.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/cristiano-ronaldo-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Cristiano-Ronaldo-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/cristiano-ronaldo-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Cristiano-Ronaldo-Quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Things You Need to Remind Yourself of When You Wake Up"
-date: "2025-04-30T12:32:49+02:00"
-author: "Seff Bray"
-description: "Start your morning with gentle reminders that bring calm and clarity. Let go of pressure, protect your peace, and begin the day with care and intention."
+title: Things You Need to Remind Yourself of When You Wake Up
+date: '2025-04-30T12:32:49+02:00'
+author: Seff Bray
+description: >-
+  Start your morning with gentle reminders that bring calm and clarity. Let go
+  of pressure, protect your peace, and begin the day with care and intention.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/morning-reminders/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/morning-reminders.webp'
+original_url: 'https://selfsaid.pages.dev/morning-reminders/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/morning-reminders.webp)

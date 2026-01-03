@@ -1,11 +1,13 @@
 ---
-title: "164 Good Morning Quotes To Start Your Day Right"
-date: "2024-01-21T16:46:49+01:00"
-author: "Seff Bray"
-description: "Start your mornings with inspiration! Explore our 164 Good Morning Quotes to kickstart a day filled with positivity."
+title: 164 Good Morning Quotes To Start Your Day Right
+date: '2024-01-21T16:46:49+01:00'
+author: Seff Bray
+description: >-
+  Start your mornings with inspiration! Explore our 164 Good Morning Quotes to
+  kickstart a day filled with positivity.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/inspirational-good-morning-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/good-morning-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/inspirational-good-morning-quotes/'
 ---
 
 ![A beautiful sunrise over a calm sea](https://seffsaid.com/wp-content/uploads/good-morning-quotes.jpg)

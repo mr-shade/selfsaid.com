@@ -1,11 +1,13 @@
 ---
-title: "Mental Health Quotes That Actually Help"
-date: "2025-05-16T12:29:37+02:00"
-author: "Seff Bray"
-description: "A collection of 60 mental health quotes that offer real support when you’re feeling overwhelmed, anxious, or low."
+title: Mental Health Quotes That Actually Help
+date: '2025-05-16T12:29:37+02:00'
+author: Seff Bray
+description: >-
+  A collection of 60 mental health quotes that offer real support when you’re
+  feeling overwhelmed, anxious, or low.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/mental-health-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/mental-health-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/mental-health-quotes/'
 ---
 
 ![Mental Health Quotes That Actually Help](https://seffsaid.com/wp-content/uploads/mental-health-quotes.webp)

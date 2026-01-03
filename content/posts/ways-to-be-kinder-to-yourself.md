@@ -1,11 +1,13 @@
 ---
-title: "9 Simple Ways To Be Kinder To Yourself"
-date: "2025-09-11T12:02:52+02:00"
-author: "Seff Bray"
-description: "9 simple ways to be kinder to yourself. Practical tips to ease self-criticism, set healthy boundaries, and build self-compassion every day."
+title: 9 Simple Ways To Be Kinder To Yourself
+date: '2025-09-11T12:02:52+02:00'
+author: Seff Bray
+description: >-
+  9 simple ways to be kinder to yourself. Practical tips to ease self-criticism,
+  set healthy boundaries, and build self-compassion every day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ways-to-be-kinder-to-yourself/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/kind-to-self.jpg'
+original_url: 'https://selfsaid.pages.dev/ways-to-be-kinder-to-yourself/'
 ---
 
 ![Man sitting on a beautiful beach relaxing.](https://seffsaid.com/wp-content/uploads/kind-to-self.jpg)

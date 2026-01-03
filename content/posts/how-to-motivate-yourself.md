@@ -1,11 +1,11 @@
 ---
-title: "How To Motivate Yourself in 10 Easy Steps"
-date: "2024-05-07T13:00:57+02:00"
-author: "Seff Bray"
-description: "Learn how to effectively motivate yourself in 10 easy and practical steps."
+title: How To Motivate Yourself in 10 Easy Steps
+date: '2024-05-07T13:00:57+02:00'
+author: Seff Bray
+description: Learn how to effectively motivate yourself in 10 easy and practical steps.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-motivate-yourself/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Motivate-Yourself.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-motivate-yourself/'
 ---
 
 ![Motivated man running a race](https://seffsaid.com/wp-content/uploads/How-To-Motivate-Yourself.webp)

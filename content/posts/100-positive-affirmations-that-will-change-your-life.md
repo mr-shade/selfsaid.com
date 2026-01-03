@@ -1,11 +1,14 @@
 ---
-title: "100 Positive Affirmations That Will Change Your Life"
-date: "2024-05-10T14:52:32+02:00"
-author: "Seff Bray"
-description: "Need more positivity in your life? Discover 100 positive affirmations that have the power to change your life forever."
+title: 100 Positive Affirmations That Will Change Your Life
+date: '2024-05-10T14:52:32+02:00'
+author: Seff Bray
+description: >-
+  Need more positivity in your life? Discover 100 positive affirmations that
+  have the power to change your life forever.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/100-positive-affirmations-that-will-change-your-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/positive-affirmations.webp'
+original_url: >-
+  https://selfsaid.pages.dev/100-positive-affirmations-that-will-change-your-life/
 ---
 
 ![Woman reciting positive affirmations.](https://seffsaid.com/wp-content/uploads/positive-affirmations.webp)

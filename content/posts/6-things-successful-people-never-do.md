@@ -1,11 +1,13 @@
 ---
-title: "6 Things Successful People Never Do"
-date: "2024-08-29T15:27:47+02:00"
-author: "Seff Bray"
-description: "Want to be successful? Discover the 6 things that highly successful people never ever do."
+title: 6 Things Successful People Never Do
+date: '2024-08-29T15:27:47+02:00'
+author: Seff Bray
+description: >-
+  Want to be successful? Discover the 6 things that highly successful people
+  never ever do.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/6-things-successful-people-never-do/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Things-Successful-People-Never-Do.webp'
+original_url: 'https://selfsaid.pages.dev/6-things-successful-people-never-do/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Things-Successful-People-Never-Do.webp)

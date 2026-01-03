@@ -1,11 +1,13 @@
 ---
-title: "Dolly Parton’s 50 Best Quotes"
-date: "2024-05-02T14:47:47+02:00"
-author: "Seff Bray"
-description: "Discover the wit and wisdom of Dolly Parton in this collection of her 50 best quotes."
+title: Dolly Parton’s 50 Best Quotes
+date: '2024-05-02T14:47:47+02:00'
+author: Seff Bray
+description: >-
+  Discover the wit and wisdom of Dolly Parton in this collection of her 50 best
+  quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/dolly-parton-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Dolly-Parton-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/dolly-parton-quotes/'
 ---
 
 ![Dolly Parton live in concert](https://seffsaid.com/wp-content/uploads/Dolly-Parton-Quotes.webp)

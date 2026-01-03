@@ -1,11 +1,13 @@
 ---
-title: "The 7 Secrets Of Finding Meaning In The Mundane"
-date: "2024-04-29T15:43:09+02:00"
-author: "Seff Bray"
-description: "Learn how to appreciate your life and see that it is already filled with enormous meaning."
+title: The 7 Secrets Of Finding Meaning In The Mundane
+date: '2024-04-29T15:43:09+02:00'
+author: Seff Bray
+description: >-
+  Learn how to appreciate your life and see that it is already filled with
+  enormous meaning.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/finding-meaning-in-the-mundane/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Finding-Meaning-In-The-Mundane.webp'
+original_url: 'https://selfsaid.pages.dev/finding-meaning-in-the-mundane/'
 ---
 
 ![Man at work bored with his mundane lifestyle](https://seffsaid.com/wp-content/uploads/Finding-Meaning-In-The-Mundane.webp)

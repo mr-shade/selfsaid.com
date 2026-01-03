@@ -1,11 +1,13 @@
 ---
-title: "How To Be Patient With Your Dreams"
-date: "2024-08-27T16:43:14+02:00"
-author: "Seff Bray"
-description: "Learn why patience matters, how to cultivate it, and practical strategies to stay patient even when faced with setbacks and obstacles"
+title: How To Be Patient With Your Dreams
+date: '2024-08-27T16:43:14+02:00'
+author: Seff Bray
+description: >-
+  Learn why patience matters, how to cultivate it, and practical strategies to
+  stay patient even when faced with setbacks and obstacles
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-be-patient-with-your-dreams/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Be-Patient-with-Your-Dreams.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-be-patient-with-your-dreams/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Be-Patient-with-Your-Dreams.webp)

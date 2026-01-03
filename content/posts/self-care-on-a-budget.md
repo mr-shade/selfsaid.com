@@ -1,11 +1,13 @@
 ---
-title: "Self-Care on a Budget: Everyday Habits That Cost Nothing"
-date: "2025-08-15T14:45:38+02:00"
-author: "Seff Bray"
-description: "Discover simple ways to take care of yourself without spending a fortune with these budget-friendly self-care tips."
+title: 'Self-Care on a Budget: Everyday Habits That Cost Nothing'
+date: '2025-08-15T14:45:38+02:00'
+author: Seff Bray
+description: >-
+  Discover simple ways to take care of yourself without spending a fortune with
+  these budget-friendly self-care tips.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-care-on-a-budget/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-on-a-budget.webp'
+original_url: 'https://selfsaid.pages.dev/self-care-on-a-budget/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-on-a-budget.webp)

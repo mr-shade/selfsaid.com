@@ -1,11 +1,13 @@
 ---
-title: "7 Simple Ways To Overcome Self-Criticism"
-date: "2025-09-19T12:22:30+02:00"
-author: "Seff Bray"
-description: "Discover 7 simple ways to overcome self-criticism, build self-kindness, and create a calmer, more supportive inner voice."
+title: 7 Simple Ways To Overcome Self-Criticism
+date: '2025-09-19T12:22:30+02:00'
+author: Seff Bray
+description: >-
+  Discover 7 simple ways to overcome self-criticism, build self-kindness, and
+  create a calmer, more supportive inner voice.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/stop-self-criticism/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Overcome-Self-Criticism.webp'
+original_url: 'https://selfsaid.pages.dev/stop-self-criticism/'
 ---
 
 ![Woman gazing out of a window on a grey rainy day.](https://seffsaid.com/wp-content/uploads/Overcome-Self-Criticism.webp)

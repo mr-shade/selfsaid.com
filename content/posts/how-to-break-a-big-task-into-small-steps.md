@@ -1,11 +1,13 @@
 ---
-title: "How To Break A Big Task Into Small Achievable Steps"
-date: "2024-08-23T13:02:43+02:00"
-author: "Seff Bray"
-description: "When starting a large project, it's easy to feel overwhelmed by the details; here's a guide to breaking it into small, achievable steps."
+title: How To Break A Big Task Into Small Achievable Steps
+date: '2024-08-23T13:02:43+02:00'
+author: Seff Bray
+description: >-
+  When starting a large project, it's easy to feel overwhelmed by the details;
+  here's a guide to breaking it into small, achievable steps.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-break-a-big-task-into-small-steps/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/task-decomposition.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-break-a-big-task-into-small-steps/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/task-decomposition.webp)

@@ -1,11 +1,13 @@
 ---
-title: "185 Quotes About Being Single"
-date: "2024-01-01T17:57:56+01:00"
-author: "Seff Bray"
-description: "185 inspirational quotes about being single, a collection that celebrates the strength and freedom of embracing life on your own terms."
+title: 185 Quotes About Being Single
+date: '2024-01-01T17:57:56+01:00'
+author: Seff Bray
+description: >-
+  185 inspirational quotes about being single, a collection that celebrates the
+  strength and freedom of embracing life on your own terms.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-being-single/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-being-single.jpg'
+original_url: 'https://selfsaid.pages.dev/quotes-about-being-single/'
 ---
 
 ![Quotes About Being Single](https://seffsaid.com/wp-content/uploads/quotes-about-being-single.jpg)

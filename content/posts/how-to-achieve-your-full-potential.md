@@ -1,11 +1,14 @@
 ---
-title: "How To Achieve Your Full Potential"
-date: "2024-11-20T12:29:37+01:00"
-author: "Seff Bray"
-description: "Discover the essential habits and mindset shifts that will help you progress effectively and help you achieve your full potential."
+title: How To Achieve Your Full Potential
+date: '2024-11-20T12:29:37+01:00'
+author: Seff Bray
+description: >-
+  Discover the essential habits and mindset shifts that will help you progress
+  effectively and help you achieve your full potential.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-achieve-your-full-potential/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/how-to-achieve-your-full-potential.webp
+original_url: 'https://selfsaid.pages.dev/how-to-achieve-your-full-potential/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-achieve-your-full-potential.webp)

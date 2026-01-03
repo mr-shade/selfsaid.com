@@ -1,11 +1,13 @@
 ---
-title: "51 Meaningful Quotes"
-date: "2024-10-27T12:49:30+01:00"
-author: "Seff Bray"
-description: "Discover a collection of 50 meaningful quotes that will inspire and motivate you in every area of life."
+title: 51 Meaningful Quotes
+date: '2024-10-27T12:49:30+01:00'
+author: Seff Bray
+description: >-
+  Discover a collection of 50 meaningful quotes that will inspire and motivate
+  you in every area of life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/meaningful-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/meaningful-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/meaningful-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/meaningful-quotes.webp)

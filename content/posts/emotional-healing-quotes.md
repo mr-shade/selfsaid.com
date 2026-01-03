@@ -1,11 +1,13 @@
 ---
-title: "60 Emotional Healing Quotes for Tough Days"
-date: "2025-05-22T18:26:23+02:00"
-author: "Seff Bray"
-description: "These 60 emotional healing quotes offer support when life feels heavy. A steady companion for grief, burnout, and inner struggles."
+title: 60 Emotional Healing Quotes for Tough Days
+date: '2025-05-22T18:26:23+02:00'
+author: Seff Bray
+description: >-
+  These 60 emotional healing quotes offer support when life feels heavy. A
+  steady companion for grief, burnout, and inner struggles.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/emotional-healing-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/emotional-healing-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/emotional-healing-quotes/'
 ---
 
 ![Emotional Healing Quotes](https://seffsaid.com/wp-content/uploads/emotional-healing-quotes.webp)

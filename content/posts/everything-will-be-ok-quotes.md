@@ -1,11 +1,13 @@
 ---
-title: "50 Everything Will Be OK Quotes"
-date: "2024-09-29T17:16:08+02:00"
-author: "Seff Bray"
-description: "Discover 50 powerful quotes that will lift your spirits and remind you that no matter the situation, everything will be ok."
+title: 50 Everything Will Be OK Quotes
+date: '2024-09-29T17:16:08+02:00'
+author: Seff Bray
+description: >-
+  Discover 50 powerful quotes that will lift your spirits and remind you that no
+  matter the situation, everything will be ok.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/everything-will-be-ok-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/everything-will-be-ok-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/everything-will-be-ok-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/everything-will-be-ok-quotes.webp)

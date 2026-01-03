@@ -1,11 +1,11 @@
 ---
-title: "6 Common Habits Of Unhappy People (That Everyone Should Avoid)"
-date: "2024-04-17T14:45:41+02:00"
-author: "Seff Bray"
-description: "Uncover the six common habits that could be sabotaging your happiness."
+title: 6 Common Habits Of Unhappy People (That Everyone Should Avoid)
+date: '2024-04-17T14:45:41+02:00'
+author: Seff Bray
+description: Uncover the six common habits that could be sabotaging your happiness.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/6-common-habits-of-unhappy-people/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Habits-Of-Unhappy-People.webp'
+original_url: 'https://selfsaid.pages.dev/6-common-habits-of-unhappy-people/'
 ---
 
 ![Unhappy woman looking at the camera](https://seffsaid.com/wp-content/uploads/Habits-Of-Unhappy-People.webp)

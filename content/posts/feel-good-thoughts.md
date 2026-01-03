@@ -1,11 +1,13 @@
 ---
-title: "15 Feel Good Thoughts For A Bad Day"
-date: "2025-08-19T13:02:35+02:00"
-author: "Seff Bray"
-description: "15 feel-good thoughts to ease stress and lift your mood. Simple reminders that bring comfort, calm, and perspective when life feels heavy."
+title: 15 Feel Good Thoughts For A Bad Day
+date: '2025-08-19T13:02:35+02:00'
+author: Seff Bray
+description: >-
+  15 feel-good thoughts to ease stress and lift your mood. Simple reminders that
+  bring comfort, calm, and perspective when life feels heavy.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/feel-good-thoughts/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/feel-good-thoughts.webp'
+original_url: 'https://selfsaid.pages.dev/feel-good-thoughts/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/feel-good-thoughts.webp)

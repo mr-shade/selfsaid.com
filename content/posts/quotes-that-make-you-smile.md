@@ -1,11 +1,13 @@
 ---
-title: "50 Quotes That Make You Smile"
-date: "2024-10-29T11:51:42+01:00"
-author: "Seff Bray"
-description: "Brighten your day instantly with these handpicked quotes that bring a smile, laughter, and a bit of lighthearted joy to any moment."
+title: 50 Quotes That Make You Smile
+date: '2024-10-29T11:51:42+01:00'
+author: Seff Bray
+description: >-
+  Brighten your day instantly with these handpicked quotes that bring a smile,
+  laughter, and a bit of lighthearted joy to any moment.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-that-make-you-smile/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-make-you-smile.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-that-make-you-smile/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-smile.webp)

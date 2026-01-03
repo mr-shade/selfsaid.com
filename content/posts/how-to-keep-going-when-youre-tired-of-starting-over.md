@@ -1,11 +1,14 @@
 ---
-title: "How to Keep Going When You’re Tired of Starting Over"
-date: "2025-06-18T15:33:13+02:00"
-author: "Seff Bray"
-description: "Feeling stuck or discouraged? Here’s how to keep going, even when you're tired of starting over. Simple habits to help you move forward."
+title: How to Keep Going When You’re Tired of Starting Over
+date: '2025-06-18T15:33:13+02:00'
+author: Seff Bray
+description: >-
+  Feeling stuck or discouraged? Here’s how to keep going, even when you're tired
+  of starting over. Simple habits to help you move forward.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-keep-going-when-youre-tired-of-starting-over/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-keep-going.webp'
+original_url: >-
+  https://selfsaid.pages.dev/how-to-keep-going-when-youre-tired-of-starting-over/
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-keep-going.webp)

@@ -1,11 +1,13 @@
 ---
-title: "6 Proven Ways To Overcome Obstacles"
-date: "2024-08-02T15:54:14+02:00"
-author: "Seff Bray"
-description: "Discover 6 proven strategies with actionable advice on how to overcome obstacles in your life. Learn how to overcome life's challenges today!"
+title: 6 Proven Ways To Overcome Obstacles
+date: '2024-08-02T15:54:14+02:00'
+author: Seff Bray
+description: >-
+  Discover 6 proven strategies with actionable advice on how to overcome
+  obstacles in your life. Learn how to overcome life's challenges today!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/proven-ways-to-overcome-obstacles/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Overcome-Obstacles.webp'
+original_url: 'https://selfsaid.pages.dev/proven-ways-to-overcome-obstacles/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Overcome-Obstacles.webp)

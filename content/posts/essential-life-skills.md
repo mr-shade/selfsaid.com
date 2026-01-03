@@ -1,11 +1,13 @@
 ---
-title: "10 Essential Life Skills You Need to Succeed at Anything"
-date: "2024-07-31T14:53:49+02:00"
-author: "Seff Bray"
-description: "Developing these ten essential life skills can significantly enhance your ability to succeed in all areas of life."
+title: 10 Essential Life Skills You Need to Succeed at Anything
+date: '2024-07-31T14:53:49+02:00'
+author: Seff Bray
+description: >-
+  Developing these ten essential life skills can significantly enhance your
+  ability to succeed in all areas of life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/essential-life-skills/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/essential-life-skills.webp'
+original_url: 'https://selfsaid.pages.dev/essential-life-skills/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/essential-life-skills.webp)

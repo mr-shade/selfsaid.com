@@ -1,11 +1,13 @@
 ---
-title: "50 Inky Johnson Quotes To Motivate And Inspire You"
-date: "2024-07-08T13:08:01+02:00"
-author: "Seff Bray"
-description: "Explore 50 Inky Johnson quotes: powerful lessons on resilience, hard work, and personal growth from a motivational icon. Get inspired!"
+title: 50 Inky Johnson Quotes To Motivate And Inspire You
+date: '2024-07-08T13:08:01+02:00'
+author: Seff Bray
+description: >-
+  Explore 50 Inky Johnson quotes: powerful lessons on resilience, hard work, and
+  personal growth from a motivational icon. Get inspired!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/inky-johnson-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Inky-Johnson-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/inky-johnson-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Inky-Johnson-quotes.webp)

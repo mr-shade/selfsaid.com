@@ -1,11 +1,13 @@
 ---
-title: "A 10-Step Guide To Decluttering Your Home"
-date: "2024-02-13T15:23:36+01:00"
-author: "Seff Bray"
-description: "Transform your home into a clutter-free zone with our straightforward 10-step guide."
+title: A 10-Step Guide To Decluttering Your Home
+date: '2024-02-13T15:23:36+01:00'
+author: Seff Bray
+description: >-
+  Transform your home into a clutter-free zone with our straightforward 10-step
+  guide.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/declutter-your-home/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/declutter-your-home.webp'
+original_url: 'https://selfsaid.pages.dev/declutter-your-home/'
 ---
 
 ![A minimalist room free of clutter.](https://seffsaid.com/wp-content/uploads/declutter-your-home.webp)

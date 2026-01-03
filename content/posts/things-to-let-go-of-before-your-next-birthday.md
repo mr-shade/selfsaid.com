@@ -1,11 +1,13 @@
 ---
-title: "15 Things To Let Go Of Before Your Next Birthday"
-date: "2024-10-18T12:35:52+02:00"
-author: "Seff Bray"
-description: "Find out how releasing the unnecessary can help you enter your next year feeling lighter, freer, and more focused."
+title: 15 Things To Let Go Of Before Your Next Birthday
+date: '2024-10-18T12:35:52+02:00'
+author: Seff Bray
+description: >-
+  Find out how releasing the unnecessary can help you enter your next year
+  feeling lighter, freer, and more focused.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/things-to-let-go-of-before-your-next-birthday/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Things-To-Let-Go-Of.webp'
+original_url: 'https://selfsaid.pages.dev/things-to-let-go-of-before-your-next-birthday/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Things-To-Let-Go-Of.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Too Many To-Dos? How to Finally Get Through Your List"
-date: "2025-08-13T11:49:50+02:00"
-author: "Seff Bray"
-description: "Too many to-dos and never enough time? Learn practical ways to prioritise, simplify, and finally get through your to do list."
+title: Too Many To-Dos? How to Finally Get Through Your List
+date: '2025-08-13T11:49:50+02:00'
+author: Seff Bray
+description: >-
+  Too many to-dos and never enough time? Learn practical ways to prioritise,
+  simplify, and finally get through your to do list.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/too-many-to-dos-how-to-get-through-your-list/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/too-many-to-dos.webp'
+original_url: 'https://selfsaid.pages.dev/too-many-to-dos-how-to-get-through-your-list/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/too-many-to-dos.webp)

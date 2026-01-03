@@ -1,11 +1,13 @@
 ---
-title: "The 96 Most Famous Quotes Of All Time"
-date: "2024-03-28T11:58:15+01:00"
-author: "Seff Bray"
-description: "See the world through the eyes of philosophers, leaders, and visionaries with this collection of The 96 Most Famous Quotes Of All Time"
+title: The 96 Most Famous Quotes Of All Time
+date: '2024-03-28T11:58:15+01:00'
+author: Seff Bray
+description: >-
+  See the world through the eyes of philosophers, leaders, and visionaries with
+  this collection of The 96 Most Famous Quotes Of All Time
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/the-most-famous-quotes-of-all-time/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Most-Famous-Quotes-Of-All-Time.webp'
+original_url: 'https://selfsaid.pages.dev/the-most-famous-quotes-of-all-time/'
 ---
 
 ![Camera flashes from Paparazzi](https://seffsaid.com/wp-content/uploads/Most-Famous-Quotes-Of-All-Time.webp)

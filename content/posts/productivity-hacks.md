@@ -1,11 +1,14 @@
 ---
-title: "7 Productivity Hacks You Definitely Haven’t Tried Yet"
-date: "2024-12-05T12:41:13+01:00"
-author: "Seff Bray"
-description: "These out-of-the-box productivity hacks might just make you rethink everything you know about efficiency."
+title: 7 Productivity Hacks You Definitely Haven’t Tried Yet
+date: '2024-12-05T12:41:13+01:00'
+author: Seff Bray
+description: >-
+  These out-of-the-box productivity hacks might just make you rethink everything
+  you know about efficiency.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/productivity-hacks/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Productivity-Hacks-You-Havent-Tried.webp
+original_url: 'https://selfsaid.pages.dev/productivity-hacks/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Productivity-Hacks-You-Havent-Tried.webp)

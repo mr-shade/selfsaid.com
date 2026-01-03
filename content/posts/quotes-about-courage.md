@@ -1,11 +1,13 @@
 ---
-title: "146 Quotes About Courage"
-date: "2024-08-25T17:54:03+02:00"
-author: "Seff Bray"
-description: "146 Courage Quotes to ignite your bravery, inner strength and resilience in facing life's challenges."
+title: 146 Quotes About Courage
+date: '2024-08-25T17:54:03+02:00'
+author: Seff Bray
+description: >-
+  146 Courage Quotes to ignite your bravery, inner strength and resilience in
+  facing life's challenges.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-courage/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Quotes-About-Courage.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-about-courage/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-About-Courage.webp)

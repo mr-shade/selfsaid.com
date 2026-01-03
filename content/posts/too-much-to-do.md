@@ -1,11 +1,13 @@
 ---
-title: "Too Much to Do? Here’s What Helped Me"
-date: "2025-08-04T16:55:17+02:00"
-author: "Seff Bray"
-description: "Feeling overwhelmed by everything you need to do? This simple shift helped me move forward without burning out."
+title: Too Much to Do? Here’s What Helped Me
+date: '2025-08-04T16:55:17+02:00'
+author: Seff Bray
+description: >-
+  Feeling overwhelmed by everything you need to do? This simple shift helped me
+  move forward without burning out.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/too-much-to-do/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/too-much-to-do.webp'
+original_url: 'https://selfsaid.pages.dev/too-much-to-do/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/too-much-to-do.webp)

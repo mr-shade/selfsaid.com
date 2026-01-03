@@ -1,11 +1,13 @@
 ---
-title: "10 Strategies To Build Rock-Solid Resilience Starting Today"
-date: "2025-03-10T12:53:27+01:00"
-author: "Seff Bray"
-description: "Master the art of resilience with these practical methods designed to help you stay focused and confident in any situation."
+title: 10 Strategies To Build Rock-Solid Resilience Starting Today
+date: '2025-03-10T12:53:27+01:00'
+author: Seff Bray
+description: >-
+  Master the art of resilience with these practical methods designed to help you
+  stay focused and confident in any situation.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/build-rock-solid-resilience/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/build-rock-solid-resilience.webp'
+original_url: 'https://selfsaid.pages.dev/build-rock-solid-resilience/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/build-rock-solid-resilience.webp)

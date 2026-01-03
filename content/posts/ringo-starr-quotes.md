@@ -1,11 +1,13 @@
 ---
-title: "Ringo Starr’s Best Quotes"
-date: "2024-03-23T18:05:50+01:00"
-author: "Seff Bray"
-description: "Discover Ringo Starr's wisdom on life, love and music through 50 of his best quotes."
+title: Ringo Starr’s Best Quotes
+date: '2024-03-23T18:05:50+01:00'
+author: Seff Bray
+description: >-
+  Discover Ringo Starr's wisdom on life, love and music through 50 of his best
+  quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ringo-starr-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Ringo-Starr-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/ringo-starr-quotes/'
 ---
 
 ![Ringo Starr on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Ringo-Starr-Quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "How To Stop Reliving Past Mistakes"
-date: "2024-11-26T17:01:09+01:00"
-author: "Seff Bray"
-description: "Learn how to stop reliving past mistakes and focus on building a brighter future."
+title: How To Stop Reliving Past Mistakes
+date: '2024-11-26T17:01:09+01:00'
+author: Seff Bray
+description: >-
+  Learn how to stop reliving past mistakes and focus on building a brighter
+  future.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-stop-reliving-past-mistakes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/stop-reliving-past-mistakes.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-stop-reliving-past-mistakes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stop-reliving-past-mistakes.webp)

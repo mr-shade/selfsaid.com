@@ -1,11 +1,13 @@
 ---
-title: "10 Questions To Identify The Habits Blocking Your Progress"
-date: "2025-01-10T15:15:03+01:00"
-author: "Seff Bray"
-description: "Could these ten questions be the key to breaking free from the habits limiting your progress?"
+title: 10 Questions To Identify The Habits Blocking Your Progress
+date: '2025-01-10T15:15:03+01:00'
+author: Seff Bray
+description: >-
+  Could these ten questions be the key to breaking free from the habits limiting
+  your progress?
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/habits-blocking-progress/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/habits-blocking-progress.webp'
+original_url: 'https://selfsaid.pages.dev/habits-blocking-progress/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/habits-blocking-progress.webp)

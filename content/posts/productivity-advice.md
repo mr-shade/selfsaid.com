@@ -1,11 +1,13 @@
 ---
-title: "Productivity Advice In 5 Words Or Less"
-date: "2024-09-04T15:27:21+02:00"
-author: "Seff Bray"
-description: "Here are 50 pieces of productivity advice, all in five words or less, to help you work smarter and get more done."
+title: Productivity Advice In 5 Words Or Less
+date: '2024-09-04T15:27:21+02:00'
+author: Seff Bray
+description: >-
+  Here are 50 pieces of productivity advice, all in five words or less, to help
+  you work smarter and get more done.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/productivity-advice/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/productivity-advice.webp'
+original_url: 'https://selfsaid.pages.dev/productivity-advice/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/productivity-advice.webp)

@@ -1,11 +1,13 @@
 ---
-title: "10 Things You Think You Need (But Really Don’t)"
-date: "2025-07-03T11:50:06+02:00"
-author: "Seff Bray"
-description: "Let go of what’s weighing you down. 10 things you think you need (but don’t) will help you reclaim time, space, and peace of mind."
+title: 10 Things You Think You Need (But Really Don’t)
+date: '2025-07-03T11:50:06+02:00'
+author: Seff Bray
+description: >-
+  Let go of what’s weighing you down. 10 things you think you need (but don’t)
+  will help you reclaim time, space, and peace of mind.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/things-you-dont-need/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/things-you-dont-need.webp'
+original_url: 'https://selfsaid.pages.dev/things-you-dont-need/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/things-you-dont-need.webp)

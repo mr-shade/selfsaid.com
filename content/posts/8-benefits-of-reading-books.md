@@ -1,11 +1,13 @@
 ---
-title: "8 Awesome Benefits Of Reading Books"
-date: "2024-07-20T16:52:40+02:00"
-author: "Seff Bray"
-description: "Did you know that research shows reading books offers numerous benefits? Here are 8 compelling reasons to start reading a novel today!"
+title: 8 Awesome Benefits Of Reading Books
+date: '2024-07-20T16:52:40+02:00'
+author: Seff Bray
+description: >-
+  Did you know that research shows reading books offers numerous benefits? Here
+  are 8 compelling reasons to start reading a novel today!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/8-benefits-of-reading-books/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/benefits-of-reading-books.webp'
+original_url: 'https://selfsaid.pages.dev/8-benefits-of-reading-books/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/benefits-of-reading-books.webp)

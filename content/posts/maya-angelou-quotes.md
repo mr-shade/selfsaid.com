@@ -1,11 +1,13 @@
 ---
-title: "112 Maya Angelou Quotes And Sayings"
-date: "2024-01-25T13:02:56+01:00"
-author: "Seff Bray"
-description: "Explore the wisdom of a literary icon with these 112 famous Maya Angelou quotes and sayings."
+title: 112 Maya Angelou Quotes And Sayings
+date: '2024-01-25T13:02:56+01:00'
+author: Seff Bray
+description: >-
+  Explore the wisdom of a literary icon with these 112 famous Maya Angelou
+  quotes and sayings.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/maya-angelou-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Maya-Angelou-Quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/maya-angelou-quotes/'
 ---
 
 ![Maya Angelou Quotes And Sayings](https://seffsaid.com/wp-content/uploads/Maya-Angelou-Quotes.jpg)

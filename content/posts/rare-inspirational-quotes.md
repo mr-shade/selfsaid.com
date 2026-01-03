@@ -1,11 +1,13 @@
 ---
-title: "188 Rare Quotes You’ve Probably Never Heard Before"
-date: "2024-01-10T16:11:42+01:00"
-author: "Seff Bray"
-description: "Fed up reading the same old quotes? Here's a collection of 188 rare quotes that you've probably never heard before."
+title: 188 Rare Quotes You’ve Probably Never Heard Before
+date: '2024-01-10T16:11:42+01:00'
+author: Seff Bray
+description: >-
+  Fed up reading the same old quotes? Here's a collection of 188 rare quotes
+  that you've probably never heard before.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/rare-inspirational-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/rare-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/rare-inspirational-quotes/'
 ---
 
 ![Rare Quotes You've Probably Never Heard Before](https://seffsaid.com/wp-content/uploads/rare-quotes.jpg)

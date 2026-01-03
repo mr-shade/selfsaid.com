@@ -1,11 +1,13 @@
 ---
-title: "48 Simple Ways to Reduce Stress and Anxiety"
-date: "2024-08-20T12:17:45+02:00"
-author: "Seff Bray"
-description: "These days it seems like everyone is either stressed out or anxious. Here are 48 simple ways to reduce stress and anxiety starting today."
+title: 48 Simple Ways to Reduce Stress and Anxiety
+date: '2024-08-20T12:17:45+02:00'
+author: Seff Bray
+description: >-
+  These days it seems like everyone is either stressed out or anxious. Here are
+  48 simple ways to reduce stress and anxiety starting today.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/48-simple-ways-to-reduce-stress-and-anxiety/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Reduce-Stress-and-Anxiety.webp'
+original_url: 'https://selfsaid.pages.dev/48-simple-ways-to-reduce-stress-and-anxiety/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Reduce-Stress-and-Anxiety.webp)

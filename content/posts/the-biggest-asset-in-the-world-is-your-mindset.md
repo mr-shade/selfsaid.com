@@ -1,11 +1,14 @@
 ---
-title: "The Biggest Asset In The World Is Your Mindset"
-date: "2023-08-24T10:34:56+02:00"
-author: "Seff Bray"
-description: "Explore the transformative power of mindset with our concise overview of the quote 'The Biggest Asset In The World Is Your Mindset,'"
+title: The Biggest Asset In The World Is Your Mindset
+date: '2023-08-24T10:34:56+02:00'
+author: Seff Bray
+description: >-
+  Explore the transformative power of mindset with our concise overview of the
+  quote 'The Biggest Asset In The World Is Your Mindset,'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/the-biggest-asset-in-the-world-is-your-mindset/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/The-biggest-asset-in-the-world-is-your-mindset.jpg
+original_url: 'https://selfsaid.pages.dev/the-biggest-asset-in-the-world-is-your-mindset/'
 ---
 
 ![The biggest asset in the world is your mindset.](https://seffsaid.com/wp-content/uploads/The-biggest-asset-in-the-world-is-your-mindset.jpg)

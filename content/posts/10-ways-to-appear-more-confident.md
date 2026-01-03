@@ -1,11 +1,13 @@
 ---
-title: "How To Appear Confident (When You’re Really Not)"
-date: "2024-07-19T15:44:58+02:00"
-author: "Seff Bray"
-description: "10 ways to modify your body language so that you always appear cool, calm, self-assured, in control and full of confidence in any situation."
+title: How To Appear Confident (When You’re Really Not)
+date: '2024-07-19T15:44:58+02:00'
+author: Seff Bray
+description: >-
+  10 ways to modify your body language so that you always appear cool, calm,
+  self-assured, in control and full of confidence in any situation.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/10-ways-to-appear-more-confident/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-appear-confident.webp'
+original_url: 'https://selfsaid.pages.dev/10-ways-to-appear-more-confident/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-appear-confident.webp)

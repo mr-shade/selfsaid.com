@@ -1,11 +1,13 @@
 ---
-title: "A to Z Tips for Productive Living"
-date: "2025-04-29T13:23:19+02:00"
-author: "Seff Bray"
-description: "Explore a gentle A to Z guide for productive living. Build resilience, honor self-care, and create a life of calm progress and meaningful habits."
+title: A to Z Tips for Productive Living
+date: '2025-04-29T13:23:19+02:00'
+author: Seff Bray
+description: >-
+  Explore a gentle A to Z guide for productive living. Build resilience, honor
+  self-care, and create a life of calm progress and meaningful habits.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/tips-for-productive-living/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/tips-for-productive-living.webp'
+original_url: 'https://selfsaid.pages.dev/tips-for-productive-living/'
 ---
 
 ![Man jogging living life productively](https://seffsaid.com/wp-content/uploads/tips-for-productive-living.webp)

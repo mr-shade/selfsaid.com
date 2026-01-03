@@ -1,11 +1,14 @@
 ---
-title: "20 Productive Things To Do When Bored"
-date: "2024-03-27T15:27:03+01:00"
-author: "Seff Bray"
-description: "Feeling Stuck in a Rut? Discover 20 Productive Ways to Transform Boredom into Opportunity!"
+title: 20 Productive Things To Do When Bored
+date: '2024-03-27T15:27:03+01:00'
+author: Seff Bray
+description: >-
+  Feeling Stuck in a Rut? Discover 20 Productive Ways to Transform Boredom into
+  Opportunity!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/productive-things-to-do-when-bored/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Productive-Things-To-Do-When-Bored.webp
+original_url: 'https://selfsaid.pages.dev/productive-things-to-do-when-bored/'
 ---
 
 ![Bored girl trying to think of something productive to do](https://seffsaid.com/wp-content/uploads/Productive-Things-To-Do-When-Bored.webp)

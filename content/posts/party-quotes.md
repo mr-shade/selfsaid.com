@@ -1,11 +1,13 @@
 ---
-title: "201 Party Quotes to Make Every Day a Party Day!"
-date: "2024-06-09T17:32:51+02:00"
-author: "Seff Bray"
-description: "Embrace the celebration of life with these 201 Party Quotes and let every day be your reason to dance with joy!"
+title: 201 Party Quotes to Make Every Day a Party Day!
+date: '2024-06-09T17:32:51+02:00'
+author: Seff Bray
+description: >-
+  Embrace the celebration of life with these 201 Party Quotes and let every day
+  be your reason to dance with joy!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/party-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/party-quotes-webp.webp'
+original_url: 'https://selfsaid.pages.dev/party-quotes/'
 ---
 
 ![Two women dancing at a party](https://seffsaid.com/wp-content/uploads/party-quotes-webp.webp)

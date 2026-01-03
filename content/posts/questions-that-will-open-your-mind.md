@@ -1,11 +1,13 @@
 ---
-title: "10 Questions That Will Open Your Mind"
-date: "2024-12-22T17:54:42+01:00"
-author: "Seff Bray"
-description: "Open your mind to new possibilities with 10 questions that inspire growth and clarity."
+title: 10 Questions That Will Open Your Mind
+date: '2024-12-22T17:54:42+01:00'
+author: Seff Bray
+description: >-
+  Open your mind to new possibilities with 10 questions that inspire growth and
+  clarity.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/questions-that-will-open-your-mind/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Questions-Open-Mind.webp'
+original_url: 'https://selfsaid.pages.dev/questions-that-will-open-your-mind/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Questions-Open-Mind.webp)

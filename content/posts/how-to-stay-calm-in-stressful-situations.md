@@ -1,11 +1,14 @@
 ---
-title: "How To Stay Calm In Stressful Situations"
-date: "2025-10-23T13:24:46+02:00"
-author: "Seff Bray"
-description: "Stress is part of life, but calm is something you can practice. Learn simple, practical ways to stay calm in stressful situations and bring peace back to your day."
+title: How To Stay Calm In Stressful Situations
+date: '2025-10-23T13:24:46+02:00'
+author: Seff Bray
+description: >-
+  Stress is part of life, but calm is something you can practice. Learn simple,
+  practical ways to stay calm in stressful situations and bring peace back to
+  your day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-stay-calm-in-stressful-situations/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-stay-calm.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-stay-calm-in-stressful-situations/'
 ---
 
 ![Woman meditating on top of a mountain](https://seffsaid.com/wp-content/uploads/how-to-stay-calm.webp)

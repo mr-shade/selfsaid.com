@@ -1,11 +1,14 @@
 ---
-title: "The Case for Doing Nothing: How Stillness Became My Self-Care"
-date: "2025-04-04T15:57:04+02:00"
-author: "Seff Bray"
-description: "Doing nothing used to feel like failure until I discovered how deeply healing it can be. This is how I made stillness part of my self-care routine, and why I now protect it."
+title: 'The Case for Doing Nothing: How Stillness Became My Self-Care'
+date: '2025-04-04T15:57:04+02:00'
+author: Seff Bray
+description: >-
+  Doing nothing used to feel like failure until I discovered how deeply healing
+  it can be. This is how I made stillness part of my self-care routine, and why
+  I now protect it.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/the-case-for-doing-nothing/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Case-for-Doing-Nothing.webp'
+original_url: 'https://selfsaid.pages.dev/the-case-for-doing-nothing/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Case-for-Doing-Nothing.webp)

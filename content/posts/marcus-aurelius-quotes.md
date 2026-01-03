@@ -1,11 +1,13 @@
 ---
-title: "Marcus Aurelius Quotes on Life, Love, and Death"
-date: "2024-10-07T12:46:47+02:00"
-author: "Seff Bray"
-description: "86 powerful quotes by Marcus Aurelius, the famous Roman Emperor and Stoic Philosopher."
+title: 'Marcus Aurelius Quotes on Life, Love, and Death'
+date: '2024-10-07T12:46:47+02:00'
+author: Seff Bray
+description: >-
+  86 powerful quotes by Marcus Aurelius, the famous Roman Emperor and Stoic
+  Philosopher.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/marcus-aurelius-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Marcus-Aurelius-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/marcus-aurelius-quotes/'
 ---
 
 ![Marcus Aurelius](https://seffsaid.com/wp-content/uploads/Marcus-Aurelius-Quotes.webp)

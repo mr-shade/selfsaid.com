@@ -1,11 +1,13 @@
 ---
-title: "10 Valid Reasons To Spend Time Doing Absolutely Nothing"
-date: "2025-03-05T14:51:30+01:00"
-author: "Seff Bray"
-description: "Taking time to do absolutely nothing might be the smartest decision you ever make for your mind and body."
+title: 10 Valid Reasons To Spend Time Doing Absolutely Nothing
+date: '2025-03-05T14:51:30+01:00'
+author: Seff Bray
+description: >-
+  Taking time to do absolutely nothing might be the smartest decision you ever
+  make for your mind and body.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/reasons-to-do-nothing/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/reasons-to-do-nothing.webp'
+original_url: 'https://selfsaid.pages.dev/reasons-to-do-nothing/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/reasons-to-do-nothing.webp)

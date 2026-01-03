@@ -1,11 +1,13 @@
 ---
-title: "How To Fall Asleep Fast"
-date: "2024-08-24T15:34:11+02:00"
-author: "Seff Bray"
-description: "Suffer from insomnia? Have difficulty falling asleep? Discover 12 simple and effective ways on how to fall asleep fast."
+title: How To Fall Asleep Fast
+date: '2024-08-24T15:34:11+02:00'
+author: Seff Bray
+description: >-
+  Suffer from insomnia? Have difficulty falling asleep? Discover 12 simple and
+  effective ways on how to fall asleep fast.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-fall-asleep-fast/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Fall-Asleep-Fast.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-fall-asleep-fast/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Fall-Asleep-Fast.webp)

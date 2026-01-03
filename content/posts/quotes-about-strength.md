@@ -1,11 +1,13 @@
 ---
-title: "44 Quotes About Strength To Comfort You During Hard Times"
-date: "2024-07-12T18:01:47+02:00"
-author: "Seff Bray"
-description: "Struggling through difficult times and need help in facing your hardships? Read these 44 powerful quotes about strength and resilience."
+title: 44 Quotes About Strength To Comfort You During Hard Times
+date: '2024-07-12T18:01:47+02:00'
+author: Seff Bray
+description: >-
+  Struggling through difficult times and need help in facing your hardships?
+  Read these 44 powerful quotes about strength and resilience.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-strength/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-strength.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-about-strength/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-strength.webp)

@@ -1,11 +1,13 @@
 ---
-title: "\"You Are Enough\" Printable Quote"
-date: "2024-06-21T15:37:56+02:00"
-author: "Seff Said"
-description: "Decorate your home or work place with the SEFFSAID exclusive \"You Are Enough\" printable quote available for instant download."
+title: '"You Are Enough" Printable Quote'
+date: '2024-06-21T15:37:56+02:00'
+author: Seff Said
+description: >-
+  Decorate your home or work place with the SEFFSAID exclusive "You Are Enough"
+  printable quote available for instant download.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/you-are-enough/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/SEFFSAID-YouAreEnough-800x800-1.webp'
+original_url: 'https://selfsaid.pages.dev/you-are-enough/'
 ---
 
 All [Printable Quotes](/printable-quotes)

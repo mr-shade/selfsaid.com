@@ -1,11 +1,13 @@
 ---
-title: "10 Self-Care Habits That Will Change Your Life"
-date: "2025-02-10T12:23:31+01:00"
-author: "Seff Bray"
-description: "You won’t believe how much better you’ll feel once you start practicing these simple self-care habits."
+title: 10 Self-Care Habits That Will Change Your Life
+date: '2025-02-10T12:23:31+01:00'
+author: Seff Bray
+description: >-
+  You won’t believe how much better you’ll feel once you start practicing these
+  simple self-care habits.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-care-habits/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Care-Habits.webp'
+original_url: 'https://selfsaid.pages.dev/self-care-habits/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Habits.webp)

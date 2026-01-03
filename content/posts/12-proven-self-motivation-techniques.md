@@ -1,11 +1,13 @@
 ---
-title: "12 Proven Self Motivation Techniques"
-date: "2024-05-04T18:00:04+02:00"
-author: "Seff Bray"
-description: "12 proven self-motivation techniques that will push your motivation levels through the roof!"
+title: 12 Proven Self Motivation Techniques
+date: '2024-05-04T18:00:04+02:00'
+author: Seff Bray
+description: >-
+  12 proven self-motivation techniques that will push your motivation levels
+  through the roof!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/12-proven-self-motivation-techniques/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/self-motivation-techniques.webp'
+original_url: 'https://selfsaid.pages.dev/12-proven-self-motivation-techniques/'
 ---
 
 ![Runner using self-motivation techniques to run a race](https://seffsaid.com/wp-content/uploads/self-motivation-techniques.webp)

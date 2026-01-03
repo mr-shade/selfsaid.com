@@ -1,11 +1,13 @@
 ---
-title: "50 Quotes That Hit Hard"
-date: "2024-09-20T15:21:32+02:00"
-author: "Seff Bray"
-description: "50 hard-hitting quotes that challenge your perspective and make you think deeply about life, love, and resilience."
+title: 50 Quotes That Hit Hard
+date: '2024-09-20T15:21:32+02:00'
+author: Seff Bray
+description: >-
+  50 hard-hitting quotes that challenge your perspective and make you think
+  deeply about life, love, and resilience.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-that-hit-hard/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-hit-hard.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-that-hit-hard/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-hit-hard.webp)

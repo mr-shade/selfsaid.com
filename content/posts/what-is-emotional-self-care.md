@@ -1,11 +1,14 @@
 ---
-title: "What Is Emotional Self-Care? (And Why It Matters More Than You Think)"
-date: "2025-04-13T15:54:55+02:00"
-author: "Seff Bray"
-description: "Emotional self-care is more than a trend, it’s a daily practice of noticing, honoring, and supporting your feelings. Learn what it means, why it matters, and how it can gently transform your inner life."
+title: What Is Emotional Self-Care? (And Why It Matters More Than You Think)
+date: '2025-04-13T15:54:55+02:00'
+author: Seff Bray
+description: >-
+  Emotional self-care is more than a trend, it’s a daily practice of noticing,
+  honoring, and supporting your feelings. Learn what it means, why it matters,
+  and how it can gently transform your inner life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/what-is-emotional-self-care/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/emotional-self-care.webp'
+original_url: 'https://selfsaid.pages.dev/what-is-emotional-self-care/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/emotional-self-care.webp)

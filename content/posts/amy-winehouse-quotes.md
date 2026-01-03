@@ -1,11 +1,13 @@
 ---
-title: "Amy Winehouse’s Best Quotes"
-date: "2024-05-24T17:14:06+02:00"
-author: "Seff Bray"
-description: "Discover the wisdom of Amy Winehouse through this collection of her 50 best quotes."
+title: Amy Winehouse’s Best Quotes
+date: '2024-05-24T17:14:06+02:00'
+author: Seff Bray
+description: >-
+  Discover the wisdom of Amy Winehouse through this collection of her 50 best
+  quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/amy-winehouse-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Amy-Winehouse-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/amy-winehouse-quotes/'
 ---
 
 ![Amy Winehouse](https://seffsaid.com/wp-content/uploads/Amy-Winehouse-Quotes.webp)

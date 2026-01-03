@@ -1,11 +1,13 @@
 ---
-title: "20 Incredibly Inspiring Paulo Coelho Quotes"
-date: "2024-04-06T17:33:15+02:00"
-author: "Seff Bray"
-description: "Discover 20 incredibly inspiring Paulo Coelho quotes that have the power to change your life"
+title: 20 Incredibly Inspiring Paulo Coelho Quotes
+date: '2024-04-06T17:33:15+02:00'
+author: Seff Bray
+description: >-
+  Discover 20 incredibly inspiring Paulo Coelho quotes that have the power to
+  change your life
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/20-inspiring-paulo-coelho-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Paulo-Coelho-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/20-inspiring-paulo-coelho-quotes/'
 ---
 
 ![Paulo Coelho](https://seffsaid.com/wp-content/uploads/Paulo-Coelho-Quotes.webp)

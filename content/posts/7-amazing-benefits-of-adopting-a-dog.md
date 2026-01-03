@@ -1,11 +1,11 @@
 ---
-title: "7 Amazing Benefits Of Adopting A Dog"
-date: "2024-05-15T17:37:25+02:00"
-author: "Seff Bray"
-description: "Discover the 7 incredible ways adopting a dog can transform your life."
+title: 7 Amazing Benefits Of Adopting A Dog
+date: '2024-05-15T17:37:25+02:00'
+author: Seff Bray
+description: Discover the 7 incredible ways adopting a dog can transform your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/7-amazing-benefits-of-adopting-a-dog/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Benefits-of-Adopting-A-Dog.webp'
+original_url: 'https://selfsaid.pages.dev/7-amazing-benefits-of-adopting-a-dog/'
 ---
 
 ![Woman walking her dog](https://seffsaid.com/wp-content/uploads/Benefits-of-Adopting-A-Dog.webp)

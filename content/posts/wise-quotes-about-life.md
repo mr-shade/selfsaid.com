@@ -1,11 +1,13 @@
 ---
-title: "156 Incredibly Wise Quotes About Life"
-date: "2024-01-12T15:07:54+01:00"
-author: "Seff Bray"
-description: "A collection of 156 wise quotes about life offering profound wisdom and perspective for whatever lies ahead."
+title: 156 Incredibly Wise Quotes About Life
+date: '2024-01-12T15:07:54+01:00'
+author: Seff Bray
+description: >-
+  A collection of 156 wise quotes about life offering profound wisdom and
+  perspective for whatever lies ahead.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/wise-quotes-about-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/wise-quotes-about-life-1.jpg'
+original_url: 'https://selfsaid.pages.dev/wise-quotes-about-life/'
 ---
 
 ![Wise Quotes About Life](https://seffsaid.com/wp-content/uploads/wise-quotes-about-life-1.jpg)

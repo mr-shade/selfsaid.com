@@ -1,11 +1,13 @@
 ---
-title: "10 Mindsets for Success You Should Develop ASAP"
-date: "2024-07-22T13:20:38+02:00"
-author: "Seff Bray"
-description: "Don't wait any longer to develop these 10 mindsets for success that can change your life forever."
+title: 10 Mindsets for Success You Should Develop ASAP
+date: '2024-07-22T13:20:38+02:00'
+author: Seff Bray
+description: >-
+  Don't wait any longer to develop these 10 mindsets for success that can change
+  your life forever.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/mindsets-for-success/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/mindsets-for-success.webp'
+original_url: 'https://selfsaid.pages.dev/mindsets-for-success/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/mindsets-for-success.webp)

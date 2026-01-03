@@ -1,11 +1,13 @@
 ---
-title: "8 Questions That Will Change The Way You Think About Your Problems"
-date: "2024-12-02T15:42:29+01:00"
-author: "Seff Bray"
-description: "Explore a fresh way of thinking about your problems by asking the questions that truly matter."
+title: 8 Questions That Will Change The Way You Think About Your Problems
+date: '2024-12-02T15:42:29+01:00'
+author: Seff Bray
+description: >-
+  Explore a fresh way of thinking about your problems by asking the questions
+  that truly matter.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/questions-problems/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/questions-problems.webp'
+original_url: 'https://selfsaid.pages.dev/questions-problems/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/questions-problems.webp)

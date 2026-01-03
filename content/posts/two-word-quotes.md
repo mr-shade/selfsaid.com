@@ -1,11 +1,13 @@
 ---
-title: "100 Powerful Two Word Quotes For Every Life Situation"
-date: "2023-12-27T12:39:29+01:00"
-author: "Seff Bray"
-description: "Turn to these 100 powerful two-word quotes for a quick, uplifting boost anytime you need a burst of inspiration."
+title: 100 Powerful Two Word Quotes For Every Life Situation
+date: '2023-12-27T12:39:29+01:00'
+author: Seff Bray
+description: >-
+  Turn to these 100 powerful two-word quotes for a quick, uplifting boost
+  anytime you need a burst of inspiration.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/two-word-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/two-word-quotes-600x338-1.jpg'
+original_url: 'https://selfsaid.pages.dev/two-word-quotes/'
 ---
 
 ![Powerful Two Word Quotes](https://seffsaid.com/wp-content/uploads/two-word-quotes-600x338-1.jpg)

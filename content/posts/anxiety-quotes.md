@@ -1,11 +1,13 @@
 ---
-title: "60 Anxiety Quotes That Calm the Mind"
-date: "2025-05-27T12:24:08+02:00"
-author: "Seff Bray"
-description: "A collection of 60 anxiety quotes to ease a racing mind. Gentle reminders to slow down, breathe, and find peace in the present moment."
+title: 60 Anxiety Quotes That Calm the Mind
+date: '2025-05-27T12:24:08+02:00'
+author: Seff Bray
+description: >-
+  A collection of 60 anxiety quotes to ease a racing mind. Gentle reminders to
+  slow down, breathe, and find peace in the present moment.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/anxiety-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/anxiety-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/anxiety-quotes/'
 ---
 
 ![Anxious woman](https://seffsaid.com/wp-content/uploads/anxiety-quotes.webp)

@@ -1,11 +1,14 @@
 ---
-title: "It Won’t Be Easy, But It Will Be Worth It."
-date: "2023-08-27T12:21:49+02:00"
-author: "Seff Bray"
-description: "Discover the essence of perseverance in our overview of the motivational quote 'It Won't Be Easy, But It Will Be Worth It.'"
+title: 'It Won’t Be Easy, But It Will Be Worth It.'
+date: '2023-08-27T12:21:49+02:00'
+author: Seff Bray
+description: >-
+  Discover the essence of perseverance in our overview of the motivational quote
+  'It Won't Be Easy, But It Will Be Worth It.'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/it-wont-be-easy-but-it-will-be-worth-it/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/It-wont-be-easy-but-it-will-be-worth-it.jpg
+original_url: 'https://selfsaid.pages.dev/it-wont-be-easy-but-it-will-be-worth-it/'
 ---
 
 ![It won't be easy, but it will be worth it.](https://seffsaid.com/wp-content/uploads/It-wont-be-easy-but-it-will-be-worth-it.jpg)

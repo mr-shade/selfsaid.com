@@ -1,11 +1,13 @@
 ---
-title: "How To Build Your Tribe – Finding ‘Your People’"
-date: "2025-04-23T12:50:54+02:00"
-author: "Seff Bray"
-description: "A guide to finding real connection. Learn how to build meaningful friendships that feel safe, mutual, and true to who you are."
+title: How To Build Your Tribe – Finding ‘Your People’
+date: '2025-04-23T12:50:54+02:00'
+author: Seff Bray
+description: >-
+  A guide to finding real connection. Learn how to build meaningful friendships
+  that feel safe, mutual, and true to who you are.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-build-your-tribe/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Build-Your-Tribe.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-build-your-tribe/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Build-Your-Tribe.webp)

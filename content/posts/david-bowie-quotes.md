@@ -1,11 +1,13 @@
 ---
-title: "David Bowie’s Best Quotes"
-date: "2024-06-18T13:25:40+02:00"
-author: "Seff Bray"
-description: "Explore the unique and thought-provoking words of David Bowie that showcase his remarkable perspective on fame, life and art."
+title: David Bowie’s Best Quotes
+date: '2024-06-18T13:25:40+02:00'
+author: Seff Bray
+description: >-
+  Explore the unique and thought-provoking words of David Bowie that showcase
+  his remarkable perspective on fame, life and art.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/david-bowie-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/David-Bowie-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/david-bowie-quotes/'
 ---
 
 ![David Bowie performing live](https://seffsaid.com/wp-content/uploads/David-Bowie-Quotes.webp)

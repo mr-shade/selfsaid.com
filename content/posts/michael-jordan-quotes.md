@@ -1,11 +1,13 @@
 ---
-title: "120 Michael Jordan Quotes to Inspire Your Personal Best"
-date: "2023-12-21T14:12:16+01:00"
-author: "Seff Bray"
-description: "Unleash your full potential with 120 Michael Jordan quotes that inspire greatness."
+title: 120 Michael Jordan Quotes to Inspire Your Personal Best
+date: '2023-12-21T14:12:16+01:00'
+author: Seff Bray
+description: >-
+  Unleash your full potential with 120 Michael Jordan quotes that inspire
+  greatness.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/michael-jordan-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/michael-jordan-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/michael-jordan-quotes/'
 ---
 
 ![120 Michael Jordan Quotes to Inspire Your Personal Best](https://seffsaid.com/wp-content/uploads/michael-jordan-quotes.jpg)

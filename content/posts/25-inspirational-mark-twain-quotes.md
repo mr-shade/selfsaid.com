@@ -1,11 +1,13 @@
 ---
-title: "50 Famous Mark Twain Quotes and Sayings"
-date: "2024-01-09T12:48:57+01:00"
-author: "Seff Bray"
-description: "Explore this collection of 50 of the most famous Mark Twain quotes and immerse yourself in the wit and wisdom of a literary icon."
+title: 50 Famous Mark Twain Quotes and Sayings
+date: '2024-01-09T12:48:57+01:00'
+author: Seff Bray
+description: >-
+  Explore this collection of 50 of the most famous Mark Twain quotes and immerse
+  yourself in the wit and wisdom of a literary icon.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/25-inspirational-mark-twain-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/mark-twain-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/25-inspirational-mark-twain-quotes/'
 ---
 
 ![Mark Twain Quotes](https://seffsaid.com/wp-content/uploads/mark-twain-quotes.jpg)

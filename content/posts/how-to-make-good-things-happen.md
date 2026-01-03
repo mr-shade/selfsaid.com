@@ -1,11 +1,13 @@
 ---
-title: "How To Make Good Things Happen"
-date: "2024-08-28T12:49:13+02:00"
-author: "Seff Bray"
-description: "Learn the secrets to making good things happen in your life by applying these simple, effective strategies every day."
+title: How To Make Good Things Happen
+date: '2024-08-28T12:49:13+02:00'
+author: Seff Bray
+description: >-
+  Learn the secrets to making good things happen in your life by applying these
+  simple, effective strategies every day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-make-good-things-happen/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-make-good-things-happen.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-make-good-things-happen/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-make-good-things-happen.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Printable Quotes"
-date: "2024-10-30T12:02:20+01:00"
-author: "Seff Said"
-description: "Explore our collection of high-quality printable quotes that will bring positivity and inspiration into your life."
+title: Printable Quotes
+date: '2024-10-30T12:02:20+01:00'
+author: Seff Said
+description: >-
+  Explore our collection of high-quality printable quotes that will bring
+  positivity and inspiration into your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/printable-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/SEFFSAID-Dream-Big.webp'
+original_url: 'https://selfsaid.pages.dev/printable-quotes/'
 ---
 
 # Printable Quotes

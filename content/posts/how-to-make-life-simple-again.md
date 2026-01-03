@@ -1,11 +1,13 @@
 ---
-title: "How to Make Life Simple Again"
-date: "2025-10-16T12:22:59+02:00"
-author: "Seff Bray"
-description: "Life doesn’t have to feel so full. Discover five meaningful ways to clear space, protect your time, and bring calm back into your days."
+title: How to Make Life Simple Again
+date: '2025-10-16T12:22:59+02:00'
+author: Seff Bray
+description: >-
+  Life doesn’t have to feel so full. Discover five meaningful ways to clear
+  space, protect your time, and bring calm back into your days.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-make-life-simple-again/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-to-Make-Life-Simple-Again.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-make-life-simple-again/'
 ---
 
 ![Man relaxing at the beach enjoying the simple life](https://seffsaid.com/wp-content/uploads/How-to-Make-Life-Simple-Again.webp)

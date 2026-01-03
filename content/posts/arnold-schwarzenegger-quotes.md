@@ -1,11 +1,13 @@
 ---
-title: "The 86 Best Arnold Schwarzenegger Quotes"
-date: "2024-01-19T16:02:24+01:00"
-author: "Seff Bray"
-description: "Discover the power of determination with 86 of the best Arnold Schwarzenegger Quotes. Get both inspired and motivated today!"
+title: The 86 Best Arnold Schwarzenegger Quotes
+date: '2024-01-19T16:02:24+01:00'
+author: Seff Bray
+description: >-
+  Discover the power of determination with 86 of the best Arnold Schwarzenegger
+  Quotes. Get both inspired and motivated today!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/arnold-schwarzenegger-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/arnold-schwarzenegger-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/arnold-schwarzenegger-quotes/'
 ---
 
 ![Arnold Schwarzenegger Quotes](https://seffsaid.com/wp-content/uploads/arnold-schwarzenegger-quotes.jpg)

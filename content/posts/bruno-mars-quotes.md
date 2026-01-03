@@ -1,11 +1,13 @@
 ---
-title: "Bruno Mars’ 50 Best Quotes"
-date: "2024-06-17T12:47:38+02:00"
-author: "Seff Bray"
-description: "Discover what drives Bruno Mars with this collection of his 50 best quotes, filled with humor, inspiration, and life lessons."
+title: Bruno Mars’ 50 Best Quotes
+date: '2024-06-17T12:47:38+02:00'
+author: Seff Bray
+description: >-
+  Discover what drives Bruno Mars with this collection of his 50 best quotes,
+  filled with humor, inspiration, and life lessons.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/bruno-mars-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Bruno-Mars-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/bruno-mars-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Bruno-Mars-Quotes.webp)

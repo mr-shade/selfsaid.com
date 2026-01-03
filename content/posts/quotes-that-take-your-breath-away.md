@@ -1,11 +1,13 @@
 ---
-title: "58 Quotes That Take Your Breath Away"
-date: "2024-10-17T12:54:53+02:00"
-author: "Seff Bray"
-description: "Discover a collection of quotes so poignant and profound that they will take your breath away."
+title: 58 Quotes That Take Your Breath Away
+date: '2024-10-17T12:54:53+02:00'
+author: Seff Bray
+description: >-
+  Discover a collection of quotes so poignant and profound that they will take
+  your breath away.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-that-take-your-breath-away/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Quotes-That-Take-Your-Breath-Away.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-that-take-your-breath-away/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-That-Take-Your-Breath-Away.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Morning Routine Ideas for Productivity and Wellness"
-date: "2023-12-11T11:31:45+01:00"
-author: "Seff Bray"
-description: "Transform your mornings and unlock a more productive, balanced day by exploring and implementing these tailored morning routine ideas."
+title: Morning Routine Ideas for Productivity and Wellness
+date: '2023-12-11T11:31:45+01:00'
+author: Seff Bray
+description: >-
+  Transform your mornings and unlock a more productive, balanced day by
+  exploring and implementing these tailored morning routine ideas.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/morning-routine-ideas/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/morning-routine-ideas.jpg'
+original_url: 'https://selfsaid.pages.dev/morning-routine-ideas/'
 ---
 
 ![Morning Routine Ideas for Productivity and Wellness](https://seffsaid.com/wp-content/uploads/morning-routine-ideas.jpg)

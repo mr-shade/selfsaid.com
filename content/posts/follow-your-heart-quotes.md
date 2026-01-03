@@ -1,11 +1,13 @@
 ---
-title: "150 Follow Your Heart Quotes for Courage and Self-Discovery"
-date: "2023-12-13T18:29:38+01:00"
-author: "Seff Bray"
-description: "Inspire your everyday decisions with our handpicked selection of follow your heart quotes – explore and be empowered."
+title: 150 Follow Your Heart Quotes for Courage and Self-Discovery
+date: '2023-12-13T18:29:38+01:00'
+author: Seff Bray
+description: >-
+  Inspire your everyday decisions with our handpicked selection of follow your
+  heart quotes – explore and be empowered.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/follow-your-heart-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/follow-your-heart-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/follow-your-heart-quotes/'
 ---
 
 ![Follow Your Heart Quotes](https://seffsaid.com/wp-content/uploads/follow-your-heart-quotes.jpg)

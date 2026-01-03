@@ -1,11 +1,13 @@
 ---
-title: "Bruce Springsteen’s Greatest Quotes"
-date: "2024-10-28T16:57:10+01:00"
-author: "Seff Bray"
-description: "Bruce Springsteen's best quotes, revealing insights about life and grit that fans and newcomers alike will find both relatable and inspiring."
+title: Bruce Springsteen’s Greatest Quotes
+date: '2024-10-28T16:57:10+01:00'
+author: Seff Bray
+description: >-
+  Bruce Springsteen's best quotes, revealing insights about life and grit that
+  fans and newcomers alike will find both relatable and inspiring.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/bruce-springsteen-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/bruce-springsteen-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/bruce-springsteen-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/bruce-springsteen-quotes.webp)

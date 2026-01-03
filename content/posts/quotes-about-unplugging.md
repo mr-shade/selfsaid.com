@@ -1,11 +1,13 @@
 ---
-title: "70 Quotes About Unplugging And Embracing A Digital Detox"
-date: "2024-04-22T17:32:40+02:00"
-author: "Seff Bray"
-description: "Discover the benefits of a digital detox where insights from philosophers, spiritual leaders and others enlighten you on the virtues of unplugging."
+title: 70 Quotes About Unplugging And Embracing A Digital Detox
+date: '2024-04-22T17:32:40+02:00'
+author: Seff Bray
+description: >-
+  Discover the benefits of a digital detox where insights from philosophers,
+  spiritual leaders and others enlighten you on the virtues of unplugging.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-unplugging/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/unplugging-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-about-unplugging/'
 ---
 
 ![Woman sitting at the edge of a lake enjoying a digital detox](https://seffsaid.com/wp-content/uploads/unplugging-quotes.webp)

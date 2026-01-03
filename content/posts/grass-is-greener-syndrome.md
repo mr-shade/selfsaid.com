@@ -1,11 +1,11 @@
 ---
-title: "How I Overcame ‘Grass is Greener’ Syndrome"
-date: "2025-10-10T11:07:45+02:00"
-author: "Seff Bray"
-description: "Find peace where you are by reading how I overcame Grass is Greener Syndrome."
+title: How I Overcame ‘Grass is Greener’ Syndrome
+date: '2025-10-10T11:07:45+02:00'
+author: Seff Bray
+description: Find peace where you are by reading how I overcame Grass is Greener Syndrome.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/grass-is-greener-syndrome/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Grass-is-Greener-Syndrome.webp'
+original_url: 'https://selfsaid.pages.dev/grass-is-greener-syndrome/'
 ---
 
 ![A lawn of beautiful green grass glistening in the morning sun](https://seffsaid.com/wp-content/uploads/Grass-is-Greener-Syndrome.webp)

@@ -1,11 +1,11 @@
 ---
-title: "12 Habits You Must Quit To Be Truly Happy"
-date: "2024-11-22T13:38:40+01:00"
-author: "Seff Bray"
-description: "Discover the 12 habits standing between you and a truly happy life."
+title: 12 Habits You Must Quit To Be Truly Happy
+date: '2024-11-22T13:38:40+01:00'
+author: Seff Bray
+description: Discover the 12 habits standing between you and a truly happy life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/habits-you-must-quit-to-be-happy/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/habits-you-must-quit-to-be-happy.webp'
+original_url: 'https://selfsaid.pages.dev/habits-you-must-quit-to-be-happy/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/habits-you-must-quit-to-be-happy.webp)

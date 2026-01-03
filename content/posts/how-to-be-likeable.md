@@ -1,11 +1,13 @@
 ---
-title: "How to Feel More at Ease and Connected with Others"
-date: "2025-06-11T15:01:57+02:00"
-author: "Seff Bray"
-description: "This article shares simple ways to feel more at ease with others. For anyone who wants to connect without losing themselves."
+title: How to Feel More at Ease and Connected with Others
+date: '2025-06-11T15:01:57+02:00'
+author: Seff Bray
+description: >-
+  This article shares simple ways to feel more at ease with others. For anyone
+  who wants to connect without losing themselves.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-be-likeable/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Feel-More-At-Ease.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-be-likeable/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Feel-More-At-Ease.webp)

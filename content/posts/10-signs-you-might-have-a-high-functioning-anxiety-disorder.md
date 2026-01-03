@@ -1,11 +1,14 @@
 ---
-title: "10 Signs You Might Have A High-Functioning Anxiety Disorder"
-date: "2024-03-19T12:28:22+01:00"
-author: "Seff Bray"
-description: "Feeling continuously anxious and stressed? Discover the 10 clear warning signs that you may be suffering from high-functioning anxiety."
+title: 10 Signs You Might Have A High-Functioning Anxiety Disorder
+date: '2024-03-19T12:28:22+01:00'
+author: Seff Bray
+description: >-
+  Feeling continuously anxious and stressed? Discover the 10 clear warning signs
+  that you may be suffering from high-functioning anxiety.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/10-signs-you-might-have-a-high-functioning-anxiety-disorder/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/High-Functioning-Anxiety-Disorder.webp'
+original_url: >-
+  https://selfsaid.pages.dev/10-signs-you-might-have-a-high-functioning-anxiety-disorder/
 ---
 
 ![Man with High-Functioning Anxiety Disorder looking out of a window into his garden](https://seffsaid.com/wp-content/uploads/High-Functioning-Anxiety-Disorder.webp)

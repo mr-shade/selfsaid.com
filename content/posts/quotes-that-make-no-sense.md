@@ -1,11 +1,13 @@
 ---
-title: "60 Deep Quotes That Make No Sense"
-date: "2024-10-16T13:13:00+02:00"
-author: "Seff Bray"
-description: "A selection of deep yet confusing quotes that initially seem profound, but soon leave you questioning their meaning."
+title: 60 Deep Quotes That Make No Sense
+date: '2024-10-16T13:13:00+02:00'
+author: Seff Bray
+description: >-
+  A selection of deep yet confusing quotes that initially seem profound, but
+  soon leave you questioning their meaning.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-that-make-no-sense/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-make-no-sense.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-that-make-no-sense/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-make-no-sense.webp)

@@ -1,11 +1,13 @@
 ---
-title: "10 Privileges We Forget to Be Thankful For"
-date: "2024-03-29T16:17:43+01:00"
-author: "Seff Bray"
-description: "This article shines a light on the everyday gifts that often go unnoticed. Discover a new appreciation for your daily life."
+title: 10 Privileges We Forget to Be Thankful For
+date: '2024-03-29T16:17:43+01:00'
+author: Seff Bray
+description: >-
+  This article shines a light on the everyday gifts that often go unnoticed.
+  Discover a new appreciation for your daily life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/privileges-we-forget-to-be-thankful-for/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Privileges-Thankful.webp'
+original_url: 'https://selfsaid.pages.dev/privileges-we-forget-to-be-thankful-for/'
 ---
 
 ![Woman walking through a meadow on a beautiful summer day](https://seffsaid.com/wp-content/uploads/Privileges-Thankful.webp)

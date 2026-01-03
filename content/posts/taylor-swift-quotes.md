@@ -1,11 +1,13 @@
 ---
-title: "Taylor Swift’s 50 Best Quotes"
-date: "2024-05-09T12:48:00+02:00"
-author: "Seff Bray"
-description: "Explore the best quotes from Taylor Swift on life, love, perseverance, growing up, and self-expression."
+title: Taylor Swift’s 50 Best Quotes
+date: '2024-05-09T12:48:00+02:00'
+author: Seff Bray
+description: >-
+  Explore the best quotes from Taylor Swift on life, love, perseverance, growing
+  up, and self-expression.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/taylor-swift-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Taylor-Swift-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/taylor-swift-quotes/'
 ---
 
 ![Taylor Swift in concert](https://seffsaid.com/wp-content/uploads/Taylor-Swift-Quotes.webp)

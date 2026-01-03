@@ -1,11 +1,13 @@
 ---
-title: "How to Create the Future You Want (Without Overwhelm)"
-date: "2025-04-07T14:38:36+02:00"
-author: "Seff Bray"
-description: "Want to shape your future without overwhelm or pressure? Discover gentle, everyday steps to create a life that feels good, not just looks good."
+title: How to Create the Future You Want (Without Overwhelm)
+date: '2025-04-07T14:38:36+02:00'
+author: Seff Bray
+description: >-
+  Want to shape your future without overwhelm or pressure? Discover gentle,
+  everyday steps to create a life that feels good, not just looks good.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/create-the-future-of-your-dreams/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/create-the-future.webp'
+original_url: 'https://selfsaid.pages.dev/create-the-future-of-your-dreams/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/create-the-future.webp)

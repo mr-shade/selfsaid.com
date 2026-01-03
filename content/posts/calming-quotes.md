@@ -1,11 +1,13 @@
 ---
-title: "Calming Quotes For When You Feel Overwhelmed"
-date: "2025-05-15T12:23:39+02:00"
-author: "Seff Bray"
-description: "A collection of 50 calming quotes to help you feel more grounded when life feels too much. Reminders to slow down, breathe, and take care of your peace."
+title: Calming Quotes For When You Feel Overwhelmed
+date: '2025-05-15T12:23:39+02:00'
+author: Seff Bray
+description: >-
+  A collection of 50 calming quotes to help you feel more grounded when life
+  feels too much. Reminders to slow down, breathe, and take care of your peace.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/calming-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/calming-quotes-600x300-1.webp'
+original_url: 'https://selfsaid.pages.dev/calming-quotes/'
 ---
 
 ![Calming Quotes](https://seffsaid.com/wp-content/uploads/calming-quotes-600x300-1.webp)

@@ -1,11 +1,13 @@
 ---
-title: "76 Self-Love Quotes for Loving Yourself More"
-date: "2024-11-08T17:23:59+01:00"
-author: "Seff Bray"
-description: "76 self-love quotes that will bring positivity, strength, and a renewed sense of self-worth to your life."
+title: 76 Self-Love Quotes for Loving Yourself More
+date: '2024-11-08T17:23:59+01:00'
+author: Seff Bray
+description: >-
+  76 self-love quotes that will bring positivity, strength, and a renewed sense
+  of self-worth to your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-love-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/self-love-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/self-love-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-love-quotes.webp)

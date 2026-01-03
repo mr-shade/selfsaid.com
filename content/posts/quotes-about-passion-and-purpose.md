@@ -1,11 +1,13 @@
 ---
-title: "90 Quotes About Passion And Purpose"
-date: "2024-03-24T19:00:00+01:00"
-author: "Seff Bray"
-description: "Discover 90 powerful quotes that will guide you to live a life filled with passion and purpose."
+title: 90 Quotes About Passion And Purpose
+date: '2024-03-24T19:00:00+01:00'
+author: Seff Bray
+description: >-
+  Discover 90 powerful quotes that will guide you to live a life filled with
+  passion and purpose.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-passion-and-purpose/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-passion-and-purpose.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-about-passion-and-purpose/'
 ---
 
 ![Classical guitarist playing his guitar with intense passion](https://seffsaid.com/wp-content/uploads/quotes-about-passion-and-purpose.webp)

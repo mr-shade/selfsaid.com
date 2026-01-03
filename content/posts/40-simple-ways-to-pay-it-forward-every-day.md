@@ -1,11 +1,13 @@
 ---
-title: "40 Simple Ways To Pay It Forward Every Day"
-date: "2024-03-12T11:55:12+01:00"
-author: "Seff Bray"
-description: "Want to spread some kindness? Here are 40 simple selfless ways you can pay it forward every day."
+title: 40 Simple Ways To Pay It Forward Every Day
+date: '2024-03-12T11:55:12+01:00'
+author: Seff Bray
+description: >-
+  Want to spread some kindness? Here are 40 simple selfless ways you can pay it
+  forward every day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/40-simple-ways-to-pay-it-forward-every-day/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/pay-it-forward.webp'
+original_url: 'https://selfsaid.pages.dev/40-simple-ways-to-pay-it-forward-every-day/'
 ---
 
 ![Hands reaching out to help each other in kindness](https://seffsaid.com/wp-content/uploads/pay-it-forward.webp)

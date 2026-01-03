@@ -1,11 +1,13 @@
 ---
-title: "How To Live Life"
-date: "2024-09-18T14:45:43+02:00"
-author: "Seff Bray"
-description: "This guide provides simple, practical advice on how to create a more fulfilling and purposeful life."
+title: How To Live Life
+date: '2024-09-18T14:45:43+02:00'
+author: Seff Bray
+description: >-
+  This guide provides simple, practical advice on how to create a more
+  fulfilling and purposeful life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-live-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-live-life.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-live-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-live-life.webp)

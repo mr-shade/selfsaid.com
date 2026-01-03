@@ -1,11 +1,13 @@
 ---
-title: "10 Sticky Notes We Need to Read Every Morning"
-date: "2024-08-02T14:02:19+02:00"
-author: "Seff Bray"
-description: "10 powerful sticky notes to read each morning to manifest a positive mindset and a super productive day."
+title: 10 Sticky Notes We Need to Read Every Morning
+date: '2024-08-02T14:02:19+02:00'
+author: Seff Bray
+description: >-
+  10 powerful sticky notes to read each morning to manifest a positive mindset
+  and a super productive day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/sticky-notes-we-need-to-read-every-morning/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/sticky-notes.webp'
+original_url: 'https://selfsaid.pages.dev/sticky-notes-we-need-to-read-every-morning/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/sticky-notes.webp)

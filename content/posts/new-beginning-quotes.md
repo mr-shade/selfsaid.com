@@ -1,11 +1,13 @@
 ---
-title: "99 New Beginning Quotes About Starting Over"
-date: "2023-12-26T15:17:05+01:00"
-author: "Seff Bray"
-description: "Find your inspiration for a fresh start among these 99 powerful New Beginning Quotes about starting over."
+title: 99 New Beginning Quotes About Starting Over
+date: '2023-12-26T15:17:05+01:00'
+author: Seff Bray
+description: >-
+  Find your inspiration for a fresh start among these 99 powerful New Beginning
+  Quotes about starting over.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/new-beginning-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/new-beginning-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/new-beginning-quotes/'
 ---
 
 ![New Beginning Quotes About Starting Over](https://seffsaid.com/wp-content/uploads/new-beginning-quotes.jpg)

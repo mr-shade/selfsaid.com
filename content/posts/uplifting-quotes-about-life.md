@@ -1,11 +1,13 @@
 ---
-title: "100 Uplifting Quotes About Life"
-date: "2024-02-22T12:22:23+01:00"
-author: "Seff Bray"
-description: "Discover the power of the 100 best uplifting quotes about life, designed to inspire and motivate you towards positive change."
+title: 100 Uplifting Quotes About Life
+date: '2024-02-22T12:22:23+01:00'
+author: Seff Bray
+description: >-
+  Discover the power of the 100 best uplifting quotes about life, designed to
+  inspire and motivate you towards positive change.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/uplifting-quotes-about-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/uplifting-quotes-about-life.webp'
+original_url: 'https://selfsaid.pages.dev/uplifting-quotes-about-life/'
 ---
 
 ![Hiker admiring the uplifting view from a mountain top](https://seffsaid.com/wp-content/uploads/uplifting-quotes-about-life.webp)

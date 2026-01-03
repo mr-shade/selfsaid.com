@@ -1,11 +1,13 @@
 ---
-title: "12 Questions You Should Ask Yourself Every Sunday"
-date: "2025-01-02T15:03:04+01:00"
-author: "Seff Bray"
-description: "Start your week on the right note by asking yourself these twelve transformative questions every Sunday."
+title: 12 Questions You Should Ask Yourself Every Sunday
+date: '2025-01-02T15:03:04+01:00'
+author: Seff Bray
+description: >-
+  Start your week on the right note by asking yourself these twelve
+  transformative questions every Sunday.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/questions-you-should-ask-yourself/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/questions-ask-yourself.webp'
+original_url: 'https://selfsaid.pages.dev/questions-you-should-ask-yourself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/questions-ask-yourself.webp)

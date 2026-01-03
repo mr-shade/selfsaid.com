@@ -1,11 +1,13 @@
 ---
-title: "J.K. Rowling’s Best Quotes"
-date: "2024-06-27T15:55:44+02:00"
-author: "Seff Bray"
-description: "Enjoy this compilation of J.K. Rowling's most uplifting and thought-provoking quotes."
+title: J.K. Rowling’s Best Quotes
+date: '2024-06-27T15:55:44+02:00'
+author: Seff Bray
+description: >-
+  Enjoy this compilation of J.K. Rowling's most uplifting and thought-provoking
+  quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/j-k-rowling-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/J-K-Rowling-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/j-k-rowling-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/J-K-Rowling-Quotes.webp)

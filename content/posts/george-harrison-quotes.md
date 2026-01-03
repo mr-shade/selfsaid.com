@@ -1,11 +1,13 @@
 ---
-title: "George Harrison’s 50 Best Quotes"
-date: "2024-03-06T15:08:55+01:00"
-author: "Seff Bray"
-description: "Discover 50 George Harrison quotes that offer his unique perspective on life, love, and everything in between."
+title: George Harrison’s 50 Best Quotes
+date: '2024-03-06T15:08:55+01:00'
+author: Seff Bray
+description: >-
+  Discover 50 George Harrison quotes that offer his unique perspective on life,
+  love, and everything in between.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/george-harrison-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/George-Harrison-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/george-harrison-quotes/'
 ---
 
 ![George Harrison on stage with The Beatles](https://seffsaid.com/wp-content/uploads/George-Harrison-Quotes.webp)

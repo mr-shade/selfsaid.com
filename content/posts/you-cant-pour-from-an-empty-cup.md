@@ -1,11 +1,14 @@
 ---
-title: "“You Can’t Pour from an Empty Cup” – Meaning and Why It Matters"
-date: "2025-05-12T11:56:49+02:00"
-author: "Seff Bray"
-description: "Discover the meaning of the quote “You can’t pour from an empty cup”. A thoughtful reflection on self-care, boundaries, and emotional rest."
+title: “You Can’t Pour from an Empty Cup” – Meaning and Why It Matters
+date: '2025-05-12T11:56:49+02:00'
+author: Seff Bray
+description: >-
+  Discover the meaning of the quote “You can’t pour from an empty cup”. A
+  thoughtful reflection on self-care, boundaries, and emotional rest.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/you-cant-pour-from-an-empty-cup/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/you-cant-pour-from-an-empty-cup-600x600-1.webp
+original_url: 'https://selfsaid.pages.dev/you-cant-pour-from-an-empty-cup/'
 ---
 
 ![You Can’t Pour from an Empty Cup](https://seffsaid.com/wp-content/uploads/you-cant-pour-from-an-empty-cup-600x600-1.webp)

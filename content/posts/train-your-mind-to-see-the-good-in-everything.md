@@ -1,11 +1,14 @@
 ---
-title: "Train Your Mind To See The Good In Everything"
-date: "2023-09-23T18:00:05+02:00"
-author: "Seff Bray"
-description: "Explore the power of positive thinking with our insightful page on the inspirational quote 'Train Your Mind To See The Good In Everything.'"
+title: Train Your Mind To See The Good In Everything
+date: '2023-09-23T18:00:05+02:00'
+author: Seff Bray
+description: >-
+  Explore the power of positive thinking with our insightful page on the
+  inspirational quote 'Train Your Mind To See The Good In Everything.'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/train-your-mind-to-see-the-good-in-everything/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Train-your-mind-to-see-the-good-in-everything.jpg
+original_url: 'https://selfsaid.pages.dev/train-your-mind-to-see-the-good-in-everything/'
 ---
 
 ![Train Your Mind To See The Good In Everything](https://seffsaid.com/wp-content/uploads/Train-your-mind-to-see-the-good-in-everything.jpg)

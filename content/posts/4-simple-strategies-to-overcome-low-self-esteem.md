@@ -1,11 +1,13 @@
 ---
-title: "4 Simple Strategies to Overcome Low Self-Esteem"
-date: "2024-01-23T12:26:19+01:00"
-author: "Seff Bray"
-description: "Ready to feel better about yourself? This guide on overcoming low self-esteem offers practical advice and strategies to boost your confidence."
+title: 4 Simple Strategies to Overcome Low Self-Esteem
+date: '2024-01-23T12:26:19+01:00'
+author: Seff Bray
+description: >-
+  Ready to feel better about yourself? This guide on overcoming low self-esteem
+  offers practical advice and strategies to boost your confidence.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/4-simple-strategies-to-overcome-low-self-esteem/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/overcoming-low-self-esteem.jpg'
+original_url: 'https://selfsaid.pages.dev/4-simple-strategies-to-overcome-low-self-esteem/'
 ---
 
 ![Overcoming Low Self-Esteem](https://seffsaid.com/wp-content/uploads/overcoming-low-self-esteem.jpg)

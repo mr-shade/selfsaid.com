@@ -1,11 +1,14 @@
 ---
-title: "Love Life Printable Quote"
-date: "2024-10-29T17:44:41+01:00"
-author: "Seff Said"
-description: "Set a positive tone with the “Love Life” downloadable printable quote, a beautiful reminder to approach each day with gratitude and optimism."
+title: Love Life Printable Quote
+date: '2024-10-29T17:44:41+01:00'
+author: Seff Said
+description: >-
+  Set a positive tone with the “Love Life” downloadable printable quote, a
+  beautiful reminder to approach each day with gratitude and optimism.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/love-life/"
+featured_image: >-
+  data:image/svg+xml,%3Csvg%20xmlns%3D%22http%3A%2F%2Fwww.w3.org%2F2000%2Fsvg%22%20width%3D%22640%22%20height%3D%22426%22%20viewBox%3D%220%200%20640%20426%22%3E%3C%2Fsvg%3E
+original_url: 'https://selfsaid.pages.dev/love-life/'
 ---
 
 All [Printable Quotes](/printable-quotes)

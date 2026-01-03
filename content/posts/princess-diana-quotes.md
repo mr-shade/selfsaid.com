@@ -1,11 +1,13 @@
 ---
-title: "50 Best Princess Diana Quotes"
-date: "2024-04-24T14:51:28+02:00"
-author: "Seff Bray"
-description: "Discover the wisdom and warmth of Princess Diana by reading through this collection of 50 of her best quotes."
+title: 50 Best Princess Diana Quotes
+date: '2024-04-24T14:51:28+02:00'
+author: Seff Bray
+description: >-
+  Discover the wisdom and warmth of Princess Diana by reading through this
+  collection of 50 of her best quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/princess-diana-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Princess-Diana-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/princess-diana-quotes/'
 ---
 
 ![Princess Diana](https://seffsaid.com/wp-content/uploads/Princess-Diana-Quotes.webp)

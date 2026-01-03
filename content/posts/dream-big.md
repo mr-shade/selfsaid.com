@@ -1,11 +1,14 @@
 ---
-title: "Dream Big Printable Quote"
-date: "2024-10-28T17:39:12+01:00"
-author: "Seff Said"
-description: "This vibrant and beautifully crafted design serves as a daily reminder to stay focused on your goals, passion, and purpose."
+title: Dream Big Printable Quote
+date: '2024-10-28T17:39:12+01:00'
+author: Seff Said
+description: >-
+  This vibrant and beautifully crafted design serves as a daily reminder to stay
+  focused on your goals, passion, and purpose.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/dream-big/"
+featured_image: >-
+  data:image/svg+xml,%3Csvg%20xmlns%3D%22http%3A%2F%2Fwww.w3.org%2F2000%2Fsvg%22%20width%3D%22640%22%20height%3D%22426%22%20viewBox%3D%220%200%20640%20426%22%3E%3C%2Fsvg%3E
+original_url: 'https://selfsaid.pages.dev/dream-big/'
 ---
 
 All [Printable Quotes](/printable-quotes)

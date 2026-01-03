@@ -1,11 +1,13 @@
 ---
-title: "8 Ways To Stop Procrastinating"
-date: "2024-03-26T15:56:32+01:00"
-author: "Seff Bray"
-description: "Discover 8 simple yet effective strategies to kick procrastination to the curb and skyrocket your productivity."
+title: 8 Ways To Stop Procrastinating
+date: '2024-03-26T15:56:32+01:00'
+author: Seff Bray
+description: >-
+  Discover 8 simple yet effective strategies to kick procrastination to the curb
+  and skyrocket your productivity.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-stop-procrastinating/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-stop-procrastinating/'
 ---
 
 ![An office worker busy working on a computer](https://seffsaid.com/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp)

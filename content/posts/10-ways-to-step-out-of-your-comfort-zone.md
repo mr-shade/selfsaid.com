@@ -1,11 +1,13 @@
 ---
-title: "10 Gentle Ways To Step Out Of Your Comfort Zone"
-date: "2024-05-06T12:00:38+02:00"
-author: "Seff Bray"
-description: "Discover 10 simple gentle ways to get yourself moving out of your comfort zone."
+title: 10 Gentle Ways To Step Out Of Your Comfort Zone
+date: '2024-05-06T12:00:38+02:00'
+author: Seff Bray
+description: >-
+  Discover 10 simple gentle ways to get yourself moving out of your comfort
+  zone.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/10-ways-to-step-out-of-your-comfort-zone/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Step-Out-Of-Your-Comfort-Zone.webp'
+original_url: 'https://selfsaid.pages.dev/10-ways-to-step-out-of-your-comfort-zone/'
 ---
 
 ![Man happy to have finally stepped out of his comfort zone](https://seffsaid.com/wp-content/uploads/Step-Out-Of-Your-Comfort-Zone.webp)

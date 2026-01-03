@@ -1,11 +1,13 @@
 ---
-title: "10 Genius Ways To Sneak Self-Care Into Your Daily Routine"
-date: "2025-01-22T12:07:33+01:00"
-author: "Seff Bray"
-description: "Transform ordinary moments into opportunities for self-care that will leave you refreshed and energized."
+title: 10 Genius Ways To Sneak Self-Care Into Your Daily Routine
+date: '2025-01-22T12:07:33+01:00'
+author: Seff Bray
+description: >-
+  Transform ordinary moments into opportunities for self-care that will leave
+  you refreshed and energized.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ways-to-sneak-self-care-into-your-daily-routine/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-daily-routine.webp'
+original_url: 'https://selfsaid.pages.dev/ways-to-sneak-self-care-into-your-daily-routine/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-daily-routine.webp)

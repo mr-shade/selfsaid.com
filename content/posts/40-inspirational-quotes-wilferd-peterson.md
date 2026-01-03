@@ -1,11 +1,13 @@
 ---
-title: "60 Incredibly Inspirational Wilferd Peterson Quotes"
-date: "2024-01-18T12:54:59+01:00"
-author: "Seff Bray"
-description: "60 inspirational quotes from Wilferd Peterson whose inspirational essays, books, and poems have inspired generations."
+title: 60 Incredibly Inspirational Wilferd Peterson Quotes
+date: '2024-01-18T12:54:59+01:00'
+author: Seff Bray
+description: >-
+  60 inspirational quotes from Wilferd Peterson whose inspirational essays,
+  books, and poems have inspired generations.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/40-inspirational-quotes-wilferd-peterson/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/wilferd-peterson-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/40-inspirational-quotes-wilferd-peterson/'
 ---
 
 ![Wilferd Peterson Quotes](https://seffsaid.com/wp-content/uploads/wilferd-peterson-quotes.jpg)

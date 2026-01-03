@@ -1,11 +1,13 @@
 ---
-title: "135 Quotes About Perseverance and Never Giving Up"
-date: "2024-01-08T11:09:53+01:00"
-author: "Seff Bray"
-description: "Discover the power of resilience in these 135 quotes about perseverance that will encourage you to keep pushing forward and never give up."
+title: 135 Quotes About Perseverance and Never Giving Up
+date: '2024-01-08T11:09:53+01:00'
+author: Seff Bray
+description: >-
+  Discover the power of resilience in these 135 quotes about perseverance that
+  will encourage you to keep pushing forward and never give up.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-perseverance/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-perseverance.jpg'
+original_url: 'https://selfsaid.pages.dev/quotes-about-perseverance/'
 ---
 
 ![Quotes About Perseverance](https://seffsaid.com/wp-content/uploads/quotes-about-perseverance.jpg)

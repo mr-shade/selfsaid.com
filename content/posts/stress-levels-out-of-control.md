@@ -1,11 +1,13 @@
 ---
-title: "10 Questions To Determine If Your Stress Levels Are Out Of Control"
-date: "2025-09-01T12:09:11+02:00"
-author: "Seff Bray"
-description: "Before stress takes a serious toll on your mind and body, these ten questions will tell you if your stress levels are getting out of control."
+title: 10 Questions To Determine If Your Stress Levels Are Out Of Control
+date: '2025-09-01T12:09:11+02:00'
+author: Seff Bray
+description: >-
+  Before stress takes a serious toll on your mind and body, these ten questions
+  will tell you if your stress levels are getting out of control.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/stress-levels-out-of-control/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/stress-levels-control.webp'
+original_url: 'https://selfsaid.pages.dev/stress-levels-out-of-control/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stress-levels-control.webp)

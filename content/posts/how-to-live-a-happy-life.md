@@ -1,11 +1,13 @@
 ---
-title: "How to Live a Happy Life (Without Chasing It)"
-date: "2025-06-12T12:52:48+02:00"
-author: "Seff Bray"
-description: "You don’t have to chase happiness to live a meaningful life. This guide offers ways to feel more grounded, present, and emotionally well."
+title: How to Live a Happy Life (Without Chasing It)
+date: '2025-06-12T12:52:48+02:00'
+author: Seff Bray
+description: >-
+  You don’t have to chase happiness to live a meaningful life. This guide offers
+  ways to feel more grounded, present, and emotionally well.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-live-a-happy-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/happy-life.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-live-a-happy-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/happy-life.webp)

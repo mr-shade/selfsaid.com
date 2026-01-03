@@ -1,11 +1,11 @@
 ---
-title: "50 Powerful Affirmations That Can Change Your Life"
-date: "2024-04-19T12:50:33+02:00"
-author: "Seff Bray"
-description: "Discover 50 powerful affirmations that have the power to change your life."
+title: 50 Powerful Affirmations That Can Change Your Life
+date: '2024-04-19T12:50:33+02:00'
+author: Seff Bray
+description: Discover 50 powerful affirmations that have the power to change your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/50-powerful-affirmations-that-can-change-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Powerful-Affirmations.webp'
+original_url: 'https://selfsaid.pages.dev/50-powerful-affirmations-that-can-change-life/'
 ---
 
 ![Woman reciting powerful affirmations](https://seffsaid.com/wp-content/uploads/Powerful-Affirmations.webp)

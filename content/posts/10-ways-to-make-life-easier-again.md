@@ -1,11 +1,11 @@
 ---
-title: "10 Easy Ways To Simplify Your Life"
-date: "2024-07-05T12:53:29+02:00"
-author: "Seff Bray"
-description: "10 easy ways to simplify your life and make life easier again."
+title: 10 Easy Ways To Simplify Your Life
+date: '2024-07-05T12:53:29+02:00'
+author: Seff Bray
+description: 10 easy ways to simplify your life and make life easier again.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/10-ways-to-make-life-easier-again/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Simplify-Your-Life.webp'
+original_url: 'https://selfsaid.pages.dev/10-ways-to-make-life-easier-again/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Simplify-Your-Life.webp)

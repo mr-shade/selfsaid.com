@@ -1,11 +1,13 @@
 ---
-title: "215 Free Spirit Quotes to Inspire Courageous Living"
-date: "2024-08-29T17:31:21+02:00"
-author: "Seff Bray"
-description: "Discover 215 Free Spirit Quotes to awaken your inner wild heart, ignite your passion, and inspire courageous living."
+title: 215 Free Spirit Quotes to Inspire Courageous Living
+date: '2024-08-29T17:31:21+02:00'
+author: Seff Bray
+description: >-
+  Discover 215 Free Spirit Quotes to awaken your inner wild heart, ignite your
+  passion, and inspire courageous living.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/free-spirit-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/free-spirit-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/free-spirit-quotes/'
 ---
 
 ![Free Spirit Quotes](https://seffsaid.com/wp-content/uploads/free-spirit-quotes.jpg)

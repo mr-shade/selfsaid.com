@@ -1,11 +1,13 @@
 ---
-title: "50 Quotes by J. Robert Oppenheimer"
-date: "2024-04-08T12:44:08+02:00"
-author: "Seff Bray"
-description: "50 quotes by J. Robert Oppenheimer revealing his perspective on life, science, and the moral complexities of technological advancement."
+title: 50 Quotes by J. Robert Oppenheimer
+date: '2024-04-08T12:44:08+02:00'
+author: Seff Bray
+description: >-
+  50 quotes by J. Robert Oppenheimer revealing his perspective on life, science,
+  and the moral complexities of technological advancement.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/j-robert-oppenheimer-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/J-Robert-Oppenheimer-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/j-robert-oppenheimer-quotes/'
 ---
 
 ![J. Robert Oppenheimer](https://seffsaid.com/wp-content/uploads/J-Robert-Oppenheimer-Quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "225 Tattoo Quotes about Strength, Love, and Life"
-date: "2023-12-19T18:03:40+01:00"
-author: "Seff Bray"
-description: "Explore the diverse and profound meanings behind ink art with these 225 tattoo quotes, & let them inspire your next piece of self-expression."
+title: '225 Tattoo Quotes about Strength, Love, and Life'
+date: '2023-12-19T18:03:40+01:00'
+author: Seff Bray
+description: >-
+  Explore the diverse and profound meanings behind ink art with these 225 tattoo
+  quotes, & let them inspire your next piece of self-expression.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/tattoo-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/tattoo-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/tattoo-quotes/'
 ---
 
 ![225 Tattoo Quotes about Strength, Love, and Life](https://seffsaid.com/wp-content/uploads/tattoo-quotes.jpg)

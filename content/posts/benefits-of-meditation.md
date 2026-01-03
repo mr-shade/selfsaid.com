@@ -1,11 +1,14 @@
 ---
-title: "The Real Benefits of Meditation"
-date: "2025-10-13T12:40:18+02:00"
-author: "Seff Bray"
-description: "Discover how meditation can calm your mind, balance your emotions, and bring more peace into your daily life."
+title: The Real Benefits of Meditation
+date: '2025-10-13T12:40:18+02:00'
+author: Seff Bray
+description: >-
+  Discover how meditation can calm your mind, balance your emotions, and bring
+  more peace into your daily life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/benefits-of-meditation/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/science-based-benefits-of-meditation.webp
+original_url: 'https://selfsaid.pages.dev/benefits-of-meditation/'
 ---
 
 ![Woman meditating at sea on a luxury yacht](https://seffsaid.com/wp-content/uploads/science-based-benefits-of-meditation.webp)

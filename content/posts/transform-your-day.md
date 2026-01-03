@@ -1,11 +1,13 @@
 ---
-title: "10 Life Hacks That Will Transform Your Day"
-date: "2024-12-16T12:48:00+01:00"
-author: "Seff Bray"
-description: "Learn how to take your daily routine to the next level with these 10 game-changing life hacks."
+title: 10 Life Hacks That Will Transform Your Day
+date: '2024-12-16T12:48:00+01:00'
+author: Seff Bray
+description: >-
+  Learn how to take your daily routine to the next level with these 10
+  game-changing life hacks.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/transform-your-day/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/life-hacks.webp'
+original_url: 'https://selfsaid.pages.dev/transform-your-day/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/life-hacks.webp)

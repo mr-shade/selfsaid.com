@@ -1,11 +1,13 @@
 ---
-title: "220 Morning Affirmations for Positive Energy and Daily Success"
-date: "2024-04-19T13:09:05+02:00"
-author: "Seff Bray"
-description: "Begin your day by delving into these 220 morning affirmations, crafted to bring positivity & intention into every aspect of your daily life."
+title: 220 Morning Affirmations for Positive Energy and Daily Success
+date: '2024-04-19T13:09:05+02:00'
+author: Seff Bray
+description: >-
+  Begin your day by delving into these 220 morning affirmations, crafted to
+  bring positivity & intention into every aspect of your daily life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/morning-affirmations/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/morning-affirmations-600x333-1.webp'
+original_url: 'https://selfsaid.pages.dev/morning-affirmations/'
 ---
 
 ![Woman reciting her morning affirmations](https://seffsaid.com/wp-content/uploads/morning-affirmations-600x333-1.webp)

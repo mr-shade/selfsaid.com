@@ -1,11 +1,13 @@
 ---
-title: "Conan Gray Quotes on Life, Love, Creativity, and Growing Up"
-date: "2024-09-09T12:32:06+02:00"
-author: "Seff Bray"
-description: "A collection of Conan Gray quotes that reflect his perspective on creativity, life, love, growing up, and his personal experiences."
+title: 'Conan Gray Quotes on Life, Love, Creativity, and Growing Up'
+date: '2024-09-09T12:32:06+02:00'
+author: Seff Bray
+description: >-
+  A collection of Conan Gray quotes that reflect his perspective on creativity,
+  life, love, growing up, and his personal experiences.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/conan-gray-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/conan-gray-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/conan-gray-quotes/'
 ---
 
 ![Conan Gray in concert](https://seffsaid.com/wp-content/uploads/conan-gray-quotes.webp)

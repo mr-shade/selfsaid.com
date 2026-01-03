@@ -1,11 +1,12 @@
 ---
-title: "Mindset Is What Separates The Best From The Rest"
-date: "2023-09-23T14:37:00+02:00"
-author: "Seff Bray"
-description: "Mindset Is What Separates The Best From The Rest"
+title: Mindset Is What Separates The Best From The Rest
+date: '2023-09-23T14:37:00+02:00'
+author: Seff Bray
+description: Mindset Is What Separates The Best From The Rest
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/mindset-is-what-separates-the-best-from-the-rest/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Mindset-is-what-separates-the-best-from-the-rest.jpg
+original_url: 'https://selfsaid.pages.dev/mindset-is-what-separates-the-best-from-the-rest/'
 ---
 
 ![Mindset is what separates the best from the rest](https://seffsaid.com/wp-content/uploads/Mindset-is-what-separates-the-best-from-the-rest.jpg)

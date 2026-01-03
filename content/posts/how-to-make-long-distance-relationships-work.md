@@ -1,11 +1,13 @@
 ---
-title: "How To Make Long Distance Relationships Work"
-date: "2024-05-09T13:45:36+02:00"
-author: "Seff Bray"
-description: "Discover 10 practical tips on maintaining a loving and fulfilling long-distance relationship."
+title: How To Make Long Distance Relationships Work
+date: '2024-05-09T13:45:36+02:00'
+author: Seff Bray
+description: >-
+  Discover 10 practical tips on maintaining a loving and fulfilling
+  long-distance relationship.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-make-long-distance-relationships-work/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/long-distance-relationship.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-make-long-distance-relationships-work/'
 ---
 
 ![Two people about to start a long distance relationship](https://seffsaid.com/wp-content/uploads/long-distance-relationship.webp)

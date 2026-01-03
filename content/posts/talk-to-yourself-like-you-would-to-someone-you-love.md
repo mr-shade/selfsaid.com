@@ -1,11 +1,16 @@
 ---
-title: "“Talk to Yourself Like You Would to Someone You Love” – Meaning and Why It Matters"
-date: "2025-05-13T13:10:56+02:00"
-author: "Seff Bray"
-description: "\"Talk to Yourself Like You Would to Someone You Love\" is a gentle reminder that the way you speak to yourself shapes how you feel and heal."
+title: >-
+  “Talk to Yourself Like You Would to Someone You Love” – Meaning and Why It
+  Matters
+date: '2025-05-13T13:10:56+02:00'
+author: Seff Bray
+description: >-
+  "Talk to Yourself Like You Would to Someone You Love" is a gentle reminder
+  that the way you speak to yourself shapes how you feel and heal.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/talk-to-yourself-like-you-would-to-someone-you-love/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/talk-yourself-love-600.webp'
+original_url: >-
+  https://selfsaid.pages.dev/talk-to-yourself-like-you-would-to-someone-you-love/
 ---
 
 ![Talk to Yourself Like You Would to Someone You Love](https://seffsaid.com/wp-content/uploads/talk-yourself-love-600.webp)

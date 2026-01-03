@@ -1,11 +1,11 @@
 ---
-title: "10 Questions To Help You Cultivate More Gratitude"
-date: "2025-02-19T12:47:58+01:00"
-author: "Seff Bray"
-description: "Want to feel more thankful? Start with these ten powerful questions."
+title: 10 Questions To Help You Cultivate More Gratitude
+date: '2025-02-19T12:47:58+01:00'
+author: Seff Bray
+description: Want to feel more thankful? Start with these ten powerful questions.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/cultivate-more-gratitude/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Cultivate-More-Gratitude.webp'
+original_url: 'https://selfsaid.pages.dev/cultivate-more-gratitude/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Cultivate-More-Gratitude.webp)

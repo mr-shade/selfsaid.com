@@ -1,11 +1,13 @@
 ---
-title: "10 Questions To Help You Define Your Boundaries"
-date: "2025-01-09T12:31:13+01:00"
-author: "Seff Bray"
-description: "Take control of your life by asking yourself these ten powerful questions to better define your personal boundaries."
+title: 10 Questions To Help You Define Your Boundaries
+date: '2025-01-09T12:31:13+01:00'
+author: Seff Bray
+description: >-
+  Take control of your life by asking yourself these ten powerful questions to
+  better define your personal boundaries.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/define-your-boundaries/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Define-Your-Boundaries.webp'
+original_url: 'https://selfsaid.pages.dev/define-your-boundaries/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Define-Your-Boundaries.webp)

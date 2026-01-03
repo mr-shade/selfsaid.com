@@ -1,11 +1,13 @@
 ---
-title: "14 Self-Care Hacks For Instant Relaxation"
-date: "2025-08-19T12:29:50+02:00"
-author: "Seff Bray"
-description: "Need calm right now? These 14 simple self-care hacks for instant relaxation will ease stress, restore balance, and bring peace into your day."
+title: 14 Self-Care Hacks For Instant Relaxation
+date: '2025-08-19T12:29:50+02:00'
+author: Seff Bray
+description: >-
+  Need calm right now? These 14 simple self-care hacks for instant relaxation
+  will ease stress, restore balance, and bring peace into your day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/instant-relaxation/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/instant-relaxation.webp'
+original_url: 'https://selfsaid.pages.dev/instant-relaxation/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/instant-relaxation.webp)

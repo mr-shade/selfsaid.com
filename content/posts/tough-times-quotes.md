@@ -1,11 +1,13 @@
 ---
-title: "50 Quotes On Staying Positive In Tough Times"
-date: "2024-11-17T15:15:47+01:00"
-author: "Seff Bray"
-description: "Find the inspiration you need to face life’s challenges with these 50 tough times quotes that remind you of your strength and resilience."
+title: 50 Quotes On Staying Positive In Tough Times
+date: '2024-11-17T15:15:47+01:00'
+author: Seff Bray
+description: >-
+  Find the inspiration you need to face life’s challenges with these 50 tough
+  times quotes that remind you of your strength and resilience.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/tough-times-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/tough-times-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/tough-times-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/tough-times-quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "How To Create An Exciting Future"
-date: "2024-08-06T15:52:43+02:00"
-author: "Seff Bray"
-description: "Five tips for creating an exciting future that will make you feel good right now!"
+title: How To Create An Exciting Future
+date: '2024-08-06T15:52:43+02:00'
+author: Seff Bray
+description: >-
+  Five tips for creating an exciting future that will make you feel good right
+  now!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-create-an-exciting-future/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/create-an-exciting-future.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-create-an-exciting-future/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/create-an-exciting-future.webp)

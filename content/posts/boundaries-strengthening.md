@@ -1,11 +1,13 @@
 ---
-title: "10 Questions To Determine If Your Boundaries Need Strengthening"
-date: "2025-02-22T18:18:44+01:00"
-author: "Seff Bray"
-description: "If you struggle to say no and feel guilty for prioritizing yourself it may be time to set firmer boundaries."
+title: 10 Questions To Determine If Your Boundaries Need Strengthening
+date: '2025-02-22T18:18:44+01:00'
+author: Seff Bray
+description: >-
+  If you struggle to say no and feel guilty for prioritizing yourself it may be
+  time to set firmer boundaries.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/boundaries-strengthening/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/boundaries-strengthening.webp'
+original_url: 'https://selfsaid.pages.dev/boundaries-strengthening/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/boundaries-strengthening.webp)

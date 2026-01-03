@@ -1,11 +1,13 @@
 ---
-title: "Kamala Harris Quotes"
-date: "2024-09-05T12:29:31+02:00"
-author: "Seff Bray"
-description: "These quotes reflect a range of Kamala Harris's thoughts and perspectives on leadership, justice, equality, and hope."
+title: Kamala Harris Quotes
+date: '2024-09-05T12:29:31+02:00'
+author: Seff Bray
+description: >-
+  These quotes reflect a range of Kamala Harris's thoughts and perspectives on
+  leadership, justice, equality, and hope.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/kamala-harris-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Kamala-Harris-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/kamala-harris-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Kamala-Harris-Quotes.webp)

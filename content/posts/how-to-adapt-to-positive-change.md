@@ -1,11 +1,11 @@
 ---
-title: "10 Questions To Help You Adapt To Positive Change"
-date: "2025-01-11T16:38:38+01:00"
-author: "Seff Bray"
-description: "Transform how you view change with ten simple yet powerful questions."
+title: 10 Questions To Help You Adapt To Positive Change
+date: '2025-01-11T16:38:38+01:00'
+author: Seff Bray
+description: Transform how you view change with ten simple yet powerful questions.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-adapt-to-positive-change/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/adapt-to-positive-change.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-adapt-to-positive-change/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/adapt-to-positive-change.webp)

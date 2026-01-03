@@ -1,11 +1,13 @@
 ---
-title: "6 Easy Ways to Develop a Positive Attitude"
-date: "2024-08-19T13:08:26+02:00"
-author: "Seff Bray"
-description: "Discover six easy and actionable ways to develop and maintain a positive attitude in your daily life."
+title: 6 Easy Ways to Develop a Positive Attitude
+date: '2024-08-19T13:08:26+02:00'
+author: Seff Bray
+description: >-
+  Discover six easy and actionable ways to develop and maintain a positive
+  attitude in your daily life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/easy-ways-to-develop-a-positive-attitude/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/positive-attitude.webp'
+original_url: 'https://selfsaid.pages.dev/easy-ways-to-develop-a-positive-attitude/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/positive-attitude.webp)

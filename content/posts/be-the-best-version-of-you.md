@@ -1,11 +1,14 @@
 ---
-title: "Be The Best Version Of You"
-date: "2024-06-17T16:16:03+02:00"
-author: "Seff Said"
-description: "Decorate your home with the SEFFSAID exclusive \"Be The Best Version Of You\" printable quote now available for instant download."
+title: Be The Best Version Of You
+date: '2024-06-17T16:16:03+02:00'
+author: Seff Said
+description: >-
+  Decorate your home with the SEFFSAID exclusive "Be The Best Version Of You"
+  printable quote now available for instant download.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/be-the-best-version-of-you/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Be-The-Best-Version-Of-You-800x800-1.webp
+original_url: 'https://selfsaid.pages.dev/be-the-best-version-of-you/'
 ---
 
 All [Printable Quotes](/printable-quotes)

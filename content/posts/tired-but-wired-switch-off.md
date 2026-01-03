@@ -1,11 +1,13 @@
 ---
-title: "Tired but Wired? This Helped Me Switch Off"
-date: "2025-07-22T12:27:56+02:00"
-author: "Seff Bray"
-description: "When your body is tired but your mind won’t settle, try this simple way to unwind and find calm."
+title: Tired but Wired? This Helped Me Switch Off
+date: '2025-07-22T12:27:56+02:00'
+author: Seff Bray
+description: >-
+  When your body is tired but your mind won’t settle, try this simple way to
+  unwind and find calm.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/tired-but-wired-switch-off/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/tired-but-wired-switch-off.webp'
+original_url: 'https://selfsaid.pages.dev/tired-but-wired-switch-off/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/tired-but-wired-switch-off.webp)

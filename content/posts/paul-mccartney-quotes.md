@@ -1,11 +1,13 @@
 ---
-title: "Paul McCartney’s 50 Best Quotes"
-date: "2024-03-18T12:06:14+01:00"
-author: "Seff Bray"
-description: "This compilation of Paul McCartney's 50 best quotes reveals the soul behind the songs that defined a generation."
+title: Paul McCartney’s 50 Best Quotes
+date: '2024-03-18T12:06:14+01:00'
+author: Seff Bray
+description: >-
+  This compilation of Paul McCartney's 50 best quotes reveals the soul behind
+  the songs that defined a generation.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/paul-mccartney-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Paul-McCartney-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/paul-mccartney-quotes/'
 ---
 
 ![Paul McCartney on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Paul-McCartney-Quotes.webp)

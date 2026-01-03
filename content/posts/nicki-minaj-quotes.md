@@ -1,11 +1,13 @@
 ---
-title: "Nicki Minaj’s Best Quotes"
-date: "2024-06-04T15:16:57+02:00"
-author: "Seff Bray"
-description: "Experience the brilliance of Nicki Minaj with this compilation of her 50 best quotes."
+title: Nicki Minaj’s Best Quotes
+date: '2024-06-04T15:16:57+02:00'
+author: Seff Bray
+description: >-
+  Experience the brilliance of Nicki Minaj with this compilation of her 50 best
+  quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/nicki-minaj-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Nicki-Minaj-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/nicki-minaj-quotes/'
 ---
 
 ![Nicki Minaj performing live on stage](https://seffsaid.com/wp-content/uploads/Nicki-Minaj-Quotes.webp)

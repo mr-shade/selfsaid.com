@@ -1,11 +1,14 @@
 ---
-title: "No Guts. No Glory. No Legend. No Story."
-date: "2023-08-24T11:12:16+02:00"
-author: "Seff Bray"
-description: "Delve into the essence of courage and success with our exploration of the quote 'No guts. No glory. No legend. No story,'"
+title: No Guts. No Glory. No Legend. No Story.
+date: '2023-08-24T11:12:16+02:00'
+author: Seff Bray
+description: >-
+  Delve into the essence of courage and success with our exploration of the
+  quote 'No guts. No glory. No legend. No story,'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/no-guts-no-glory-no-legend-no-story/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/No-guts-No-glory-No-legend-No-story.jpg
+original_url: 'https://selfsaid.pages.dev/no-guts-no-glory-no-legend-no-story/'
 ---
 
 ![No guts. No glory. No legend. No story.](https://seffsaid.com/wp-content/uploads/No-guts-No-glory-No-legend-No-story.jpg)

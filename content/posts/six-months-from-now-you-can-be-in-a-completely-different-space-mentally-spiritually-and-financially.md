@@ -1,11 +1,18 @@
 ---
-title: "Six Months From Now You Can Be In A Completely Different Space Mentally, Spiritually, And Financially."
-date: "2023-08-24T11:58:00+02:00"
-author: "Seff Bray"
-description: "Discover the potential for transformation with our insight into the quote 'Six Months From Now You Can Be In A Completely Different Space Mentally, Spiritually, And Financially,'"
+title: >-
+  Six Months From Now You Can Be In A Completely Different Space Mentally,
+  Spiritually, And Financially.
+date: '2023-08-24T11:58:00+02:00'
+author: Seff Bray
+description: >-
+  Discover the potential for transformation with our insight into the quote 'Six
+  Months From Now You Can Be In A Completely Different Space Mentally,
+  Spiritually, And Financially,'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially.jpg
+original_url: >-
+  https://selfsaid.pages.dev/six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially/
 ---
 
 ![Six months from now you can be in a completely different space mentally, spiritually, and financially.](https://seffsaid.com/wp-content/uploads/Six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially.jpg)

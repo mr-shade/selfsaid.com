@@ -1,11 +1,13 @@
 ---
-title: "10 Reasons To Stop Being A People Pleaser – The Ugly Truth"
-date: "2025-03-07T12:30:05+01:00"
-author: "Seff Bray"
-description: "Discover the ways people-pleasing destroys your mental well-being while keeping you stuck in a cycle of self-sacrifice."
+title: 10 Reasons To Stop Being A People Pleaser – The Ugly Truth
+date: '2025-03-07T12:30:05+01:00'
+author: Seff Bray
+description: >-
+  Discover the ways people-pleasing destroys your mental well-being while
+  keeping you stuck in a cycle of self-sacrifice.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/stop-being-a-people-pleaser/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/stop-being-a-people-pleaser.webp'
+original_url: 'https://selfsaid.pages.dev/stop-being-a-people-pleaser/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stop-being-a-people-pleaser.webp)

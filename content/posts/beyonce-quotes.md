@@ -1,11 +1,13 @@
 ---
-title: "Beyonce’s 50 Best Quotes"
-date: "2024-05-28T12:36:48+02:00"
-author: "Seff Bray"
-description: "Discover 50 of Beyoncé's best quotes that capture her indomitable spirit and wisdom."
+title: Beyonce’s 50 Best Quotes
+date: '2024-05-28T12:36:48+02:00'
+author: Seff Bray
+description: >-
+  Discover 50 of Beyoncé's best quotes that capture her indomitable spirit and
+  wisdom.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/beyonce-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Beyonce-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/beyonce-quotes/'
 ---
 
 ![Beyonce in concert](https://seffsaid.com/wp-content/uploads/Beyonce-Quotes.webp)

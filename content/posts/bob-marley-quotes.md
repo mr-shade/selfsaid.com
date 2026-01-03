@@ -1,11 +1,13 @@
 ---
-title: "Bob Marley Quotes On Life, Love & Happiness"
-date: "2024-09-24T12:28:10+02:00"
-author: "Seff Bray"
-description: "Bob Marley's quotes offer a fresh perspective on how to live a life full of happiness, love, meaning, and positivity every day."
+title: 'Bob Marley Quotes On Life, Love & Happiness'
+date: '2024-09-24T12:28:10+02:00'
+author: Seff Bray
+description: >-
+  Bob Marley's quotes offer a fresh perspective on how to live a life full of
+  happiness, love, meaning, and positivity every day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/bob-marley-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Bob-Marley-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/bob-marley-quotes/'
 ---
 
 ![Bob Marley performing live](https://seffsaid.com/wp-content/uploads/Bob-Marley-Quotes.webp)

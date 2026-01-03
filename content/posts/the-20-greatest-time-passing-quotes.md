@@ -1,11 +1,13 @@
 ---
-title: "The 20 Greatest Time Passing Quotes"
-date: "2024-06-28T15:20:27+02:00"
-author: "Seff Bray"
-description: "Discover the 20 greatest time-passing quotes about the importance of making every second count."
+title: The 20 Greatest Time Passing Quotes
+date: '2024-06-28T15:20:27+02:00'
+author: Seff Bray
+description: >-
+  Discover the 20 greatest time-passing quotes about the importance of making
+  every second count.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/the-20-greatest-time-passing-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Time-Passing-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/the-20-greatest-time-passing-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Time-Passing-Quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "12 Ways to Make Today a Great Day"
-date: "2025-10-03T08:25:13+02:00"
-author: "Seff Bray"
-description: "Here are 12 simple ways to make today a great day. Practical tips for more calm, energy, and joy in everyday life."
+title: 12 Ways to Make Today a Great Day
+date: '2025-10-03T08:25:13+02:00'
+author: Seff Bray
+description: >-
+  Here are 12 simple ways to make today a great day. Practical tips for more
+  calm, energy, and joy in everyday life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ways-to-make-today-a-great-day/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Ways-to-Make-Today-a-Great-Day.webp'
+original_url: 'https://selfsaid.pages.dev/ways-to-make-today-a-great-day/'
 ---
 
 ![Woman having a great day walking along a cliff top by the sea](https://seffsaid.com/wp-content/uploads/Ways-to-Make-Today-a-Great-Day.webp)

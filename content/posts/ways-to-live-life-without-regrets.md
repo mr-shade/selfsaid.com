@@ -1,11 +1,13 @@
 ---
-title: "8 Courageous Ways to Live Life Without Regrets"
-date: "2024-05-17T12:58:53+02:00"
-author: "Seff Bray"
-description: "Learn 8 powerful ways to ensure your life is full of joy and free from regrets."
+title: 8 Courageous Ways to Live Life Without Regrets
+date: '2024-05-17T12:58:53+02:00'
+author: Seff Bray
+description: >-
+  Learn 8 powerful ways to ensure your life is full of joy and free from
+  regrets.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ways-to-live-life-without-regrets/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Live-Life-Without-Regrets.webp'
+original_url: 'https://selfsaid.pages.dev/ways-to-live-life-without-regrets/'
 ---
 
 ![Four friends socializing outside at a bar](https://seffsaid.com/wp-content/uploads/Live-Life-Without-Regrets.webp)

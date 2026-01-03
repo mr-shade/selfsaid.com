@@ -1,11 +1,13 @@
 ---
-title: "60 Powerful ‘You Only Live Once’ Quotes"
-date: "2024-10-03T12:40:07+02:00"
-author: "Seff Bray"
-description: "60 powerful 'you only live once' quotes that will challenge you to make the most of each and every day."
+title: 60 Powerful ‘You Only Live Once’ Quotes
+date: '2024-10-03T12:40:07+02:00'
+author: Seff Bray
+description: >-
+  60 powerful 'you only live once' quotes that will challenge you to make the
+  most of each and every day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/you-only-live-once-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/you-only-live-once-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/you-only-live-once-quotes/'
 ---
 
 ![Couple in love hugging](https://seffsaid.com/wp-content/uploads/you-only-live-once-quotes.webp)

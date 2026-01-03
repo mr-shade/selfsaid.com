@@ -1,11 +1,13 @@
 ---
-title: "Madonna’s Best Quotes"
-date: "2024-06-13T11:14:34+02:00"
-author: "Seff Bray"
-description: "Discover the wisdom of Madonna with this compilation of her most significant and inspiring quotes."
+title: Madonna’s Best Quotes
+date: '2024-06-13T11:14:34+02:00'
+author: Seff Bray
+description: >-
+  Discover the wisdom of Madonna with this compilation of her most significant
+  and inspiring quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/madonna-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Madonna-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/madonna-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Madonna-Quotes.webp)

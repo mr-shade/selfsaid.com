@@ -1,11 +1,13 @@
 ---
-title: "50 Best BTS Quotes"
-date: "2024-09-02T15:02:12+02:00"
-author: "Seff Bray"
-description: "Discover the 50 best BTS quotes on life, love, music, philosophy, and the wisdom they've gained through their experiences."
+title: 50 Best BTS Quotes
+date: '2024-09-02T15:02:12+02:00'
+author: Seff Bray
+description: >-
+  Discover the 50 best BTS quotes on life, love, music, philosophy, and the
+  wisdom they've gained through their experiences.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/bts-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/BTS-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/bts-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/BTS-Quotes.webp)

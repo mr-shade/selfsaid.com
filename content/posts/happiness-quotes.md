@@ -1,11 +1,13 @@
 ---
-title: "110 Happiness Quotes To Brighten Your Day"
-date: "2024-03-03T19:02:36+01:00"
-author: "Seff Bray"
-description: "Everyone has tough days. Let these 110 Inspirational Quotes about Happiness lift your spirits and remind you of better days ahead."
+title: 110 Happiness Quotes To Brighten Your Day
+date: '2024-03-03T19:02:36+01:00'
+author: Seff Bray
+description: >-
+  Everyone has tough days. Let these 110 Inspirational Quotes about Happiness
+  lift your spirits and remind you of better days ahead.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/happiness-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/happiness-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/happiness-quotes/'
 ---
 
 ![A very happy couple laughing together at the beach](https://seffsaid.com/wp-content/uploads/happiness-quotes.webp)

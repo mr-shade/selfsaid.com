@@ -1,11 +1,13 @@
 ---
-title: "15 Powerful Affirmations To Transform Your Mindset"
-date: "2025-01-20T16:21:21+01:00"
-author: "Seff Bray"
-description: "Unlock the secret to a happier mindset with 15 affirmations designed to uplift and empower your thinking."
+title: 15 Powerful Affirmations To Transform Your Mindset
+date: '2025-01-20T16:21:21+01:00'
+author: Seff Bray
+description: >-
+  Unlock the secret to a happier mindset with 15 affirmations designed to uplift
+  and empower your thinking.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/affirmations-to-transform-your-mindset/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/affirmations-mindset.webp'
+original_url: 'https://selfsaid.pages.dev/affirmations-to-transform-your-mindset/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/affirmations-mindset.webp)

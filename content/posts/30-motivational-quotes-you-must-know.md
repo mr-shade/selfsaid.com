@@ -1,11 +1,13 @@
 ---
-title: "30 Motivational Quotes Everyone Needs To Hear"
-date: "2024-09-11T12:24:19+02:00"
-author: "Seff Bray"
-description: "These 30 epic motivational quotes will inspire you to achieve success, fortune, and happiness."
+title: 30 Motivational Quotes Everyone Needs To Hear
+date: '2024-09-11T12:24:19+02:00'
+author: Seff Bray
+description: >-
+  These 30 epic motivational quotes will inspire you to achieve success,
+  fortune, and happiness.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/30-motivational-quotes-you-must-know/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/motivational-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/30-motivational-quotes-you-must-know/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/motivational-quotes.webp)

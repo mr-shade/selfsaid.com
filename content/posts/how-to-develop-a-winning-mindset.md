@@ -1,11 +1,13 @@
 ---
-title: "How To Develop A Winning Mindset"
-date: "2024-07-20T17:17:10+02:00"
-author: "Seff Bray"
-description: "Learn how to develop a winning mindset that will not only help you reach your goals but also transform your entire approach to life."
+title: How To Develop A Winning Mindset
+date: '2024-07-20T17:17:10+02:00'
+author: Seff Bray
+description: >-
+  Learn how to develop a winning mindset that will not only help you reach your
+  goals but also transform your entire approach to life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-develop-a-winning-mindset/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Develop-A-Winning-Mindset.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-develop-a-winning-mindset/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Develop-A-Winning-Mindset.webp)

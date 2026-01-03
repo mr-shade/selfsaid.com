@@ -1,11 +1,13 @@
 ---
-title: "Quotes About Inner Beauty"
-date: "2024-09-26T12:07:18+02:00"
-author: "Seff Bray"
-description: "These quotes about inner beauty offer simple reminders of the deeper beauty that shines through a person’s character and actions."
+title: Quotes About Inner Beauty
+date: '2024-09-26T12:07:18+02:00'
+author: Seff Bray
+description: >-
+  These quotes about inner beauty offer simple reminders of the deeper beauty
+  that shines through a person’s character and actions.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-inner-beauty/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-inner-beauty.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-about-inner-beauty/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-inner-beauty.webp)

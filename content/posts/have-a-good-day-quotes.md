@@ -1,11 +1,14 @@
 ---
-title: "218 Inspirational ‘Have A Good Day’ Quotes to Uplift and Inspire"
-date: "2024-09-13T16:04:17+02:00"
-author: "Seff Bray"
-description: "Allow these 218 inspirational 'Have A Good Day' Quotes to serve as a reminder of life's beauty & potential, filling your day with positivity."
+title: 218 Inspirational ‘Have A Good Day’ Quotes to Uplift and Inspire
+date: '2024-09-13T16:04:17+02:00'
+author: Seff Bray
+description: >-
+  Allow these 218 inspirational 'Have A Good Day' Quotes to serve as a reminder
+  of life's beauty & potential, filling your day with positivity.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/have-a-good-day-quotes/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Inspirational-Have-A-Good-Day-Quotes.jpg
+original_url: 'https://selfsaid.pages.dev/have-a-good-day-quotes/'
 ---
 
 ![218 Inspirational 'Have A Good Day' Quotes](https://seffsaid.com/wp-content/uploads/Inspirational-Have-A-Good-Day-Quotes.jpg)

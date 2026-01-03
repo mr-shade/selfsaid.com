@@ -1,11 +1,13 @@
 ---
-title: "Martin Luther King Jr. Quotes About Courage, Change, and Care"
-date: "2025-06-12T19:03:10+02:00"
-author: "Seff Bray"
-description: "Martin Luther King Jr. quotes about courage, change, and care. Reminders to help you move forward with clarity, strength, and compassion."
+title: 'Martin Luther King Jr. Quotes About Courage, Change, and Care'
+date: '2025-06-12T19:03:10+02:00'
+author: Seff Bray
+description: >-
+  Martin Luther King Jr. quotes about courage, change, and care. Reminders to
+  help you move forward with clarity, strength, and compassion.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/martin-luther-king-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/martin-luther-king-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/martin-luther-king-quotes/'
 ---
 
 ![Martin Luther King Quotes](https://seffsaid.com/wp-content/uploads/martin-luther-king-quotes.jpg)

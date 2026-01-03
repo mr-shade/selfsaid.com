@@ -1,11 +1,13 @@
 ---
-title: "26 Best Short ‘Life Quotes’"
-date: "2024-07-01T15:22:05+02:00"
-author: "Seff Bray"
-description: "The 26 best short ‘Life Quotes’ that will fill you with inspiration and brighten your day."
+title: 26 Best Short ‘Life Quotes’
+date: '2024-07-01T15:22:05+02:00'
+author: Seff Bray
+description: >-
+  The 26 best short ‘Life Quotes’ that will fill you with inspiration and
+  brighten your day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/the-26-best-short-life-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/best-short-life-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/the-26-best-short-life-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/best-short-life-quotes.webp)

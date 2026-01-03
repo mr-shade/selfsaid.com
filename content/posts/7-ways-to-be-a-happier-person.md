@@ -1,11 +1,13 @@
 ---
-title: "7 Simple Habits That Will Make You A Happier Person"
-date: "2024-08-09T17:38:38+02:00"
-author: "Seff Bray"
-description: "Discover 7 simple life changes that can make a huge difference to your appreciation and enjoyment of life and make you a much happier person."
+title: 7 Simple Habits That Will Make You A Happier Person
+date: '2024-08-09T17:38:38+02:00'
+author: Seff Bray
+description: >-
+  Discover 7 simple life changes that can make a huge difference to your
+  appreciation and enjoyment of life and make you a much happier person.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/7-ways-to-be-a-happier-person/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-be-happy.webp'
+original_url: 'https://selfsaid.pages.dev/7-ways-to-be-a-happier-person/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-be-happy.webp)

@@ -1,11 +1,13 @@
 ---
-title: "10 Simple Hacks To Take Back Time For Yourself"
-date: "2025-01-08T12:53:16+01:00"
-author: "Seff Bray"
-description: "Learn how to reclaim time for yourself with 10 simple daily hacks that really work."
+title: 10 Simple Hacks To Take Back Time For Yourself
+date: '2025-01-08T12:53:16+01:00'
+author: Seff Bray
+description: >-
+  Learn how to reclaim time for yourself with 10 simple daily hacks that really
+  work.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/take-back-time-for-yourself/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/hacks-to-take-back-time.webp'
+original_url: 'https://selfsaid.pages.dev/take-back-time-for-yourself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/hacks-to-take-back-time.webp)

@@ -1,11 +1,13 @@
 ---
-title: "14 Ways To Declutter Your Life"
-date: "2025-09-19T11:44:35+02:00"
-author: "Seff Bray"
-description: "Feeling overwhelmed by clutter? Discover 14 simple ways to declutter your life, clear space in your home and mind, and create more calm each day."
+title: 14 Ways To Declutter Your Life
+date: '2025-09-19T11:44:35+02:00'
+author: Seff Bray
+description: >-
+  Feeling overwhelmed by clutter? Discover 14 simple ways to declutter your
+  life, clear space in your home and mind, and create more calm each day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/14-ways-to-declutter-your-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Declutter-Your-Life.webp'
+original_url: 'https://selfsaid.pages.dev/14-ways-to-declutter-your-life/'
 ---
 
 ![Happy women enjoying life free of clutter](https://seffsaid.com/wp-content/uploads/Declutter-Your-Life.webp)

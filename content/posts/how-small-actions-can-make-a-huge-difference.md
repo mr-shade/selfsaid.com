@@ -1,11 +1,13 @@
 ---
-title: "How Small Actions Can Make a Huge Difference To Your Life"
-date: "2024-07-24T12:32:45+02:00"
-author: "Seff Bray"
-description: "Discover the psychology behind the effectiveness of small actions and actionable advice on how you can harness this power for yourself."
+title: How Small Actions Can Make a Huge Difference To Your Life
+date: '2024-07-24T12:32:45+02:00'
+author: Seff Bray
+description: >-
+  Discover the psychology behind the effectiveness of small actions and
+  actionable advice on how you can harness this power for yourself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-small-actions-can-make-a-huge-difference/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Small-Actions.webp'
+original_url: 'https://selfsaid.pages.dev/how-small-actions-can-make-a-huge-difference/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Small-Actions.webp)

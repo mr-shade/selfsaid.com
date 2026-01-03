@@ -1,11 +1,13 @@
 ---
-title: "How To Live The Good Life"
-date: "2024-10-13T17:11:54+02:00"
-author: "Seff Bray"
-description: "Discover how to cultivate a life filled with purpose, happiness, and fulfillment every single day. Live the good life starting today."
+title: How To Live The Good Life
+date: '2024-10-13T17:11:54+02:00'
+author: Seff Bray
+description: >-
+  Discover how to cultivate a life filled with purpose, happiness, and
+  fulfillment every single day. Live the good life starting today.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-live-the-good-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-live-the-good-life.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-live-the-good-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-live-the-good-life.webp)

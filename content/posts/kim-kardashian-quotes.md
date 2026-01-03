@@ -1,11 +1,13 @@
 ---
-title: "Kim Kardashian’s 50 Best Quotes"
-date: "2024-04-16T12:25:57+02:00"
-author: "Seff Bray"
-description: "See the world through the eyes of Kim Kardashian with this collection of her 50 best quotes"
+title: Kim Kardashian’s 50 Best Quotes
+date: '2024-04-16T12:25:57+02:00'
+author: Seff Bray
+description: >-
+  See the world through the eyes of Kim Kardashian with this collection of her
+  50 best quotes
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/kim-kardashian-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Kim-Kardashian-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/kim-kardashian-quotes/'
 ---
 
 ![Kim Kardashian](https://seffsaid.com/wp-content/uploads/Kim-Kardashian-Quotes.webp)

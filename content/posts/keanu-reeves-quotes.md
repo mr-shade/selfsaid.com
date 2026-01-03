@@ -1,11 +1,13 @@
 ---
-title: "50 Powerful Quotes From Keanu Reeves"
-date: "2024-04-05T12:43:35+02:00"
-author: "Seff Bray"
-description: "50 powerful quotes from Keanu Reeves that capture his philosophy, kindness, and unique outlook on life."
+title: 50 Powerful Quotes From Keanu Reeves
+date: '2024-04-05T12:43:35+02:00'
+author: Seff Bray
+description: >-
+  50 powerful quotes from Keanu Reeves that capture his philosophy, kindness,
+  and unique outlook on life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/keanu-reeves-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/keanu-reeves-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/keanu-reeves-quotes/'
 ---
 
 ![Keanu Reeves dressed as John Wick](https://seffsaid.com/wp-content/uploads/keanu-reeves-quotes.webp)

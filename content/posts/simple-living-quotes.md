@@ -1,11 +1,13 @@
 ---
-title: "50 Simple Living Quotes to Help You Slow Down"
-date: "2025-05-08T15:13:20+02:00"
-author: "Seff Bray"
-description: "50 simple living quotes to help you slow down and reconnect with what matters. Thoughtful reminders to bring peace, presence, and clarity to your days."
+title: 50 Simple Living Quotes to Help You Slow Down
+date: '2025-05-08T15:13:20+02:00'
+author: Seff Bray
+description: >-
+  50 simple living quotes to help you slow down and reconnect with what matters.
+  Thoughtful reminders to bring peace, presence, and clarity to your days.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/simple-living-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/simple-living-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/simple-living-quotes/'
 ---
 
 ![Simple Living Quotes](https://seffsaid.com/wp-content/uploads/simple-living-quotes.webp)

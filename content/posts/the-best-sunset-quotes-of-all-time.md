@@ -1,11 +1,13 @@
 ---
-title: "192 Quotes That Celebrate The Beauty Of Sunsets"
-date: "2024-04-01T12:23:22+02:00"
-author: "Seff Bray"
-description: "192 perspectives on the daily masterpiece that is the sunset. Each quote is a tribute to its unique beauty."
+title: 192 Quotes That Celebrate The Beauty Of Sunsets
+date: '2024-04-01T12:23:22+02:00'
+author: Seff Bray
+description: >-
+  192 perspectives on the daily masterpiece that is the sunset. Each quote is a
+  tribute to its unique beauty.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/the-best-sunset-quotes-of-all-time/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/sunset-quotes-1024x576-1.jpg'
+original_url: 'https://selfsaid.pages.dev/the-best-sunset-quotes-of-all-time/'
 ---
 
 ![192 Quotes on the Beauty of Sunsets](https://seffsaid.com/wp-content/uploads/sunset-quotes-1024x576-1.jpg)

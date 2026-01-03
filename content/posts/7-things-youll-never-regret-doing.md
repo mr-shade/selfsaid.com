@@ -1,11 +1,14 @@
 ---
-title: "7 Things You’ll Never Regret Doing"
-date: "2024-07-29T15:55:23+02:00"
-author: "Seff Bray"
-description: "Discover the life choices you can make starting today to avoid the bitter taste of regret."
+title: 7 Things You’ll Never Regret Doing
+date: '2024-07-29T15:55:23+02:00'
+author: Seff Bray
+description: >-
+  Discover the life choices you can make starting today to avoid the bitter
+  taste of regret.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/7-things-youll-never-regret-doing/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/things-you-will-never-regret-doing.webp
+original_url: 'https://selfsaid.pages.dev/7-things-youll-never-regret-doing/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/things-you-will-never-regret-doing.webp)

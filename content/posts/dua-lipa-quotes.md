@@ -1,11 +1,13 @@
 ---
-title: "Dua Lipa’s Best Quotes"
-date: "2024-08-11T16:36:40+02:00"
-author: "Seff Bray"
-description: "Get inspired by Dua Lipa's best quotes that capture her fearless attitude and unwavering commitment to being true to herself."
+title: Dua Lipa’s Best Quotes
+date: '2024-08-11T16:36:40+02:00'
+author: Seff Bray
+description: >-
+  Get inspired by Dua Lipa's best quotes that capture her fearless attitude and
+  unwavering commitment to being true to herself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/dua-lipa-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Dua-Lipa-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/dua-lipa-quotes/'
 ---
 
 ![Dua Lipa In Concert](https://seffsaid.com/wp-content/uploads/Dua-Lipa-quotes.webp)

@@ -1,11 +1,14 @@
 ---
-title: "50 Quotes About Trust, Healing, and Letting Go"
-date: "2025-04-09T12:01:02+02:00"
-author: "Seff Bray"
-description: "50 gentle quotes about trust, healing, and letting go. This collection offers calm encouragement for anyone rebuilding self-trust or learning to open their heart again."
+title: '50 Quotes About Trust, Healing, and Letting Go'
+date: '2025-04-09T12:01:02+02:00'
+author: Seff Bray
+description: >-
+  50 gentle quotes about trust, healing, and letting go. This collection offers
+  calm encouragement for anyone rebuilding self-trust or learning to open their
+  heart again.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-trust/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/trust-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-about-trust/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/trust-quotes.webp)

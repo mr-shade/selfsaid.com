@@ -1,11 +1,13 @@
 ---
-title: "Can’t Focus Lately? Try This 5-Minute Fix"
-date: "2025-07-16T12:38:50+02:00"
-author: "Seff Bray"
-description: "Struggling to concentrate? This simple 5-minute reset can help calm your mind and bring your focus back."
+title: Can’t Focus Lately? Try This 5-Minute Fix
+date: '2025-07-16T12:38:50+02:00'
+author: Seff Bray
+description: >-
+  Struggling to concentrate? This simple 5-minute reset can help calm your mind
+  and bring your focus back.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/cant-focus-5-minute-fix/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/cant-focus-5-minute-fix.webp'
+original_url: 'https://selfsaid.pages.dev/cant-focus-5-minute-fix/'
 ---
 
 ![Can’t Focus Lately? Try This 5-Minute Fix](https://seffsaid.com/wp-content/uploads/cant-focus-5-minute-fix.webp)

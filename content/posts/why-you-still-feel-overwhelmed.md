@@ -1,11 +1,13 @@
 ---
-title: "Why You Still Feel Overwhelmed (and What to Do About It)"
-date: "2025-07-07T12:10:10+02:00"
-author: "Seff Bray"
-description: "You’ve done less but still feel overwhelmed. This post explains why that lingering overwhelm is still with you, and what to do about it."
+title: Why You Still Feel Overwhelmed (and What to Do About It)
+date: '2025-07-07T12:10:10+02:00'
+author: Seff Bray
+description: >-
+  You’ve done less but still feel overwhelmed. This post explains why that
+  lingering overwhelm is still with you, and what to do about it.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/why-you-still-feel-overwhelmed/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/why-you-still-feel-overwhelmed.webp'
+original_url: 'https://selfsaid.pages.dev/why-you-still-feel-overwhelmed/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/why-you-still-feel-overwhelmed.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Addison Rae Quotes"
-date: "2024-08-21T15:49:06+02:00"
-author: "Seff Bray"
-description: "Addison Rae quotes offering a glimpse into her mindset, values, and ambitions as both a social media influencer and a public figure."
+title: Addison Rae Quotes
+date: '2024-08-21T15:49:06+02:00'
+author: Seff Bray
+description: >-
+  Addison Rae quotes offering a glimpse into her mindset, values, and ambitions
+  as both a social media influencer and a public figure.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/addison-rae-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Addison-Rae-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/addison-rae-quotes/'
 ---
 
 ![Addison Rae in concert](https://seffsaid.com/wp-content/uploads/Addison-Rae-Quotes.webp)

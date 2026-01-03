@@ -1,11 +1,13 @@
 ---
-title: "86 George Washington Quotes on Leadership, Liberty, and Life"
-date: "2023-12-18T15:32:24+01:00"
-author: "Seff Bray"
-description: "Explore the profound depth of leadership and character with these 86 George Washington quotes, and allow their timeless wisdom to inspire you."
+title: '86 George Washington Quotes on Leadership, Liberty, and Life'
+date: '2023-12-18T15:32:24+01:00'
+author: Seff Bray
+description: >-
+  Explore the profound depth of leadership and character with these 86 George
+  Washington quotes, and allow their timeless wisdom to inspire you.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/george-washington-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/George-Washington-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/george-washington-quotes/'
 ---
 
 ![86 George Washington Quotes on Leadership, Liberty, and Life](https://seffsaid.com/wp-content/uploads/George-Washington-quotes.jpg)

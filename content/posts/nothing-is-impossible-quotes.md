@@ -1,11 +1,13 @@
 ---
-title: "80 Nothing Is Impossible Quotes"
-date: "2024-10-02T13:09:07+02:00"
-author: "Seff Bray"
-description: "Nothing is impossible quotes remind us that with the right mindset, no challenge is too great, and no dream is too big to achieve."
+title: 80 Nothing Is Impossible Quotes
+date: '2024-10-02T13:09:07+02:00'
+author: Seff Bray
+description: >-
+  Nothing is impossible quotes remind us that with the right mindset, no
+  challenge is too great, and no dream is too big to achieve.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/nothing-is-impossible-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/nothing-is-impossible-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/nothing-is-impossible-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/nothing-is-impossible-quotes.webp)

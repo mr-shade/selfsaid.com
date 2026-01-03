@@ -1,11 +1,13 @@
 ---
-title: "16 Simple Ways To Make Someone Happy"
-date: "2025-10-07T10:48:16+02:00"
-author: "Seff Bray"
-description: "Discover sixteen small acts of kindness that can lift others and bring more warmth and connection into your life."
+title: 16 Simple Ways To Make Someone Happy
+date: '2025-10-07T10:48:16+02:00'
+author: Seff Bray
+description: >-
+  Discover sixteen small acts of kindness that can lift others and bring more
+  warmth and connection into your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/16-simple-ways-to-make-someone-happy/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/make-someone-happy.webp'
+original_url: 'https://selfsaid.pages.dev/16-simple-ways-to-make-someone-happy/'
 ---
 
 ![Woman making someone happy through laughter.](https://seffsaid.com/wp-content/uploads/make-someone-happy.webp)

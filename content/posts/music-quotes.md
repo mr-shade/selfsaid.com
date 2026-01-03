@@ -1,11 +1,13 @@
 ---
-title: "60 Inspiring Quotes About Music"
-date: "2024-11-15T17:21:47+01:00"
-author: "Seff Bray"
-description: "A compilation of 60 inspiring quotes about music that celebrate it's universal power to heal, connect, and uplift the human spirit."
+title: 60 Inspiring Quotes About Music
+date: '2024-11-15T17:21:47+01:00'
+author: Seff Bray
+description: >-
+  A compilation of 60 inspiring quotes about music that celebrate it's universal
+  power to heal, connect, and uplift the human spirit.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/music-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/music-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/music-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/music-quotes.webp)

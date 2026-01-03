@@ -1,11 +1,14 @@
 ---
-title: "Every Moment Matters"
-date: "2024-06-14T13:00:48+02:00"
-author: "Seff Said"
-description: "Boost your inspiration and your spirit with our exclusive \"Every Moment Matters\" printable quote available for instant download."
+title: Every Moment Matters
+date: '2024-06-14T13:00:48+02:00'
+author: Seff Said
+description: >-
+  Boost your inspiration and your spirit with our exclusive "Every Moment
+  Matters" printable quote available for instant download.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/every-moment-matters/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/SEFFSAID-Every-Moment-Matters-800x800-1.webp
+original_url: 'https://selfsaid.pages.dev/every-moment-matters/'
 ---
 
 All [Printable Quotes](/printable-quotes)

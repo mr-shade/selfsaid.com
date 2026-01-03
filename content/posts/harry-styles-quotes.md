@@ -1,11 +1,13 @@
 ---
-title: "Harry Styles Quotes on Life, Love, Kindness, and Growth"
-date: "2024-08-30T12:53:42+02:00"
-author: "Seff Bray"
-description: "Discover a collection of Harry Styles's best quotes on life, love, personal growth, kindness, and relationships."
+title: 'Harry Styles Quotes on Life, Love, Kindness, and Growth'
+date: '2024-08-30T12:53:42+02:00'
+author: Seff Bray
+description: >-
+  Discover a collection of Harry Styles's best quotes on life, love, personal
+  growth, kindness, and relationships.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/harry-styles-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/harry-styles-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/harry-styles-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/harry-styles-quotes.webp)

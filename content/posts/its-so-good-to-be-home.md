@@ -1,11 +1,13 @@
 ---
-title: "\"It's So Good To Be Home\" Printable Quote"
-date: "2024-06-19T15:53:45+02:00"
-author: "Seff Said"
-description: "Frame a reminder of the simple joys of being home with this \"It's So Good To Be Home\" printable quote from SEFFSAID."
+title: '"It''s So Good To Be Home" Printable Quote'
+date: '2024-06-19T15:53:45+02:00'
+author: Seff Said
+description: >-
+  Frame a reminder of the simple joys of being home with this "It's So Good To
+  Be Home" printable quote from SEFFSAID.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/its-so-good-to-be-home/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/its-so-good-to-be-home-800x800-1.webp'
+original_url: 'https://selfsaid.pages.dev/its-so-good-to-be-home/'
 ---
 
 All [Printable Quotes](/printable-quotes)

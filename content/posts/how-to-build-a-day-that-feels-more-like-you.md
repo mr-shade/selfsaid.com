@@ -1,11 +1,13 @@
 ---
-title: "How to Build a Day That Feels More Like You"
-date: "2025-06-26T12:33:07+02:00"
-author: "Seff Bray"
-description: "Feeling disconnected from your day? This post explores simple ways to bring more calm, intention, and clarity back into your daily routine."
+title: How to Build a Day That Feels More Like You
+date: '2025-06-26T12:33:07+02:00'
+author: Seff Bray
+description: >-
+  Feeling disconnected from your day? This post explores simple ways to bring
+  more calm, intention, and clarity back into your daily routine.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-build-a-day-that-feels-more-like-you/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-build-a-day.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-build-a-day-that-feels-more-like-you/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-build-a-day.webp)

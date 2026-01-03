@@ -1,11 +1,13 @@
 ---
-title: "156 Powerful Motivational Quotes For Success"
-date: "2024-01-14T16:05:23+01:00"
-author: "Seff Bray"
-description: "156 motivational quotes for success that have the power to change your mindset, inspire success, and help you develop a winning attitude."
+title: 156 Powerful Motivational Quotes For Success
+date: '2024-01-14T16:05:23+01:00'
+author: Seff Bray
+description: >-
+  156 motivational quotes for success that have the power to change your
+  mindset, inspire success, and help you develop a winning attitude.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/motivational-quotes-success/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/motivational-quotes-for-success.jpg'
+original_url: 'https://selfsaid.pages.dev/motivational-quotes-success/'
 ---
 
 ![Motivational Quotes For Success](https://seffsaid.com/wp-content/uploads/motivational-quotes-for-success.jpg)

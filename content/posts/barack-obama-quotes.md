@@ -1,11 +1,11 @@
 ---
-title: "60 Inspiring Quotes by Barack Obama"
-date: "2024-04-02T18:42:07+02:00"
-author: "Seff Bray"
-description: "Elevate your day with Barack Obama's 60 most memorable and inspiring quotes."
+title: 60 Inspiring Quotes by Barack Obama
+date: '2024-04-02T18:42:07+02:00'
+author: Seff Bray
+description: Elevate your day with Barack Obama's 60 most memorable and inspiring quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/barack-obama-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/barack-obama-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/barack-obama-quotes/'
 ---
 
 ![Barack Obama delivering a speech](https://seffsaid.com/wp-content/uploads/barack-obama-quotes.webp)

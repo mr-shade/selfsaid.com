@@ -1,11 +1,13 @@
 ---
-title: "50 Marilyn Monroe Quotes on Love and Life"
-date: "2024-04-28T16:24:58+02:00"
-author: "Seff Bray"
-description: "Explore Marilyn Monroe's thoughts on love and life in these 50 revealing quotes."
+title: 50 Marilyn Monroe Quotes on Love and Life
+date: '2024-04-28T16:24:58+02:00'
+author: Seff Bray
+description: >-
+  Explore Marilyn Monroe's thoughts on love and life in these 50 revealing
+  quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/marilyn-monroe-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Marilyn-Monroe-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/marilyn-monroe-quotes/'
 ---
 
 ![Marilyn Monroe](https://seffsaid.com/wp-content/uploads/Marilyn-Monroe-Quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Learn How To Say No Politely And Without Guilt"
-date: "2024-03-29T18:16:22+01:00"
-author: "Seff Said"
-description: "Take charge of your time and your life by reading Seff Bray's latest groundbreaking book, 'How To Say No'."
+title: Learn How To Say No Politely And Without Guilt
+date: '2024-03-29T18:16:22+01:00'
+author: Seff Said
+description: >-
+  Take charge of your time and your life by reading Seff Bray's latest
+  groundbreaking book, 'How To Say No'.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/learn-how-to-say-no/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Learn-How-To-Say-No-webp.webp'
+original_url: 'https://selfsaid.pages.dev/learn-how-to-say-no/'
 ---
 
 ![Learn How To Say No Book by Seff Bray](https://seffsaid.com/wp-content/uploads/Learn-How-To-Say-No-webp.webp)

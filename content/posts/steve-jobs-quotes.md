@@ -1,11 +1,13 @@
 ---
-title: "Steve Jobs’ 50 Best Quotes"
-date: "2024-04-07T17:54:56+02:00"
-author: "Seff Bray"
-description: "50 of Steve Jobs' best quotes, offering a glimpse into the mindset of a man who changed technology and the world."
+title: Steve Jobs’ 50 Best Quotes
+date: '2024-04-07T17:54:56+02:00'
+author: Seff Bray
+description: >-
+  50 of Steve Jobs' best quotes, offering a glimpse into the mindset of a man
+  who changed technology and the world.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/steve-jobs-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Steve-Jobs-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/steve-jobs-quotes/'
 ---
 
 ![Steve Jobs giving an inspirational speech](https://seffsaid.com/wp-content/uploads/Steve-Jobs-Quotes.webp)

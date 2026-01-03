@@ -1,11 +1,13 @@
 ---
-title: "Quotes About Dreaming Big and Believing in Yourself"
-date: "2025-04-17T11:42:54+02:00"
-author: "Seff Bray"
-description: "Heartfelt quotes about dreaming big and believing in yourself. Gentle, grounded words to encourage quiet confidence and honest hope."
+title: Quotes About Dreaming Big and Believing in Yourself
+date: '2025-04-17T11:42:54+02:00'
+author: Seff Bray
+description: >-
+  Heartfelt quotes about dreaming big and believing in yourself. Gentle,
+  grounded words to encourage quiet confidence and honest hope.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/dream-big-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/dream-big-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/dream-big-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/dream-big-quotes.webp)

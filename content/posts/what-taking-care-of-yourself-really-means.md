@@ -1,11 +1,13 @@
 ---
-title: "What Taking Care of Yourself Really Means"
-date: "2025-06-05T14:26:12+02:00"
-author: "Seff Bray"
-description: "Self-care goes deeper than baths and breaks. Discover what taking care of yourself really means, and how to start."
+title: What Taking Care of Yourself Really Means
+date: '2025-06-05T14:26:12+02:00'
+author: Seff Bray
+description: >-
+  Self-care goes deeper than baths and breaks. Discover what taking care of
+  yourself really means, and how to start.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/what-taking-care-of-yourself-really-means/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Taking-Care-of-Yourself.webp'
+original_url: 'https://selfsaid.pages.dev/what-taking-care-of-yourself-really-means/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Taking-Care-of-Yourself.webp)

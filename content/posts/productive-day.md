@@ -1,11 +1,13 @@
 ---
-title: "How To Set Yourself Up For A Productive Day"
-date: "2024-12-17T12:59:28+01:00"
-author: "Seff Bray"
-description: "Tired of unproductive days? Here’s how to turn every morning into a success story."
+title: How To Set Yourself Up For A Productive Day
+date: '2024-12-17T12:59:28+01:00'
+author: Seff Bray
+description: >-
+  Tired of unproductive days? Here’s how to turn every morning into a success
+  story.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/productive-day/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/productive-day.webp'
+original_url: 'https://selfsaid.pages.dev/productive-day/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/productive-day.webp)

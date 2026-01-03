@@ -1,11 +1,13 @@
 ---
-title: "160 Quotes About New York City"
-date: "2024-09-26T11:14:27+02:00"
-author: "Seff Bray"
-description: "160 quotes about New York City that bring its bustling streets, iconic landmarks, and vibrant energy to life."
+title: 160 Quotes About New York City
+date: '2024-09-26T11:14:27+02:00'
+author: Seff Bray
+description: >-
+  160 quotes about New York City that bring its bustling streets, iconic
+  landmarks, and vibrant energy to life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-new-york-city/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/New-York-City-webp.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-about-new-york-city/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/New-York-City-webp.webp)

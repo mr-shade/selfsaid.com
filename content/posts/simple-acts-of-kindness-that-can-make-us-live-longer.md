@@ -1,11 +1,14 @@
 ---
-title: "The Simple Power of Kindness"
-date: "2025-10-30T13:03:40+01:00"
-author: "Seff Bray"
-description: "Kindness benefits both body and mind. Discover how small acts of kindness reduce stress, strengthen connection, and bring calm to everyday life."
+title: The Simple Power of Kindness
+date: '2025-10-30T13:03:40+01:00'
+author: Seff Bray
+description: >-
+  Kindness benefits both body and mind. Discover how small acts of kindness
+  reduce stress, strengthen connection, and bring calm to everyday life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/simple-acts-of-kindness-that-can-make-us-live-longer/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Acts-Of-Kindness-Live-Longer.webp'
+original_url: >-
+  https://selfsaid.pages.dev/simple-acts-of-kindness-that-can-make-us-live-longer/
 ---
 
 ![Man showing kindness helping a stranger](https://seffsaid.com/wp-content/uploads/Acts-Of-Kindness-Live-Longer.webp)

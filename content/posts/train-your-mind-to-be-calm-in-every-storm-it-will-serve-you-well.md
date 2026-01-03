@@ -1,11 +1,13 @@
 ---
-title: "Train Your Mind To Be Calm In Every Storm. It Will Serve You Well"
-date: "2023-09-23T14:37:00+02:00"
-author: "Seff Bray"
-description: "Train your mind to be calm in every storm. It will serve you well."
+title: Train Your Mind To Be Calm In Every Storm. It Will Serve You Well
+date: '2023-09-23T14:37:00+02:00'
+author: Seff Bray
+description: Train your mind to be calm in every storm. It will serve you well.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/train-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Train-your-mind-to-be-calm-in-every-storm.jpg
+original_url: >-
+  https://selfsaid.pages.dev/train-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well/
 ---
 
 ![Train your mind to be calm in every storm. It will serve you well.](https://seffsaid.com/wp-content/uploads/Train-your-mind-to-be-calm-in-every-storm.jpg)

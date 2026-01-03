@@ -1,11 +1,14 @@
 ---
-title: "How I Learned to Say No Without Feeling Guilty"
-date: "2025-04-04T15:56:02+02:00"
-author: "Seff Bray"
-description: "Saying no used to fill me with guilt until I realized it was one of the most powerful forms of self-care. Here’s how I learned to protect my time and energy."
+title: How I Learned to Say No Without Feeling Guilty
+date: '2025-04-04T15:56:02+02:00'
+author: Seff Bray
+description: >-
+  Saying no used to fill me with guilt until I realized it was one of the most
+  powerful forms of self-care. Here’s how I learned to protect my time and
+  energy.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-say-no-without-guilt/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/learned-to-say-no.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-say-no-without-guilt/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/learned-to-say-no.webp)

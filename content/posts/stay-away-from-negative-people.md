@@ -1,11 +1,13 @@
 ---
-title: "9 Reasons To Stay Away From Negative People"
-date: "2024-07-03T10:50:33+02:00"
-author: "Seff Bray"
-description: "Discover 9 compelling reasons why being around negative people can drain the joy from life."
+title: 9 Reasons To Stay Away From Negative People
+date: '2024-07-03T10:50:33+02:00'
+author: Seff Bray
+description: >-
+  Discover 9 compelling reasons why being around negative people can drain the
+  joy from life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/stay-away-from-negative-people/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/stay-away-from-negative-people.webp'
+original_url: 'https://selfsaid.pages.dev/stay-away-from-negative-people/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stay-away-from-negative-people.webp)

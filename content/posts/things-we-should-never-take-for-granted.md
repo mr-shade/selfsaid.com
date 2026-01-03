@@ -1,11 +1,14 @@
 ---
-title: "8 Things We Should Never Take for Granted"
-date: "2025-09-16T11:36:47+02:00"
-author: "Seff Bray"
-description: "Here are 8 things never to take for granted, with gentle reminders to slow down, notice more, and live with gratitude."
+title: 8 Things We Should Never Take for Granted
+date: '2025-09-16T11:36:47+02:00'
+author: Seff Bray
+description: >-
+  Here are 8 things never to take for granted, with gentle reminders to slow
+  down, notice more, and live with gratitude.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/things-we-should-never-take-for-granted/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Things-We-Should-Never-Take-for-Granted.webp
+original_url: 'https://selfsaid.pages.dev/things-we-should-never-take-for-granted/'
 ---
 
 ![Happy couple walking on a beautiful beach holding hands.](https://seffsaid.com/wp-content/uploads/Things-We-Should-Never-Take-for-Granted.webp)

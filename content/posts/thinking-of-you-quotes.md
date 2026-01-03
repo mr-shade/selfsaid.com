@@ -1,11 +1,13 @@
 ---
-title: "160 Thinking of You Quotes for the Love of Your Life"
-date: "2023-12-23T17:48:48+01:00"
-author: "Seff Bray"
-description: "Dive into our collection of 160 Thinking Of You Quotes and discover the perfect way to express your deepest emotions to someone special."
+title: 160 Thinking of You Quotes for the Love of Your Life
+date: '2023-12-23T17:48:48+01:00'
+author: Seff Bray
+description: >-
+  Dive into our collection of 160 Thinking Of You Quotes and discover the
+  perfect way to express your deepest emotions to someone special.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/thinking-of-you-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Thinking-Of-You-Quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/thinking-of-you-quotes/'
 ---
 
 ![Thinking Of You Quotes](https://seffsaid.com/wp-content/uploads/Thinking-Of-You-Quotes.jpg)

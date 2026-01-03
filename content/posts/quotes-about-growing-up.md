@@ -1,11 +1,13 @@
 ---
-title: "130 Inspirational Quotes About Growing Up"
-date: "2023-12-28T12:42:51+01:00"
-author: "Seff Bray"
-description: "Let these 130 inspirational quotes about growing up guide you through the ups and downs of getting older."
+title: 130 Inspirational Quotes About Growing Up
+date: '2023-12-28T12:42:51+01:00'
+author: Seff Bray
+description: >-
+  Let these 130 inspirational quotes about growing up guide you through the ups
+  and downs of getting older.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-growing-up/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-growing-up.jpg'
+original_url: 'https://selfsaid.pages.dev/quotes-about-growing-up/'
 ---
 
 ![130 Inspirational Quotes About Growing Up](https://seffsaid.com/wp-content/uploads/quotes-about-growing-up.jpg)

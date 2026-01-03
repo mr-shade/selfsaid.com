@@ -1,11 +1,13 @@
 ---
-title: "10 Signs You Need To Take Better Care Of Yourself"
-date: "2025-02-12T11:25:52+01:00"
-author: "Seff Bray"
-description: "Your body and mind are sending signals that shouldn't be ignored and these ten signs will help you recognize them."
+title: 10 Signs You Need To Take Better Care Of Yourself
+date: '2025-02-12T11:25:52+01:00'
+author: Seff Bray
+description: >-
+  Your body and mind are sending signals that shouldn't be ignored and these ten
+  signs will help you recognize them.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/better-care-signs/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Better-Care-Signs.webp'
+original_url: 'https://selfsaid.pages.dev/better-care-signs/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Better-Care-Signs.webp)

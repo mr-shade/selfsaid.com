@@ -1,11 +1,12 @@
 ---
-title: "How I Cheated My Need For Perfectionism"
-date: "2024-06-24T16:47:27+02:00"
-author: "Seff Bray"
-description: "A short story of a frustrated gardener's search for perfectionism."
+title: How I Cheated My Need For Perfectionism
+date: '2024-06-24T16:47:27+02:00'
+author: Seff Bray
+description: A short story of a frustrated gardener's search for perfectionism.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-i-cheated-my-need-for-perfectionism/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/How-I-Cheated-My-Need-For-Perfectionism.webp
+original_url: 'https://selfsaid.pages.dev/how-i-cheated-my-need-for-perfectionism/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-I-Cheated-My-Need-For-Perfectionism.webp)

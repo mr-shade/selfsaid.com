@@ -1,11 +1,13 @@
 ---
-title: "50 Olivia Rodrigo Quotes on Life, Music and Growing Up"
-date: "2024-05-06T12:47:21+02:00"
-author: "Seff Bray"
-description: "Discover the wisdom of Olivia Rodrigo in 50 of her best quotes on life, music and growing up."
+title: '50 Olivia Rodrigo Quotes on Life, Music and Growing Up'
+date: '2024-05-06T12:47:21+02:00'
+author: Seff Bray
+description: >-
+  Discover the wisdom of Olivia Rodrigo in 50 of her best quotes on life, music
+  and growing up.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/olivia-rodrigo-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Olivia-Rodrigo-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/olivia-rodrigo-quotes/'
 ---
 
 ![Olivia Rodrigo singing live in concert](https://seffsaid.com/wp-content/uploads/Olivia-Rodrigo-Quotes.webp)

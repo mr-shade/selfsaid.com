@@ -1,11 +1,14 @@
 ---
-title: "Supportive Quotes for When Life Feels a Little Too Much"
-date: "2025-05-14T11:09:07+02:00"
-author: "Seff Bray"
-description: "A gentle collection of supportive quotes to help you feel grounded during overwhelming moments. Quiet reminders to slow down, breathe, and be kind to yourself."
+title: Supportive Quotes for When Life Feels a Little Too Much
+date: '2025-05-14T11:09:07+02:00'
+author: Seff Bray
+description: >-
+  A gentle collection of supportive quotes to help you feel grounded during
+  overwhelming moments. Quiet reminders to slow down, breathe, and be kind to
+  yourself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/supportive-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/supportive-quotes-600x338-1.webp'
+original_url: 'https://selfsaid.pages.dev/supportive-quotes/'
 ---
 
 ![Supportive Quotes](https://seffsaid.com/wp-content/uploads/supportive-quotes-600x338-1.webp)

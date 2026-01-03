@@ -1,11 +1,13 @@
 ---
-title: "100 Famous Quotes From The Beatles"
-date: "2024-03-04T12:02:01+01:00"
-author: "Seff Bray"
-description: "Ever wonder what made The Beatles tick? These quotes from The Beatles reveal the thoughts and philosophies that shaped their music and lives."
+title: 100 Famous Quotes From The Beatles
+date: '2024-03-04T12:02:01+01:00'
+author: Seff Bray
+description: >-
+  Ever wonder what made The Beatles tick? These quotes from The Beatles reveal
+  the thoughts and philosophies that shaped their music and lives.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/beatles-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/The-Beatles-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/beatles-quotes/'
 ---
 
 ![The Beatles performing live on stage in 1964](https://seffsaid.com/wp-content/uploads/The-Beatles-Quotes.webp)

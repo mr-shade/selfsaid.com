@@ -1,11 +1,13 @@
 ---
-title: "100 Inspirational Sayings About Life"
-date: "2024-05-23T13:12:39+02:00"
-author: "Seff Bray"
-description: "100 inspirational sayings which have the power to uplift, motivate, and positively transform your mindset."
+title: 100 Inspirational Sayings About Life
+date: '2024-05-23T13:12:39+02:00'
+author: Seff Bray
+description: >-
+  100 inspirational sayings which have the power to uplift, motivate, and
+  positively transform your mindset.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/100-best-inspirational-sayings-about-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Inspirational-Sayings-About-Life.webp'
+original_url: 'https://selfsaid.pages.dev/100-best-inspirational-sayings-about-life/'
 ---
 
 ![A beautiful inspirational sunset at sea](https://seffsaid.com/wp-content/uploads/Inspirational-Sayings-About-Life.webp)

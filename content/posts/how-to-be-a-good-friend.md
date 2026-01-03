@@ -1,11 +1,13 @@
 ---
-title: "How To Be A Good Friend Without Losing Yourself"
-date: "2025-04-24T11:54:19+02:00"
-author: "Seff Bray"
-description: "Being a good friend doesn’t mean losing yourself. Learn how to show up for others while staying connected to your needs and emotional well-being."
+title: How To Be A Good Friend Without Losing Yourself
+date: '2025-04-24T11:54:19+02:00'
+author: Seff Bray
+description: >-
+  Being a good friend doesn’t mean losing yourself. Learn how to show up for
+  others while staying connected to your needs and emotional well-being.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-be-a-good-friend/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-be-a-good-friend.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-be-a-good-friend/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-be-a-good-friend.webp)

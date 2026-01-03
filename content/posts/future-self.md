@@ -1,11 +1,14 @@
 ---
-title: "10 Choices Your Future Self Will Thank You For"
-date: "2024-03-22T17:24:33+01:00"
-author: "Seff Bray"
-description: "Discover 10 simple things you can do today that will enrich your life enormously and your future self will thank you for."
+title: 10 Choices Your Future Self Will Thank You For
+date: '2024-03-22T17:24:33+01:00'
+author: Seff Bray
+description: >-
+  Discover 10 simple things you can do today that will enrich your life
+  enormously and your future self will thank you for.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/future-self/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Choices-Your-Future-Self-Will-Thank-You-For.webp
+original_url: 'https://selfsaid.pages.dev/future-self/'
 ---
 
 ![Older man happy about his life choices](https://seffsaid.com/wp-content/uploads/Choices-Your-Future-Self-Will-Thank-You-For.webp)

@@ -1,11 +1,13 @@
 ---
-title: "10 Ways To Become More Confident In Any Situation"
-date: "2024-12-23T15:17:14+01:00"
-author: "Seff Bray"
-description: "Discover simple yet powerful strategies that will help you exude confidence in any situation."
+title: 10 Ways To Become More Confident In Any Situation
+date: '2024-12-23T15:17:14+01:00'
+author: Seff Bray
+description: >-
+  Discover simple yet powerful strategies that will help you exude confidence in
+  any situation.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ways-to-become-more-confident/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Ways-to-Become-More-Confident.webp'
+original_url: 'https://selfsaid.pages.dev/ways-to-become-more-confident/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Ways-to-Become-More-Confident.webp)

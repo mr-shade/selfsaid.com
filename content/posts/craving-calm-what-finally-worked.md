@@ -1,11 +1,13 @@
 ---
-title: "Craving Calm? Here’s What Finally Worked for Me"
-date: "2025-08-08T12:00:10+02:00"
-author: "Seff Bray"
-description: "Craving a calmer life but nothing seems to work? These simple shifts helped me feel more at ease and they might help you too."
+title: Craving Calm? Here’s What Finally Worked for Me
+date: '2025-08-08T12:00:10+02:00'
+author: Seff Bray
+description: >-
+  Craving a calmer life but nothing seems to work? These simple shifts helped me
+  feel more at ease and they might help you too.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/craving-calm-what-finally-worked/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/craving-calm.webp'
+original_url: 'https://selfsaid.pages.dev/craving-calm-what-finally-worked/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/craving-calm.webp)

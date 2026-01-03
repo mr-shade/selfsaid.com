@@ -1,11 +1,14 @@
 ---
-title: "The 5-Minute Morning Reset That Helped My Anxiety"
-date: "2025-04-04T15:56:31+02:00"
-author: "Seff Bray"
-description: "Tired of chaotic, anxious mornings? Discover a 5-minute self-care routine that helped me feel grounded, calm, and present - without apps, pressure, or perfection."
+title: The 5-Minute Morning Reset That Helped My Anxiety
+date: '2025-04-04T15:56:31+02:00'
+author: Seff Bray
+description: >-
+  Tired of chaotic, anxious mornings? Discover a 5-minute self-care routine that
+  helped me feel grounded, calm, and present - without apps, pressure, or
+  perfection.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/5-minute-morning-reset/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/5-Minute-Morning-Reset.webp'
+original_url: 'https://selfsaid.pages.dev/5-minute-morning-reset/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/5-Minute-Morning-Reset.webp)

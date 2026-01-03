@@ -1,11 +1,13 @@
 ---
-title: "Emma Watson’s Best Quotes"
-date: "2024-07-17T16:39:04+02:00"
-author: "Seff Bray"
-description: "Discover Emma Watson's most inspiring quotes that will uplift your spirits and ignite your inner strength."
+title: Emma Watson’s Best Quotes
+date: '2024-07-17T16:39:04+02:00'
+author: Seff Bray
+description: >-
+  Discover Emma Watson's most inspiring quotes that will uplift your spirits and
+  ignite your inner strength.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/emma-watson-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Emma-Watson-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/emma-watson-quotes/'
 ---
 
 ![Emma Watson](https://seffsaid.com/wp-content/uploads/Emma-Watson-Quotes.webp)

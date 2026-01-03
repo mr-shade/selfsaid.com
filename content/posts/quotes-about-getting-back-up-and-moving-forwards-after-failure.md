@@ -1,11 +1,15 @@
 ---
-title: "200 Quotes About Getting Back Up And Moving Forwards After Failure"
-date: "2024-02-23T18:25:15+01:00"
-author: "Seff Bray"
-description: "Discover 200 incredibly inspirational quotes about getting back up and moving forwards after failure."
+title: 200 Quotes About Getting Back Up And Moving Forwards After Failure
+date: '2024-02-23T18:25:15+01:00'
+author: Seff Bray
+description: >-
+  Discover 200 incredibly inspirational quotes about getting back up and moving
+  forwards after failure.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-getting-back-up-and-moving-forwards-after-failure/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Getting-Back-Up-And-Moving-Forwards-After-Failure.webp
+original_url: >-
+  https://selfsaid.pages.dev/quotes-about-getting-back-up-and-moving-forwards-after-failure/
 ---
 
 ![Mountain climber not allowing himself to be defeated by failure.](https://seffsaid.com/wp-content/uploads/Getting-Back-Up-And-Moving-Forwards-After-Failure.webp)

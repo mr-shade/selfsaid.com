@@ -1,11 +1,14 @@
 ---
-title: "Live Your Best Life Printable Quote"
-date: "2024-06-14T16:10:33+02:00"
-author: "Seff Said"
-description: "Brighten your surroundings and your spirit with our exclusive \"Live Your Best Life\" printable quote available for instant download."
+title: Live Your Best Life Printable Quote
+date: '2024-06-14T16:10:33+02:00'
+author: Seff Said
+description: >-
+  Brighten your surroundings and your spirit with our exclusive "Live Your Best
+  Life" printable quote available for instant download.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/live-your-best-life/"
+featured_image: >-
+  data:image/svg+xml,%3Csvg%20xmlns%3D%22http%3A%2F%2Fwww.w3.org%2F2000%2Fsvg%22%20width%3D%22640%22%20height%3D%22426%22%20viewBox%3D%220%200%20640%20426%22%3E%3C%2Fsvg%3E
+original_url: 'https://selfsaid.pages.dev/live-your-best-life/'
 ---
 
 All [Printable Quotes](/printable-quotes)

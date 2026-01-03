@@ -1,11 +1,14 @@
 ---
-title: "Feeling Bored? 7 Ways To Make Your Life Exciting Again"
-date: "2025-10-16T12:02:46+02:00"
-author: "Seff Bray"
-description: "Feeling bored? Here are 7 ways to help you brighten up your day, get the most out of life, and start feeling like life is worth living again."
+title: Feeling Bored? 7 Ways To Make Your Life Exciting Again
+date: '2025-10-16T12:02:46+02:00'
+author: Seff Bray
+description: >-
+  Feeling bored? Here are 7 ways to help you brighten up your day, get the most
+  out of life, and start feeling like life is worth living again.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/7-ways-to-make-your-life-exciting-again/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Ways-To-Make-Your-Life-Exciting-Again.webp
+original_url: 'https://selfsaid.pages.dev/7-ways-to-make-your-life-exciting-again/'
 ---
 
 ![Two women excited to see each other chatting on a beach.](https://seffsaid.com/wp-content/uploads/Ways-To-Make-Your-Life-Exciting-Again.webp)

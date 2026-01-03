@@ -1,11 +1,13 @@
 ---
-title: "10 Easy Ways To Quickly Improve Your Mood"
-date: "2025-08-22T14:49:16+02:00"
-author: "Seff Bray"
-description: "Boost your mood fast with these 10 simple self-care ideas. Practical, uplifting tips you can use anytime to ease stress and feel better quickly."
+title: 10 Easy Ways To Quickly Improve Your Mood
+date: '2025-08-22T14:49:16+02:00'
+author: Seff Bray
+description: >-
+  Boost your mood fast with these 10 simple self-care ideas. Practical,
+  uplifting tips you can use anytime to ease stress and feel better quickly.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/easy-ways-to-quickly-improve-your-mood/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/ways-to-improve-your-mood.webp'
+original_url: 'https://selfsaid.pages.dev/easy-ways-to-quickly-improve-your-mood/'
 ---
 
 ![Man in a great mood standing on a beach with outstretched arms.](https://seffsaid.com/wp-content/uploads/ways-to-improve-your-mood.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Always Keep A Positive Mindset"
-date: "2023-09-23T17:40:10+02:00"
-author: "Seff Bray"
-description: "Discover the transformative power of optimism with our page dedicated to the quote - Always keep a positive mindset."
+title: Always Keep A Positive Mindset
+date: '2023-09-23T17:40:10+02:00'
+author: Seff Bray
+description: >-
+  Discover the transformative power of optimism with our page dedicated to the
+  quote - Always keep a positive mindset.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/always-keep-a-positive-mindset/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Always-keep-a-positive-mindset.jpg'
+original_url: 'https://selfsaid.pages.dev/always-keep-a-positive-mindset/'
 ---
 
 ![Always Keep A Positive Mindset](https://seffsaid.com/wp-content/uploads/Always-keep-a-positive-mindset.jpg)

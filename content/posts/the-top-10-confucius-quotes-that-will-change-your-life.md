@@ -1,11 +1,12 @@
 ---
-title: "The 50 Best Confucius Quotes"
-date: "2024-05-16T12:25:41+02:00"
-author: "Seff Bray"
-description: "Discover the timeless wisdom of Confucius with our list of his 50 best quotes."
+title: The 50 Best Confucius Quotes
+date: '2024-05-16T12:25:41+02:00'
+author: Seff Bray
+description: Discover the timeless wisdom of Confucius with our list of his 50 best quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/the-top-10-confucius-quotes-that-will-change-your-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Confucius-Quotes.webp'
+original_url: >-
+  https://selfsaid.pages.dev/the-top-10-confucius-quotes-that-will-change-your-life/
 ---
 
 ![Confucius thinking up another of his life changing quotes](https://seffsaid.com/wp-content/uploads/Confucius-Quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "6 Self-Improvement Tips That Will Change Your Life"
-date: "2024-04-21T17:01:23+02:00"
-author: "Seff Bray"
-description: "6 simple yet powerful self-improvement tips that will change your life for the better."
+title: 6 Self-Improvement Tips That Will Change Your Life
+date: '2024-04-21T17:01:23+02:00'
+author: Seff Bray
+description: >-
+  6 simple yet powerful self-improvement tips that will change your life for the
+  better.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/6-self-improvement-tips-that-will-change-your-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Improvement-Tips.webp'
+original_url: 'https://selfsaid.pages.dev/6-self-improvement-tips-that-will-change-your-life/'
 ---
 
 ![Man smiling sitting in a French Cafe](https://seffsaid.com/wp-content/uploads/Self-Improvement-Tips.webp)

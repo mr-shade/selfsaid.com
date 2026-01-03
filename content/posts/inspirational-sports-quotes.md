@@ -1,11 +1,13 @@
 ---
-title: "Inspirational Sports Quotes: Goals, Grit, and Greatness"
-date: "2024-08-23T16:38:41+02:00"
-author: "Seff Bray"
-description: "Discover 200 Inspirational Sports Quotes and unleash your inner champion while soaking in the timeless wisdom from legendary sports heroes."
+title: 'Inspirational Sports Quotes: Goals, Grit, and Greatness'
+date: '2024-08-23T16:38:41+02:00'
+author: Seff Bray
+description: >-
+  Discover 200 Inspirational Sports Quotes and unleash your inner champion while
+  soaking in the timeless wisdom from legendary sports heroes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/inspirational-sports-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Inspirational-Sports-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/inspirational-sports-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Inspirational-Sports-Quotes.webp)

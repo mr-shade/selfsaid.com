@@ -1,11 +1,13 @@
 ---
-title: "7 Surprising Benefits Of Failure"
-date: "2024-02-23T15:19:03+01:00"
-author: "Seff Bray"
-description: "Discover the 7 Benefits Of Failure and learn how failure can be your greatest teacher, unlocking your potential for unlimited growth."
+title: 7 Surprising Benefits Of Failure
+date: '2024-02-23T15:19:03+01:00'
+author: Seff Bray
+description: >-
+  Discover the 7 Benefits Of Failure and learn how failure can be your greatest
+  teacher, unlocking your potential for unlimited growth.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/benefits-of-failure/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/benefits-of-failure.webp'
+original_url: 'https://selfsaid.pages.dev/benefits-of-failure/'
 ---
 
 ![Thomas Edison in his workshop failing 1000 times before successfully inventing the light bulb.](https://seffsaid.com/wp-content/uploads/benefits-of-failure.webp)

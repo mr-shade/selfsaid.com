@@ -1,11 +1,13 @@
 ---
-title: "How To Discover Your Inner Wisdom"
-date: "2025-01-31T13:07:04+01:00"
-author: "Seff Bray"
-description: "Discover the secret to tapping into your inner wisdom with simple and effective techniques that anyone can use."
+title: How To Discover Your Inner Wisdom
+date: '2025-01-31T13:07:04+01:00'
+author: Seff Bray
+description: >-
+  Discover the secret to tapping into your inner wisdom with simple and
+  effective techniques that anyone can use.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/discover-your-inner-wisdom/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/discover-your-inner-wisdom.webp'
+original_url: 'https://selfsaid.pages.dev/discover-your-inner-wisdom/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/discover-your-inner-wisdom.webp)

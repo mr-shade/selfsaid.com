@@ -1,11 +1,13 @@
 ---
-title: "Struggling To Focus? Here’s What Finally Worked For Me"
-date: "2025-08-11T15:04:41+02:00"
-author: "Seff Bray"
-description: "Finding it hard to focus? This article shares the simple, doable changes that finally helped me to get things done."
+title: Struggling To Focus? Here’s What Finally Worked For Me
+date: '2025-08-11T15:04:41+02:00'
+author: Seff Bray
+description: >-
+  Finding it hard to focus? This article shares the simple, doable changes that
+  finally helped me to get things done.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/struggling-to-focus-what-finally-worked/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/struggling-to-focus.webp'
+original_url: 'https://selfsaid.pages.dev/struggling-to-focus-what-finally-worked/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/struggling-to-focus.webp)

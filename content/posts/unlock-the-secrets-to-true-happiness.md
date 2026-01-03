@@ -1,11 +1,13 @@
 ---
-title: "Unlock The Secrets To True Happiness"
-date: "2024-11-28T16:02:58+01:00"
-author: "Seff Bray"
-description: "Learn how to cultivate a life filled with purpose, connection, and true happiness through 8 simple yet powerful practices."
+title: Unlock The Secrets To True Happiness
+date: '2024-11-28T16:02:58+01:00'
+author: Seff Bray
+description: >-
+  Learn how to cultivate a life filled with purpose, connection, and true
+  happiness through 8 simple yet powerful practices.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/unlock-the-secrets-to-true-happiness/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Secrets-To-True-Happiness.webp'
+original_url: 'https://selfsaid.pages.dev/unlock-the-secrets-to-true-happiness/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Secrets-To-True-Happiness.webp)

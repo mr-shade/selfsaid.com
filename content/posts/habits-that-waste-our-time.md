@@ -1,11 +1,13 @@
 ---
-title: "12 Habits That Waste 90 Percent Of Our Time"
-date: "2024-12-03T17:58:40+01:00"
-author: "Seff Bray"
-description: "Break free from daily time traps by identifying and changing these 12 common habits."
+title: 12 Habits That Waste 90 Percent Of Our Time
+date: '2024-12-03T17:58:40+01:00'
+author: Seff Bray
+description: >-
+  Break free from daily time traps by identifying and changing these 12 common
+  habits.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/habits-that-waste-our-time/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/habits-that-waste-our-time.webp'
+original_url: 'https://selfsaid.pages.dev/habits-that-waste-our-time/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/habits-that-waste-our-time.webp)

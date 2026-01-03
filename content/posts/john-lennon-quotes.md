@@ -1,11 +1,13 @@
 ---
-title: "50 John Lennon Quotes On Peace, Life and Love"
-date: "2024-03-07T12:26:48+01:00"
-author: "Seff Bray"
-description: "Let these John Lennon quotes inspire your day and influence your thoughts on peace, love, and life."
+title: '50 John Lennon Quotes On Peace, Life and Love'
+date: '2024-03-07T12:26:48+01:00'
+author: Seff Bray
+description: >-
+  Let these John Lennon quotes inspire your day and influence your thoughts on
+  peace, love, and life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/john-lennon-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/John-Lennon-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/john-lennon-quotes/'
 ---
 
 ![John Lennon with a guitar over his shoulder walking down a deserted road.](https://seffsaid.com/wp-content/uploads/John-Lennon-Quotes.webp)

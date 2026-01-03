@@ -1,11 +1,14 @@
 ---
-title: "Beautiful Soul Quotes That Actually Mean Something"
-date: "2025-04-10T17:06:53+02:00"
-author: "Seff Bray"
-description: "A soulful collection of 60 quotes that speak to the quiet strength, realness, and depth of a beautiful soul. For anyone who needs to feel seen, understood, and valued, just as they are."
+title: Beautiful Soul Quotes That Actually Mean Something
+date: '2025-04-10T17:06:53+02:00'
+author: Seff Bray
+description: >-
+  A soulful collection of 60 quotes that speak to the quiet strength, realness,
+  and depth of a beautiful soul. For anyone who needs to feel seen, understood,
+  and valued, just as they are.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/beautiful-soul-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/beautiful-soul-quotes-1.webp'
+original_url: 'https://selfsaid.pages.dev/beautiful-soul-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/beautiful-soul-quotes-1.webp)

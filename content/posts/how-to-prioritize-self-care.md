@@ -1,11 +1,13 @@
 ---
-title: "How To Prioritize Self-Care Without Feeling Guilty"
-date: "2025-09-24T12:57:41+02:00"
-author: "Seff Bray"
-description: "Discover 15 ways to prioritize self-care without guilt, from setting boundaries to building daily rituals that support balance."
+title: How To Prioritize Self-Care Without Feeling Guilty
+date: '2025-09-24T12:57:41+02:00'
+author: Seff Bray
+description: >-
+  Discover 15 ways to prioritize self-care without guilt, from setting
+  boundaries to building daily rituals that support balance.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-prioritize-self-care/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Prioritize-Self-Care.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-prioritize-self-care/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Prioritize-Self-Care.webp)

@@ -1,11 +1,13 @@
 ---
-title: "50 Powerful Gratitude Quotes To Inspire Thankfulness"
-date: "2024-11-01T12:33:13+01:00"
-author: "Seff Bray"
-description: "Bring more positivity into your day with these 50 powerful gratitude quotes that encourage thankfulness and inner peace."
+title: 50 Powerful Gratitude Quotes To Inspire Thankfulness
+date: '2024-11-01T12:33:13+01:00'
+author: Seff Bray
+description: >-
+  Bring more positivity into your day with these 50 powerful gratitude quotes
+  that encourage thankfulness and inner peace.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/gratitude-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/gratitude-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/gratitude-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/gratitude-quotes.webp)

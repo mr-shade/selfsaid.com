@@ -1,11 +1,13 @@
 ---
-title: "Free eBook - 25 Daily Habits That Will Change Your Life"
-date: "2023-11-13T13:28:48+01:00"
-author: "Seff Said"
-description: "Subscribe to my exclusive inspirational newsletter today and receive my eBook – “25 Daily Habits That Will Change Your Life” for free!"
+title: Free eBook - 25 Daily Habits That Will Change Your Life
+date: '2023-11-13T13:28:48+01:00'
+author: Seff Said
+description: >-
+  Subscribe to my exclusive inspirational newsletter today and receive my eBook
+  – “25 Daily Habits That Will Change Your Life” for free!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ebook/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/25-Daily-Habits-TN.jpg'
+original_url: 'https://selfsaid.pages.dev/ebook/'
 ---
 
 ### Get my FREE eBook:

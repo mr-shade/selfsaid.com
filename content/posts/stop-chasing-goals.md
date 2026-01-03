@@ -1,11 +1,13 @@
 ---
-title: "I Stopped Chasing Goals and Found Something Better"
-date: "2025-07-04T12:46:09+02:00"
-author: "Seff Bray"
-description: "This article explores what happened when I stopped chasing goals, focusing on outcomes and started living with intention instead."
+title: I Stopped Chasing Goals and Found Something Better
+date: '2025-07-04T12:46:09+02:00'
+author: Seff Bray
+description: >-
+  This article explores what happened when I stopped chasing goals, focusing on
+  outcomes and started living with intention instead.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/stop-chasing-goals/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/stop-chasing-goals.webp'
+original_url: 'https://selfsaid.pages.dev/stop-chasing-goals/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stop-chasing-goals.webp)

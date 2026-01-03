@@ -1,11 +1,13 @@
 ---
-title: "8 Ways To Change Your Life For The Better"
-date: "2024-05-02T17:49:35+02:00"
-author: "Seff Bray"
-description: "Discover 8 simple things you can do start doing today that will change your life for the better."
+title: 8 Ways To Change Your Life For The Better
+date: '2024-05-02T17:49:35+02:00'
+author: Seff Bray
+description: >-
+  Discover 8 simple things you can do start doing today that will change your
+  life for the better.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/change-your-life-for-the-better/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Change-Your-Life-For-The-Better.webp'
+original_url: 'https://selfsaid.pages.dev/change-your-life-for-the-better/'
 ---
 
 ![Man looking out to sea happy to have changed his life for the better](https://seffsaid.com/wp-content/uploads/Change-Your-Life-For-The-Better.webp)

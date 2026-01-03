@@ -1,11 +1,13 @@
 ---
-title: "5 Common Life Mistakes To Avoid"
-date: "2024-04-05T12:09:51+02:00"
-author: "Seff Bray"
-description: "Mistakes are a part of life, but some can be avoided completely. Here are the five most common life mistakes to avoid."
+title: 5 Common Life Mistakes To Avoid
+date: '2024-04-05T12:09:51+02:00'
+author: Seff Bray
+description: >-
+  Mistakes are a part of life, but some can be avoided completely. Here are the
+  five most common life mistakes to avoid.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/5-common-life-mistakes-to-avoid/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Common-Life-Mistakes-To-Avoid.webp'
+original_url: 'https://selfsaid.pages.dev/5-common-life-mistakes-to-avoid/'
 ---
 
 ![Man upset after making a common life mistake](https://seffsaid.com/wp-content/uploads/Common-Life-Mistakes-To-Avoid.webp)

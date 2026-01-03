@@ -1,11 +1,14 @@
 ---
-title: "60 Slow Down Quotes for a Calmer Day"
-date: "2025-05-23T12:36:21+02:00"
-author: "Seff Bray"
-description: "A collection of 60 slow down quotes to help you create a softer, more intentional day. Gentle reminders to pause, breathe, and move at your own pace."
+title: 60 Slow Down Quotes for a Calmer Day
+date: '2025-05-23T12:36:21+02:00'
+author: Seff Bray
+description: >-
+  A collection of 60 slow down quotes to help you create a softer, more
+  intentional day. Gentle reminders to pause, breathe, and move at your own
+  pace.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/slow-down-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/slow-down-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/slow-down-quotes/'
 ---
 
 ![Slow Down Quotes for a Calmer Day](https://seffsaid.com/wp-content/uploads/slow-down-quotes.webp)

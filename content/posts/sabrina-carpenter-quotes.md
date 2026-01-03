@@ -1,11 +1,13 @@
 ---
-title: "Sabrina Carpenter’s Best Quotes"
-date: "2024-08-12T12:47:36+02:00"
-author: "Seff Bray"
-description: "Sabrina Carpenter's best quotes that capture her thoughts on self-love, individuality, perseverance, and personal growth."
+title: Sabrina Carpenter’s Best Quotes
+date: '2024-08-12T12:47:36+02:00'
+author: Seff Bray
+description: >-
+  Sabrina Carpenter's best quotes that capture her thoughts on self-love,
+  individuality, perseverance, and personal growth.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/sabrina-carpenter-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Sabrina-Carpenter-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/sabrina-carpenter-quotes/'
 ---
 
 ![Sabrina Carpenter In Concert](https://seffsaid.com/wp-content/uploads/Sabrina-Carpenter-Quotes.webp)

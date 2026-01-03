@@ -1,11 +1,13 @@
 ---
-title: "10 Reasons To Limit Your Exposure To Negative News"
-date: "2025-08-19T12:38:35+02:00"
-author: "Seff Bray"
-description: "Discover 10 reasons to limit your exposure to negative news and create more space for calm, balance, and resilience in daily life."
+title: 10 Reasons To Limit Your Exposure To Negative News
+date: '2025-08-19T12:38:35+02:00'
+author: Seff Bray
+description: >-
+  Discover 10 reasons to limit your exposure to negative news and create more
+  space for calm, balance, and resilience in daily life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/limit-exposure-to-negative-news/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/negative-news.webp'
+original_url: 'https://selfsaid.pages.dev/limit-exposure-to-negative-news/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/negative-news.webp)

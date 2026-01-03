@@ -1,11 +1,14 @@
 ---
-title: "You’ll Get There Don’t Give Up Printable Quote"
-date: "2024-11-04T11:56:14+01:00"
-author: "Seff Said"
-description: "Motivate yourself with this You'll Get There Don't Give Up printable quote wall art, pushing you to reach your goals without giving up."
+title: You’ll Get There Don’t Give Up Printable Quote
+date: '2024-11-04T11:56:14+01:00'
+author: Seff Said
+description: >-
+  Motivate yourself with this You'll Get There Don't Give Up printable quote
+  wall art, pushing you to reach your goals without giving up.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/youll-get-there-dont-give-up/"
+featured_image: >-
+  data:image/svg+xml,%3Csvg%20xmlns%3D%22http%3A%2F%2Fwww.w3.org%2F2000%2Fsvg%22%20width%3D%22640%22%20height%3D%22480%22%20viewBox%3D%220%200%20640%20480%22%3E%3C%2Fsvg%3E
+original_url: 'https://selfsaid.pages.dev/youll-get-there-dont-give-up/'
 ---
 
 All [Printable Quotes](/printable-quotes)

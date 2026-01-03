@@ -1,11 +1,13 @@
 ---
-title: "Resilience Hacks That Actually Feel Doable"
-date: "2025-04-18T16:58:16+02:00"
-author: "Seff Bray"
-description: "Simple, calming resilience hacks to help you feel supported when life feels heavy. Includes self-care tools and practices that actually work."
+title: Resilience Hacks That Actually Feel Doable
+date: '2025-04-18T16:58:16+02:00'
+author: Seff Bray
+description: >-
+  Simple, calming resilience hacks to help you feel supported when life feels
+  heavy. Includes self-care tools and practices that actually work.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/resilience-hacks/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Resilience-Hacks-1.webp'
+original_url: 'https://selfsaid.pages.dev/resilience-hacks/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Resilience-Hacks-1.webp)

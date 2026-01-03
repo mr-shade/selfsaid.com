@@ -1,11 +1,13 @@
 ---
-title: "88 Inspirational Kindness Quotes"
-date: "2024-09-27T12:49:57+02:00"
-author: "Seff Bray"
-description: "88 quotes about kindness, each offering a unique perspective on the power and impact of kindness in our lives."
+title: 88 Inspirational Kindness Quotes
+date: '2024-09-27T12:49:57+02:00'
+author: Seff Bray
+description: >-
+  88 quotes about kindness, each offering a unique perspective on the power and
+  impact of kindness in our lives.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-kindness/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-kindness-600x333-1.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-about-kindness/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-kindness-600x333-1.webp)

@@ -1,11 +1,13 @@
 ---
-title: "12 Rules for Being YOU"
-date: "2024-05-14T11:37:57+02:00"
-author: "Seff Bray"
-description: "Discover 12 practical steps you can take to stay grounded, authentic and be yourself every day."
+title: 12 Rules for Being YOU
+date: '2024-05-14T11:37:57+02:00'
+author: Seff Bray
+description: >-
+  Discover 12 practical steps you can take to stay grounded, authentic and be
+  yourself every day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/rules-for-being-you/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Rules-for-Being-YOU.webp'
+original_url: 'https://selfsaid.pages.dev/rules-for-being-you/'
 ---
 
 ![Confident woman walking down a NYC street](https://seffsaid.com/wp-content/uploads/Rules-for-Being-YOU.webp)

@@ -1,11 +1,14 @@
 ---
-title: "16 Ways You’re Making Life Harder Than It Has To Be"
-date: "2024-03-15T10:22:14+01:00"
-author: "Seff Bray"
-description: "Life's Hard Enough – Don’t Make It Worse! Identify the 16 habits holding you back from a happier, simpler life."
+title: 16 Ways You’re Making Life Harder Than It Has To Be
+date: '2024-03-15T10:22:14+01:00'
+author: Seff Bray
+description: >-
+  Life's Hard Enough – Don’t Make It Worse! Identify the 16 habits holding you
+  back from a happier, simpler life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ways-you-are-making-life-harder-than-it-has-to-be/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Ways-You-Are-Making-Your-Life-Harder.webp
+original_url: 'https://selfsaid.pages.dev/ways-you-are-making-life-harder-than-it-has-to-be/'
 ---
 
 ![Frustrated man staring at his phone](https://seffsaid.com/wp-content/uploads/Ways-You-Are-Making-Your-Life-Harder.webp)

@@ -1,11 +1,11 @@
 ---
-title: "20 Priceless Moments Money Can’t Buy"
-date: "2024-08-28T14:57:07+02:00"
-author: "Seff Bray"
-description: "Discover 20 priceless moments that no amount of money can ever purchase"
+title: 20 Priceless Moments Money Can’t Buy
+date: '2024-08-28T14:57:07+02:00'
+author: Seff Bray
+description: Discover 20 priceless moments that no amount of money can ever purchase
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/priceless-moments-money-cant-buy/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/priceless-moments.webp'
+original_url: 'https://selfsaid.pages.dev/priceless-moments-money-cant-buy/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/priceless-moments.webp)

@@ -1,11 +1,13 @@
 ---
-title: "50 Inspiring “End Of The Month” Quotes"
-date: "2024-10-25T12:39:17+02:00"
-author: "Seff Bray"
-description: "End of the month quotes that offer a perfect opportunity to reflect on your progress, celebrate small victories, and embrace a fresh start."
+title: 50 Inspiring “End Of The Month” Quotes
+date: '2024-10-25T12:39:17+02:00'
+author: Seff Bray
+description: >-
+  End of the month quotes that offer a perfect opportunity to reflect on your
+  progress, celebrate small victories, and embrace a fresh start.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/end-of-the-month-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/End-Of-The-Month-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/end-of-the-month-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/End-Of-The-Month-Quotes.webp)

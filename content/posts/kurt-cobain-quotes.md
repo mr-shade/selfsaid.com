@@ -1,11 +1,13 @@
 ---
-title: "Kurt Cobain’s 52 Best Quotes"
-date: "2024-04-26T16:29:49+02:00"
-author: "Seff Bray"
-description: "Discover the mind of a grunge legend with this collection of Kurt Cobain's 52 best quotes."
+title: Kurt Cobain’s 52 Best Quotes
+date: '2024-04-26T16:29:49+02:00'
+author: Seff Bray
+description: >-
+  Discover the mind of a grunge legend with this collection of Kurt Cobain's 52
+  best quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/kurt-cobain-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/kurt-cobain-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/kurt-cobain-quotes/'
 ---
 
 ![Kurt Cobain on stage with Nirvana](https://seffsaid.com/wp-content/uploads/kurt-cobain-quotes.webp)

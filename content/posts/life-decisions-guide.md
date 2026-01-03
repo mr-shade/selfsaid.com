@@ -1,11 +1,13 @@
 ---
-title: "10 Questions To Guide You Through Major Life Decisions"
-date: "2025-01-13T12:28:02+01:00"
-author: "Seff Bray"
-description: "Learn the 10 key questions that will reshape how you approach major life decisions."
+title: 10 Questions To Guide You Through Major Life Decisions
+date: '2025-01-13T12:28:02+01:00'
+author: Seff Bray
+description: >-
+  Learn the 10 key questions that will reshape how you approach major life
+  decisions.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/life-decisions-guide/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/life-decisions-guide.webp'
+original_url: 'https://selfsaid.pages.dev/life-decisions-guide/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/life-decisions-guide.webp)

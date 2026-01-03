@@ -1,11 +1,13 @@
 ---
-title: "10 Reasons To Start Saying Yes To Yourself"
-date: "2025-08-15T16:11:15+02:00"
-author: "Seff Bray"
-description: "It’s not selfish to say yes to yourself. Learn 10 powerful ways to honor your needs, protect your time, and create a life that feels more like your own."
+title: 10 Reasons To Start Saying Yes To Yourself
+date: '2025-08-15T16:11:15+02:00'
+author: Seff Bray
+description: >-
+  It’s not selfish to say yes to yourself. Learn 10 powerful ways to honor your
+  needs, protect your time, and create a life that feels more like your own.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/say-yes-to-yourself/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/say-yes-to-yourself.webp'
+original_url: 'https://selfsaid.pages.dev/say-yes-to-yourself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/say-yes-to-yourself.webp)

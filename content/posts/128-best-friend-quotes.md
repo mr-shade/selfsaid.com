@@ -1,11 +1,11 @@
 ---
-title: "128 Heartwarming Quotes About Best Friends"
-date: "2024-04-18T13:40:15+02:00"
-author: "Seff Bray"
-description: "Discover 128 thought-provoking and heart-warming quotes about best friends"
+title: 128 Heartwarming Quotes About Best Friends
+date: '2024-04-18T13:40:15+02:00'
+author: Seff Bray
+description: Discover 128 thought-provoking and heart-warming quotes about best friends
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/128-best-friend-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/best-friend-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/128-best-friend-quotes/'
 ---
 
 ![Best friends hugging each other](https://seffsaid.com/wp-content/uploads/best-friend-quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Famous Quotes About Change"
-date: "2024-10-21T12:56:04+02:00"
-author: "Seff Bray"
-description: "Whether you’re facing small adjustments or major life changes, these quotes about change will inspire you to move forward with confidence."
+title: Famous Quotes About Change
+date: '2024-10-21T12:56:04+02:00'
+author: Seff Bray
+description: >-
+  Whether you’re facing small adjustments or major life changes, these quotes
+  about change will inspire you to move forward with confidence.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/famous-quotes-about-change/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/famous-quotes-about-change.webp'
+original_url: 'https://selfsaid.pages.dev/famous-quotes-about-change/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/famous-quotes-about-change.webp)

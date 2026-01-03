@@ -1,11 +1,13 @@
 ---
-title: "121 John Wayne Quotes That Inspire Bold Living and True Grit"
-date: "2024-07-08T12:55:05+02:00"
-author: "Seff Bray"
-description: "Gallop into a world of inspiration with 121 John Wayne quotes, the enduring symbol of American grit."
+title: 121 John Wayne Quotes That Inspire Bold Living and True Grit
+date: '2024-07-08T12:55:05+02:00'
+author: Seff Bray
+description: >-
+  Gallop into a world of inspiration with 121 John Wayne quotes, the enduring
+  symbol of American grit.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/john-wayne-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/john-wayne-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/john-wayne-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/john-wayne-quotes.webp)

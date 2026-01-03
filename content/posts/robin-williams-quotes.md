@@ -1,11 +1,13 @@
 ---
-title: "The Wisdom of Robin Williams in 50 Unforgettable Quotes"
-date: "2024-04-10T17:58:00+02:00"
-author: "Seff Bray"
-description: "Let Robin Williams guide you through life's ups and downs with his 50 most unforgettable quotes."
+title: The Wisdom of Robin Williams in 50 Unforgettable Quotes
+date: '2024-04-10T17:58:00+02:00'
+author: Seff Bray
+description: >-
+  Let Robin Williams guide you through life's ups and downs with his 50 most
+  unforgettable quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/robin-williams-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/robin-williams-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/robin-williams-quotes/'
 ---
 
 ![Robin Williams on stage](https://seffsaid.com/wp-content/uploads/robin-williams-quotes.webp)

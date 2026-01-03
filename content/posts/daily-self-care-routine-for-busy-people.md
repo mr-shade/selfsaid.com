@@ -1,11 +1,14 @@
 ---
-title: "The Best Daily Self-Care Routine for Busy People"
-date: "2025-04-08T12:17:19+02:00"
-author: "Seff Bray"
-description: "Feeling stretched thin? This realistic daily self-care routine is perfect for busy people. Simple, gentle rituals that fit into your real life without stress or pressure."
+title: The Best Daily Self-Care Routine for Busy People
+date: '2025-04-08T12:17:19+02:00'
+author: Seff Bray
+description: >-
+  Feeling stretched thin? This realistic daily self-care routine is perfect for
+  busy people. Simple, gentle rituals that fit into your real life without
+  stress or pressure.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/daily-self-care-routine-for-busy-people/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Care-Busy-People.webp'
+original_url: 'https://selfsaid.pages.dev/daily-self-care-routine-for-busy-people/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Busy-People.webp)

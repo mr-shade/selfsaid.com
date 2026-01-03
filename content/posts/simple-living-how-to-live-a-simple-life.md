@@ -1,11 +1,14 @@
 ---
-title: "Simple Living: How to Live a Simple Life"
-date: "2025-05-07T11:24:15+02:00"
-author: "Seff Bray"
-description: "Discover how to live a simple life with intention, clarity, and peace. Explore gentle steps toward creating space, slowing down, and focusing on what truly matters."
+title: 'Simple Living: How to Live a Simple Life'
+date: '2025-05-07T11:24:15+02:00'
+author: Seff Bray
+description: >-
+  Discover how to live a simple life with intention, clarity, and peace. Explore
+  gentle steps toward creating space, slowing down, and focusing on what truly
+  matters.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/simple-living-how-to-live-a-simple-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Live-A-Simple-Life.webp'
+original_url: 'https://selfsaid.pages.dev/simple-living-how-to-live-a-simple-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Live-A-Simple-Life.webp)

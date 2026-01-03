@@ -1,11 +1,13 @@
 ---
-title: "115 Uplifting Quotes About Nature"
-date: "2024-01-02T17:22:34+01:00"
-author: "Seff Bray"
-description: "Let the natural world inspire you by reading through these 115 incredibly uplifting quotes about nature."
+title: 115 Uplifting Quotes About Nature
+date: '2024-01-02T17:22:34+01:00'
+author: Seff Bray
+description: >-
+  Let the natural world inspire you by reading through these 115 incredibly
+  uplifting quotes about nature.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-nature/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-nature.jpg'
+original_url: 'https://selfsaid.pages.dev/quotes-about-nature/'
 ---
 
 ![Quotes About Nature](https://seffsaid.com/wp-content/uploads/quotes-about-nature.jpg)

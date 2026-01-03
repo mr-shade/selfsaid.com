@@ -1,11 +1,13 @@
 ---
-title: "10 Life-Changing Tips for Sensitive People"
-date: "2025-08-22T15:09:24+02:00"
-author: "Seff Bray"
-description: "Discover 10 life changing tips for sensitive people to reduce overwhelm, protect your energy, and embrace sensitivity as a strength."
+title: 10 Life-Changing Tips for Sensitive People
+date: '2025-08-22T15:09:24+02:00'
+author: Seff Bray
+description: >-
+  Discover 10 life changing tips for sensitive people to reduce overwhelm,
+  protect your energy, and embrace sensitivity as a strength.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/life-changing-tips-for-sensitive-people/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Tips-for-Sensitive-People.webp'
+original_url: 'https://selfsaid.pages.dev/life-changing-tips-for-sensitive-people/'
 ---
 
 ![Sensitive person looking at the camera](https://seffsaid.com/wp-content/uploads/Tips-for-Sensitive-People.webp)

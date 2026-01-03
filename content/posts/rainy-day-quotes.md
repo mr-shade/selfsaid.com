@@ -1,11 +1,13 @@
 ---
-title: "180 Rainy Day Quotes to Uplift Your Spirits"
-date: "2023-12-27T12:02:18+01:00"
-author: "Seff Bray"
-description: "Let these 180 Rainy Day Quotes be your guide to finding inspiration on even the rainiest of days."
+title: 180 Rainy Day Quotes to Uplift Your Spirits
+date: '2023-12-27T12:02:18+01:00'
+author: Seff Bray
+description: >-
+  Let these 180 Rainy Day Quotes be your guide to finding inspiration on even
+  the rainiest of days.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/rainy-day-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/rainy-day-quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/rainy-day-quotes/'
 ---
 
 ![Rainy Day Quotes to Uplift Your Spirits](https://seffsaid.com/wp-content/uploads/rainy-day-quotes.jpg)

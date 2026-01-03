@@ -1,11 +1,13 @@
 ---
-title: "Winston Churchill’s 90 Most Memorable Quotes"
-date: "2024-02-02T11:37:56+01:00"
-author: "Seff Bray"
-description: "Discover the wisdom, resilience, and wit of a legendary leader with this collection of Winston Churchill's 90 most memorable quotes."
+title: Winston Churchill’s 90 Most Memorable Quotes
+date: '2024-02-02T11:37:56+01:00'
+author: Seff Bray
+description: >-
+  Discover the wisdom, resilience, and wit of a legendary leader with this
+  collection of Winston Churchill's 90 most memorable quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/winston-churchill-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/winston-churchill.webp'
+original_url: 'https://selfsaid.pages.dev/winston-churchill-quotes/'
 ---
 
 ![Winston Churchill](https://seffsaid.com/wp-content/uploads/winston-churchill.webp)

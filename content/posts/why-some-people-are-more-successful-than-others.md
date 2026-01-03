@@ -1,11 +1,14 @@
 ---
-title: "Why Some People Are More Successful Than Others"
-date: "2025-10-04T15:45:24+02:00"
-author: "Seff Bray"
-description: "10 traits that explain why some people are more successful than others, and how you can use them to build your own version of success."
+title: Why Some People Are More Successful Than Others
+date: '2025-10-04T15:45:24+02:00'
+author: Seff Bray
+description: >-
+  10 traits that explain why some people are more successful than others, and
+  how you can use them to build your own version of success.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/why-some-people-are-more-successful-than-others/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/why-some-people-are-more-successful.webp
+original_url: 'https://selfsaid.pages.dev/why-some-people-are-more-successful-than-others/'
 ---
 
 ![Successful man overlooking New York City from his penthouse apartment.](https://seffsaid.com/wp-content/uploads/why-some-people-are-more-successful.webp)

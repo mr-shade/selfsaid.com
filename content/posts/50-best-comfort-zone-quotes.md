@@ -1,11 +1,13 @@
 ---
-title: "The 50 Best Comfort Zone Quotes"
-date: "2024-07-03T16:18:19+02:00"
-author: "Seff Bray"
-description: "The 50 best comfort zone quotes. Perfect to inspire you to take your first step into a new world of opportunities."
+title: The 50 Best Comfort Zone Quotes
+date: '2024-07-03T16:18:19+02:00'
+author: Seff Bray
+description: >-
+  The 50 best comfort zone quotes. Perfect to inspire you to take your first
+  step into a new world of opportunities.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/50-best-comfort-zone-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Comfort-Zone-Quotes.jpg'
+original_url: 'https://selfsaid.pages.dev/50-best-comfort-zone-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Comfort-Zone-Quotes.jpg)

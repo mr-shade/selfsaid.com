@@ -1,11 +1,13 @@
 ---
-title: "50 Inspiring Serena Williams Quotes"
-date: "2024-10-10T14:01:26+02:00"
-author: "Seff Bray"
-description: "These 50 inspiring Serena Williams quotes highlight her incredible resilience, humility, and unwavering determination."
+title: 50 Inspiring Serena Williams Quotes
+date: '2024-10-10T14:01:26+02:00'
+author: Seff Bray
+description: >-
+  These 50 inspiring Serena Williams quotes highlight her incredible resilience,
+  humility, and unwavering determination.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/serena-williams-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Serena-Williams-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/serena-williams-quotes/'
 ---
 
 ![Serena Williams](https://seffsaid.com/wp-content/uploads/Serena-Williams-Quotes.webp)

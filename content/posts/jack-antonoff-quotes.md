@@ -1,11 +1,13 @@
 ---
-title: "Jack Antonoff Quotes On Music, Life, Love, And Creativity"
-date: "2024-09-16T12:19:09+02:00"
-author: "Seff Bray"
-description: "Jack Antonoff quotes on music, art, life, love, creativity, authenticity, self-discovery, emotional connection, and staying true to oneself."
+title: 'Jack Antonoff Quotes On Music, Life, Love, And Creativity'
+date: '2024-09-16T12:19:09+02:00'
+author: Seff Bray
+description: >-
+  Jack Antonoff quotes on music, art, life, love, creativity, authenticity,
+  self-discovery, emotional connection, and staying true to oneself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/jack-antonoff-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Jack-Antonoff-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/jack-antonoff-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Jack-Antonoff-Quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Why You’re Closer to Okay Than You Think"
-date: "2025-06-10T13:20:36+02:00"
-author: "Seff Bray"
-description: "You're likely doing better than you think. Discover the signs that show you're on the right path - even if it doesn’t feel like it."
+title: Why You’re Closer to Okay Than You Think
+date: '2025-06-10T13:20:36+02:00'
+author: Seff Bray
+description: >-
+  You're likely doing better than you think. Discover the signs that show you're
+  on the right path - even if it doesn’t feel like it.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/signs-you-are-doing-better-than-you-think/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/closer-to-okay.webp'
+original_url: 'https://selfsaid.pages.dev/signs-you-are-doing-better-than-you-think/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/closer-to-okay.webp)

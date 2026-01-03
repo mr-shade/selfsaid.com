@@ -1,11 +1,13 @@
 ---
-title: "How to Take Care of Yourself When You’re Not Sure What You Need"
-date: "2025-06-24T13:37:37+02:00"
-author: "Seff Bray"
-description: "Struggling to care for yourself? This article offers calm, doable ways to stay supported even when you don’t know what you need."
+title: How to Take Care of Yourself When You’re Not Sure What You Need
+date: '2025-06-24T13:37:37+02:00'
+author: Seff Bray
+description: >-
+  Struggling to care for yourself? This article offers calm, doable ways to stay
+  supported even when you don’t know what you need.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-care-when-you-dont-know-what-you-need/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-to-Take-Care-of-Yourself.webp'
+original_url: 'https://selfsaid.pages.dev/self-care-when-you-dont-know-what-you-need/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-to-Take-Care-of-Yourself.webp)

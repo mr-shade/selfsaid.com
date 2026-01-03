@@ -1,11 +1,13 @@
 ---
-title: "175 Deep Quotes About Life"
-date: "2024-04-08T14:51:57+02:00"
-author: "Seff Bray"
-description: "A collection of 175 deep quotes about life that have the power to change the way you think."
+title: 175 Deep Quotes About Life
+date: '2024-04-08T14:51:57+02:00'
+author: Seff Bray
+description: >-
+  A collection of 175 deep quotes about life that have the power to change the
+  way you think.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/deep-quotes-about-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/deep-quotes-about-life.webp'
+original_url: 'https://selfsaid.pages.dev/deep-quotes-about-life/'
 ---
 
 ![Man looking into space pondering the deep questions in life](https://seffsaid.com/wp-content/uploads/deep-quotes-about-life.webp)

@@ -1,11 +1,11 @@
 ---
-title: "Elvis Presley’s Best Quotes"
-date: "2024-05-21T13:30:38+02:00"
-author: "Seff Bray"
-description: "Discover 50 of the best quotes from the King of Rock 'n' Roll, Elvis Presley."
+title: Elvis Presley’s Best Quotes
+date: '2024-05-21T13:30:38+02:00'
+author: Seff Bray
+description: 'Discover 50 of the best quotes from the King of Rock ''n'' Roll, Elvis Presley.'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/elvis-presley-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Elvis-Presley-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/elvis-presley-quotes/'
 ---
 
 ![Elvis Presley in concert](https://seffsaid.com/wp-content/uploads/Elvis-Presley-Quotes.webp)

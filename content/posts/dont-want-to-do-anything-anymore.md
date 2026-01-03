@@ -1,11 +1,13 @@
 ---
-title: "How To Regain Motivation"
-date: "2024-08-23T17:05:43+02:00"
-author: "Seff Bray"
-description: "Don't want to do anything anymore? These tips will help you get your energy and motivation back and get you going in life."
+title: How To Regain Motivation
+date: '2024-08-23T17:05:43+02:00'
+author: Seff Bray
+description: >-
+  Don't want to do anything anymore? These tips will help you get your energy
+  and motivation back and get you going in life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/dont-want-to-do-anything-anymore/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-regain-motivation.webp'
+original_url: 'https://selfsaid.pages.dev/dont-want-to-do-anything-anymore/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-regain-motivation.webp)

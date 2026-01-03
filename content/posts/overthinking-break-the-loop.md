@@ -1,11 +1,13 @@
 ---
-title: "Overthinking Again? This Helped Me Break the Loop"
-date: "2025-07-25T12:21:31+02:00"
-author: "Seff Bray"
-description: "Stuck in a loop of overthinking? This simple shift helped me clear my mind and move forward."
+title: Overthinking Again? This Helped Me Break the Loop
+date: '2025-07-25T12:21:31+02:00'
+author: Seff Bray
+description: >-
+  Stuck in a loop of overthinking? This simple shift helped me clear my mind and
+  move forward.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/overthinking-break-the-loop/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/overthinking-break-the-loop.webp'
+original_url: 'https://selfsaid.pages.dev/overthinking-break-the-loop/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/overthinking-break-the-loop.webp)

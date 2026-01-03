@@ -1,11 +1,14 @@
 ---
-title: "5 Things You Should Stop Expecting From Other People"
-date: "2024-08-30T17:37:56+02:00"
-author: "Seff Bray"
-description: "Five things you should stop expecting from other people if you wish to enjoy happy and successful lifelong relationships."
+title: 5 Things You Should Stop Expecting From Other People
+date: '2024-08-30T17:37:56+02:00'
+author: Seff Bray
+description: >-
+  Five things you should stop expecting from other people if you wish to enjoy
+  happy and successful lifelong relationships.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/5-things-you-should-stop-expecting-from-other-people/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Stop-Expecting.webp'
+original_url: >-
+  https://selfsaid.pages.dev/5-things-you-should-stop-expecting-from-other-people/
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Stop-Expecting.webp)

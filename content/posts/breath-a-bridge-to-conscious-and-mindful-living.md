@@ -1,11 +1,11 @@
 ---
-title: "Using Breath As A Bridge To Conscious And Mindful Living"
-date: "2024-06-11T13:09:06+02:00"
-author: "Seff Bray"
-description: "A guide to using breath as a bridge to conscious and mindful living."
+title: Using Breath As A Bridge To Conscious And Mindful Living
+date: '2024-06-11T13:09:06+02:00'
+author: Seff Bray
+description: A guide to using breath as a bridge to conscious and mindful living.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/breath-a-bridge-to-conscious-and-mindful-living/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/breath-mindful-living.webp'
+original_url: 'https://selfsaid.pages.dev/breath-a-bridge-to-conscious-and-mindful-living/'
 ---
 
 ![Woman using breath to meditate](https://seffsaid.com/wp-content/uploads/breath-mindful-living.webp)

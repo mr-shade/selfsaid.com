@@ -1,11 +1,13 @@
 ---
-title: "1000 Three Word Quotes for Every Moment of Your Life"
-date: "2024-09-11T15:19:02+02:00"
-author: "Seff Bray"
-description: "1000 three-word quotes that offer inspiration, comfort, and motivation for every moment of your life."
+title: 1000 Three Word Quotes for Every Moment of Your Life
+date: '2024-09-11T15:19:02+02:00'
+author: Seff Bray
+description: >-
+  1000 three-word quotes that offer inspiration, comfort, and motivation for
+  every moment of your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/three-word-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/three-word-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/three-word-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/three-word-quotes.webp)

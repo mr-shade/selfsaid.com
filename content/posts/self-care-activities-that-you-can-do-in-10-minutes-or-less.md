@@ -1,11 +1,14 @@
 ---
-title: "25 Self-Care Activities That You Can Do In 10 Minutes Or Less"
-date: "2025-08-20T12:28:52+02:00"
-author: "Seff Bray"
-description: "25 self-care activities you can do in 10 minutes or less. Quick, calming ideas to ease stress, boost energy, and bring balance to your day."
+title: 25 Self-Care Activities That You Can Do In 10 Minutes Or Less
+date: '2025-08-20T12:28:52+02:00'
+author: Seff Bray
+description: >-
+  25 self-care activities you can do in 10 minutes or less. Quick, calming ideas
+  to ease stress, boost energy, and bring balance to your day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-care-activities-that-you-can-do-in-10-minutes-or-less/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/10-Minute-Self-Care-Activities.webp'
+original_url: >-
+  https://selfsaid.pages.dev/self-care-activities-that-you-can-do-in-10-minutes-or-less/
 ---
 
 ![Woman enjoying 10 minutes of self care meditating on a beach.](https://seffsaid.com/wp-content/uploads/10-Minute-Self-Care-Activities.webp)

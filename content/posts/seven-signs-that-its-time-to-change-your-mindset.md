@@ -1,11 +1,13 @@
 ---
-title: "Seven Signs It’s Time To Change Your Mindset"
-date: "2024-04-08T15:36:06+02:00"
-author: "Seff Bray"
-description: "Discover the seven signs that a change in mindset would do you, your life, and your well-being a world of good."
+title: Seven Signs It’s Time To Change Your Mindset
+date: '2024-04-08T15:36:06+02:00'
+author: Seff Bray
+description: >-
+  Discover the seven signs that a change in mindset would do you, your life, and
+  your well-being a world of good.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/seven-signs-that-its-time-to-change-your-mindset/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Signs-Time-To-Change-Your-Mindset.webp'
+original_url: 'https://selfsaid.pages.dev/seven-signs-that-its-time-to-change-your-mindset/'
 ---
 
 ![Man coming to the realisation that it's time to change his mindset](https://seffsaid.com/wp-content/uploads/Signs-Time-To-Change-Your-Mindset.webp)

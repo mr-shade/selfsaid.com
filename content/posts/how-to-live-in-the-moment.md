@@ -1,11 +1,13 @@
 ---
-title: "How To Live In The Moment – 5 Simple Techniques"
-date: "2024-08-09T13:33:13+02:00"
-author: "Seff Bray"
-description: "So how do we learn how to live in the moment? All it takes is a little practice, a little commitment, and these 5 simple techniques."
+title: How To Live In The Moment – 5 Simple Techniques
+date: '2024-08-09T13:33:13+02:00'
+author: Seff Bray
+description: >-
+  So how do we learn how to live in the moment? All it takes is a little
+  practice, a little commitment, and these 5 simple techniques.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-live-in-the-moment/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Live-In-The-Moment.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-live-in-the-moment/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Live-In-The-Moment.webp)

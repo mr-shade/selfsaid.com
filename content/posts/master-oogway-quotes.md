@@ -1,11 +1,13 @@
 ---
-title: "Master Oogway Quotes for Fans of Kung Fu Panda"
-date: "2024-09-24T12:58:57+02:00"
-author: "Seff Bray"
-description: "Master Oogway quotes capturing the wisdom that has made him such an iconic character in the Kung Fu Panda TV series."
+title: Master Oogway Quotes for Fans of Kung Fu Panda
+date: '2024-09-24T12:58:57+02:00'
+author: Seff Bray
+description: >-
+  Master Oogway quotes capturing the wisdom that has made him such an iconic
+  character in the Kung Fu Panda TV series.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/master-oogway-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Master-Oogway-Quotes2.webp'
+original_url: 'https://selfsaid.pages.dev/master-oogway-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Master-Oogway-Quotes2.webp)

@@ -1,11 +1,13 @@
 ---
-title: "48 Badass Quotes"
-date: "2024-07-04T12:39:02+02:00"
-author: "Seff Bray"
-description: "A collection of badass quotes to help build a fearsome positive attitude and make you relentless in working towards your goals and dreams."
+title: 48 Badass Quotes
+date: '2024-07-04T12:39:02+02:00'
+author: Seff Bray
+description: >-
+  A collection of badass quotes to help build a fearsome positive attitude and
+  make you relentless in working towards your goals and dreams.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/powerful-badass-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/badass-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/powerful-badass-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/badass-quotes.webp)

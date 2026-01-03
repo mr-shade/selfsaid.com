@@ -1,11 +1,14 @@
 ---
-title: "The Everyday Self-Care Routine: 7 Habits That Actually Stick"
-date: "2025-04-04T16:09:45+02:00"
-author: "Seff Bray"
-description: "Tired of self-care routines that feel overwhelming or impossible to stick with? This guide shares 7 simple, real-life habits that actually helped me feel better."
+title: 'The Everyday Self-Care Routine: 7 Habits That Actually Stick'
+date: '2025-04-04T16:09:45+02:00'
+author: Seff Bray
+description: >-
+  Tired of self-care routines that feel overwhelming or impossible to stick
+  with? This guide shares 7 simple, real-life habits that actually helped me
+  feel better.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/everyday-self-care-routine/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Everyday-Self-Care-Routine-webp.webp'
+original_url: 'https://selfsaid.pages.dev/everyday-self-care-routine/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Everyday-Self-Care-Routine-webp.webp)

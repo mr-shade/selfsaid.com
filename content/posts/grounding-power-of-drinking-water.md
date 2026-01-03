@@ -1,11 +1,13 @@
 ---
-title: "The Surprisingly Grounding Power of Drinking Water"
-date: "2025-04-04T15:56:46+02:00"
-author: "Seff Bray"
-description: "Discover how something as simple as drinking water became a grounding self-care ritual during my most anxious, disconnected days."
+title: The Surprisingly Grounding Power of Drinking Water
+date: '2025-04-04T15:56:46+02:00'
+author: Seff Bray
+description: >-
+  Discover how something as simple as drinking water became a grounding
+  self-care ritual during my most anxious, disconnected days.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/grounding-power-of-drinking-water/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/power-of-drinking-water.webp'
+original_url: 'https://selfsaid.pages.dev/grounding-power-of-drinking-water/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/power-of-drinking-water.webp)

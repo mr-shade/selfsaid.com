@@ -1,11 +1,13 @@
 ---
-title: "10 Self-Care Habits That Help Me Feel Like Myself Again"
-date: "2025-04-15T14:53:28+02:00"
-author: "Seff Bray"
-description: "Discover 10 simple, grounding self-care habits that gently bring you back to yourself, reduce overwhelm, and restore emotional balance."
+title: 10 Self-Care Habits That Help Me Feel Like Myself Again
+date: '2025-04-15T14:53:28+02:00'
+author: Seff Bray
+description: >-
+  Discover 10 simple, grounding self-care habits that gently bring you back to
+  yourself, reduce overwhelm, and restore emotional balance.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-care-habits-feel-like-myself/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-habits-600.webp'
+original_url: 'https://selfsaid.pages.dev/self-care-habits-feel-like-myself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-habits-600.webp)

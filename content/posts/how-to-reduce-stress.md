@@ -1,11 +1,13 @@
 ---
-title: "How To Reduce Stress Naturally"
-date: "2024-07-17T10:39:41+02:00"
-author: "Seff Bray"
-description: "Feeling stressed? Learn 12 simple ways to reduce stress naturally and feel your stress levels plummet!"
+title: How To Reduce Stress Naturally
+date: '2024-07-17T10:39:41+02:00'
+author: Seff Bray
+description: >-
+  Feeling stressed? Learn 12 simple ways to reduce stress naturally and feel
+  your stress levels plummet!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-reduce-stress/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Reduce-Stress-Naturally.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-reduce-stress/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Reduce-Stress-Naturally.webp)

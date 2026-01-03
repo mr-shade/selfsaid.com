@@ -1,11 +1,11 @@
 ---
-title: "22 Ways To Live Life To The Fullest"
-date: "2024-05-22T18:24:58+02:00"
-author: "Seff Bray"
-description: "Discover 22 powerful ways to make every moment count in your life."
+title: 22 Ways To Live Life To The Fullest
+date: '2024-05-22T18:24:58+02:00'
+author: Seff Bray
+description: Discover 22 powerful ways to make every moment count in your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/live-life-to-the-fullest/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/live-life-to-the-fullest.webp'
+original_url: 'https://selfsaid.pages.dev/live-life-to-the-fullest/'
 ---
 
 ![A group of friends living life to the fullest](https://seffsaid.com/wp-content/uploads/live-life-to-the-fullest.webp)

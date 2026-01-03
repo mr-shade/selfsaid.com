@@ -1,11 +1,13 @@
 ---
-title: "Mark Zuckerberg’s Best Quotes"
-date: "2024-06-24T15:10:49+02:00"
-author: "Seff Bray"
-description: "Learn what drives one of the world's most successful entrepreneurs by reading this collection of Mark Zuckerberg's best quotes."
+title: Mark Zuckerberg’s Best Quotes
+date: '2024-06-24T15:10:49+02:00'
+author: Seff Bray
+description: >-
+  Learn what drives one of the world's most successful entrepreneurs by reading
+  this collection of Mark Zuckerberg's best quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/mark-zuckerberg-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Mark-Zuckerberg-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/mark-zuckerberg-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Mark-Zuckerberg-Quotes.webp)

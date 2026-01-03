@@ -1,11 +1,13 @@
 ---
-title: "96 Karma Quotes to Inspire You to Live Your Very Best Life"
-date: "2024-02-27T12:38:09+01:00"
-author: "Seff Bray"
-description: "A compilation of 96 incredibly powerful karma quotes designed to truly inspire you to live your very best life."
+title: 96 Karma Quotes to Inspire You to Live Your Very Best Life
+date: '2024-02-27T12:38:09+01:00'
+author: Seff Bray
+description: >-
+  A compilation of 96 incredibly powerful karma quotes designed to truly inspire
+  you to live your very best life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/powerful-karma-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/karma-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/powerful-karma-quotes/'
 ---
 
 ![Statue of Buddha symbolizing Karma](https://seffsaid.com/wp-content/uploads/karma-quotes.webp)

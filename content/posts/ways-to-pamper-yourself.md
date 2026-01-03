@@ -1,11 +1,13 @@
 ---
-title: "10 Ways To Pamper Yourself Without Breaking The Bank"
-date: "2025-01-23T12:21:55+01:00"
-author: "Seff Bray"
-description: "Pamper yourself on a budget with these 10 simple and affordable self-care ideas."
+title: 10 Ways To Pamper Yourself Without Breaking The Bank
+date: '2025-01-23T12:21:55+01:00'
+author: Seff Bray
+description: >-
+  Pamper yourself on a budget with these 10 simple and affordable self-care
+  ideas.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/ways-to-pamper-yourself/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/pamper-yourself.webp'
+original_url: 'https://selfsaid.pages.dev/ways-to-pamper-yourself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/pamper-yourself.webp)

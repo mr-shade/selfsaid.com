@@ -1,11 +1,13 @@
 ---
-title: "60 Hope Quotes For A Brighter Tomorrow"
-date: "2024-11-04T10:41:50+01:00"
-author: "Seff Bray"
-description: "Discover a collection of 60 hope quotes that will uplift your spirit and inspire you to look toward a brighter tomorrow with renewed optimism."
+title: 60 Hope Quotes For A Brighter Tomorrow
+date: '2024-11-04T10:41:50+01:00'
+author: Seff Bray
+description: >-
+  Discover a collection of 60 hope quotes that will uplift your spirit and
+  inspire you to look toward a brighter tomorrow with renewed optimism.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/hope-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/hope-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/hope-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/hope-quotes.webp)

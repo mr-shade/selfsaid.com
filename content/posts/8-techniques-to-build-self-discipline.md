@@ -1,11 +1,13 @@
 ---
-title: "8 Techniques To Build Unshakable Self-Discipline"
-date: "2024-03-25T12:47:16+01:00"
-author: "Seff Bray"
-description: "Ready to Take Control? Discover the 8 techniques that will help you build unshakable Self-Discipline."
+title: 8 Techniques To Build Unshakable Self-Discipline
+date: '2024-03-25T12:47:16+01:00'
+author: Seff Bray
+description: >-
+  Ready to Take Control? Discover the 8 techniques that will help you build
+  unshakable Self-Discipline.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/8-techniques-to-build-self-discipline/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-build-self-discipline.webp'
+original_url: 'https://selfsaid.pages.dev/8-techniques-to-build-self-discipline/'
 ---
 
 ![Athlete running a marathon](https://seffsaid.com/wp-content/uploads/how-to-build-self-discipline.webp)

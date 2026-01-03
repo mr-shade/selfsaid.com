@@ -1,11 +1,13 @@
 ---
-title: "Minimalist Self-Care: Why Less Can Feel Like More"
-date: "2025-04-18T16:11:05+02:00"
-author: "Seff Bray"
-description: "Discover how minimalist self-care helps you feel better by doing less. Simple, calming habits that support your well-being without overwhelm."
+title: 'Minimalist Self-Care: Why Less Can Feel Like More'
+date: '2025-04-18T16:11:05+02:00'
+author: Seff Bray
+description: >-
+  Discover how minimalist self-care helps you feel better by doing less. Simple,
+  calming habits that support your well-being without overwhelm.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/minimalist-self-care/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/minimalist-self-care.webp'
+original_url: 'https://selfsaid.pages.dev/minimalist-self-care/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/minimalist-self-care.webp)

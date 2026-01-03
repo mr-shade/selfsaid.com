@@ -1,11 +1,13 @@
 ---
-title: "50 Richard Branson Quotes On Just About Everything"
-date: "2024-04-12T13:00:40+02:00"
-author: "Seff Bray"
-description: "50 Richard Branson quotes on entrepreneurship, adventure, learning, risk-taking, and life in general."
+title: 50 Richard Branson Quotes On Just About Everything
+date: '2024-04-12T13:00:40+02:00'
+author: Seff Bray
+description: >-
+  50 Richard Branson quotes on entrepreneurship, adventure, learning,
+  risk-taking, and life in general.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/richard-branson-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/richard-branson-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/richard-branson-quotes/'
 ---
 
 ![Richard Branson walking along a desert road](https://seffsaid.com/wp-content/uploads/richard-branson-quotes.webp)

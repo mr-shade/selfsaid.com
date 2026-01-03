@@ -1,11 +1,13 @@
 ---
-title: "10 Reasons Why Self-Care Should Be Your Top Priority"
-date: "2025-09-25T13:32:11+02:00"
-author: "Seff Bray"
-description: "Discover 10 powerful reasons why self-care should be your top priority, from boosting health and clarity to bringing more joy into life."
+title: 10 Reasons Why Self-Care Should Be Your Top Priority
+date: '2025-09-25T13:32:11+02:00'
+author: Seff Bray
+description: >-
+  Discover 10 powerful reasons why self-care should be your top priority, from
+  boosting health and clarity to bringing more joy into life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-care-priority/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/reasons-self-care-priority.webp'
+original_url: 'https://selfsaid.pages.dev/self-care-priority/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/reasons-self-care-priority.webp)

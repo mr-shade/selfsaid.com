@@ -1,11 +1,14 @@
 ---
-title: "29 Ways To Increase Productivity In The Workplace"
-date: "2024-02-15T14:42:07+01:00"
-author: "Seff Bray"
-description: "Need to increase productivity in the workplace? Discover these 29 simple techniques that will push your productivity through the roof!"
+title: 29 Ways To Increase Productivity In The Workplace
+date: '2024-02-15T14:42:07+01:00'
+author: Seff Bray
+description: >-
+  Need to increase productivity in the workplace? Discover these 29 simple
+  techniques that will push your productivity through the roof!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/29-tips-to-increase-productivity-at-work/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/increase-productivity-in-the-workplace.webp
+original_url: 'https://selfsaid.pages.dev/29-tips-to-increase-productivity-at-work/'
 ---
 
 ![A busy office full of productive people](https://seffsaid.com/wp-content/uploads/increase-productivity-in-the-workplace.webp)

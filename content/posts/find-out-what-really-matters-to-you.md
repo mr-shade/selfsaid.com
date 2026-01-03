@@ -1,11 +1,13 @@
 ---
-title: "10 Questions To Find Out What Really Matters To You"
-date: "2025-01-03T12:59:46+01:00"
-author: "Seff Bray"
-description: "These ten questions are the key to aligning your life with your deepest priorities and personal values."
+title: 10 Questions To Find Out What Really Matters To You
+date: '2025-01-03T12:59:46+01:00'
+author: Seff Bray
+description: >-
+  These ten questions are the key to aligning your life with your deepest
+  priorities and personal values.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/find-out-what-really-matters-to-you/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/what-really-matters.webp'
+original_url: 'https://selfsaid.pages.dev/find-out-what-really-matters-to-you/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/what-really-matters.webp)

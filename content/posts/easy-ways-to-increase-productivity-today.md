@@ -1,11 +1,13 @@
 ---
-title: "15 Easy Ways to Increase Productivity Today"
-date: "2024-08-27T15:07:02+02:00"
-author: "Seff Bray"
-description: "Unlock your potential for greater efficiency by embracing these 15 simple yet powerful strategies to increase productivity today."
+title: 15 Easy Ways to Increase Productivity Today
+date: '2024-08-27T15:07:02+02:00'
+author: Seff Bray
+description: >-
+  Unlock your potential for greater efficiency by embracing these 15 simple yet
+  powerful strategies to increase productivity today.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/easy-ways-to-increase-productivity-today/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/increase-productivity-today.webp'
+original_url: 'https://selfsaid.pages.dev/easy-ways-to-increase-productivity-today/'
 ---
 
 ![Productive people working in a busy library](https://seffsaid.com/wp-content/uploads/increase-productivity-today.webp)

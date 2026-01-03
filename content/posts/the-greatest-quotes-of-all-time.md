@@ -1,11 +1,13 @@
 ---
-title: "The Greatest Quotes Of All Time"
-date: "2024-07-30T15:05:11+02:00"
-author: "Seff Bray"
-description: "Discover a hand-picked collection of the greatest quotes of all time from some of the greatest authors who have ever lived."
+title: The Greatest Quotes Of All Time
+date: '2024-07-30T15:05:11+02:00'
+author: Seff Bray
+description: >-
+  Discover a hand-picked collection of the greatest quotes of all time from some
+  of the greatest authors who have ever lived.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/the-greatest-quotes-of-all-time/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/greatest-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/the-greatest-quotes-of-all-time/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/greatest-quotes.webp)

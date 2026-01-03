@@ -1,11 +1,13 @@
 ---
-title: "How to Start a Phone-Free Hour (Even If You’re Addicted)"
-date: "2025-04-04T15:56:54+02:00"
-author: "Seff Bray"
-description: "Struggling to unplug? This is how I started a phone-free hour each day without guilt, without pressure, and with more peace than I expected."
+title: How to Start a Phone-Free Hour (Even If You’re Addicted)
+date: '2025-04-04T15:56:54+02:00'
+author: Seff Bray
+description: >-
+  Struggling to unplug? This is how I started a phone-free hour each day without
+  guilt, without pressure, and with more peace than I expected.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/phone-free-hour/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/phone-free-hour.webp'
+original_url: 'https://selfsaid.pages.dev/phone-free-hour/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/phone-free-hour.webp)

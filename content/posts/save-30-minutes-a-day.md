@@ -1,11 +1,13 @@
 ---
-title: "20 Ways to Save 30 Minutes a Day"
-date: "2024-03-20T11:52:40+01:00"
-author: "Seff Bray"
-description: "Get More Out of Your Day! Our 20 tips will help you save 30 minutes a day so you can relax more, stress less, and enjoy life."
+title: 20 Ways to Save 30 Minutes a Day
+date: '2024-03-20T11:52:40+01:00'
+author: Seff Bray
+description: >-
+  Get More Out of Your Day! Our 20 tips will help you save 30 minutes a day so
+  you can relax more, stress less, and enjoy life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/save-30-minutes-a-day/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/ways-to-save-30-minutes-a-day.webp'
+original_url: 'https://selfsaid.pages.dev/save-30-minutes-a-day/'
 ---
 
 ![Woman relaxing in an armchair enjoying a hot drink](https://seffsaid.com/wp-content/uploads/ways-to-save-30-minutes-a-day.webp)

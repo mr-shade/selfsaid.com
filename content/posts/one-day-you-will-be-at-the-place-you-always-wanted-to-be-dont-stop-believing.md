@@ -1,11 +1,15 @@
 ---
-title: "One Day You Will Be At The Place You Always Wanted To Be. Don’t Stop Believing"
-date: "2023-08-27T11:23:00+02:00"
-author: "Seff Bray"
-description: "Explore our concise meaning of the quote 'One day you will be at the place you always wanted to be. Don't stop believing,'"
+title: One Day You Will Be At The Place You Always Wanted To Be. Don’t Stop Believing
+date: '2023-08-27T11:23:00+02:00'
+author: Seff Bray
+description: >-
+  Explore our concise meaning of the quote 'One day you will be at the place you
+  always wanted to be. Don't stop believing,'
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/One-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg
+original_url: >-
+  https://selfsaid.pages.dev/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/
 ---
 
 ![One day you will be at the place you always wanted to be. Don't stop believing.](https://seffsaid.com/wp-content/uploads/One-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg)

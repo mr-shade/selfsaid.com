@@ -1,11 +1,13 @@
 ---
-title: "How To Stop Overthinking Everything"
-date: "2024-07-26T16:30:33+02:00"
-author: "Seff Bray"
-description: "Six ways to stop overthinking that have helped me to relax and take my overactive brain from a chronic state of stress to a calmer place."
+title: How To Stop Overthinking Everything
+date: '2024-07-26T16:30:33+02:00'
+author: Seff Bray
+description: >-
+  Six ways to stop overthinking that have helped me to relax and take my
+  overactive brain from a chronic state of stress to a calmer place.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/stop-overthinking-everything/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Stop-Overthinking-Everything.webp'
+original_url: 'https://selfsaid.pages.dev/stop-overthinking-everything/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Stop-Overthinking-Everything.webp)

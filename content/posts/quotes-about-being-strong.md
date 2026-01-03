@@ -1,11 +1,13 @@
 ---
-title: "166 Quotes About Being Strong During Difficult Times"
-date: "2024-01-04T11:50:07+01:00"
-author: "Seff Bray"
-description: "Need a boost of courage? Read our curated collection of 166 inspiring quotes about being strong during difficult times."
+title: 166 Quotes About Being Strong During Difficult Times
+date: '2024-01-04T11:50:07+01:00'
+author: Seff Bray
+description: >-
+  Need a boost of courage? Read our curated collection of 166 inspiring quotes
+  about being strong during difficult times.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-about-being-strong/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-being-strong.jpg'
+original_url: 'https://selfsaid.pages.dev/quotes-about-being-strong/'
 ---
 
 ![Quotes About Being Strong](https://seffsaid.com/wp-content/uploads/quotes-about-being-strong.jpg)

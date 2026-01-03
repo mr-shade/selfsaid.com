@@ -1,11 +1,13 @@
 ---
-title: "10 Inspirational Lessons From Highly Successful People"
-date: "2025-03-06T11:49:21+01:00"
-author: "Seff Bray"
-description: "Discover the habits, mindset, and strategies that set highly successful people apart and allow them to achieve extraordinary results."
+title: 10 Inspirational Lessons From Highly Successful People
+date: '2025-03-06T11:49:21+01:00'
+author: Seff Bray
+description: >-
+  Discover the habits, mindset, and strategies that set highly successful people
+  apart and allow them to achieve extraordinary results.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/inspirational-lessons/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Inspirational-Lessons-600.webp'
+original_url: 'https://selfsaid.pages.dev/inspirational-lessons/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Inspirational-Lessons-600.webp)

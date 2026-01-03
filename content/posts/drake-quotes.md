@@ -1,11 +1,11 @@
 ---
-title: "Drake’s Best Quotes"
-date: "2024-07-15T16:16:58+02:00"
-author: "Seff Bray"
-description: "Drake's 50 best quotes that will inspire and guide you in your everyday life."
+title: Drake’s Best Quotes
+date: '2024-07-15T16:16:58+02:00'
+author: Seff Bray
+description: Drake's 50 best quotes that will inspire and guide you in your everyday life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/drake-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Drake-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/drake-quotes/'
 ---
 
 ![Drake in concert](https://seffsaid.com/wp-content/uploads/Drake-Quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Carly Rae Jepsen Quotes"
-date: "2024-08-23T13:28:42+02:00"
-author: "Seff Bray"
-description: "A collection of Carly Rae Jepsen quotes that reflect her thoughts on creativity, life, music, and personal growth."
+title: Carly Rae Jepsen Quotes
+date: '2024-08-23T13:28:42+02:00'
+author: Seff Bray
+description: >-
+  A collection of Carly Rae Jepsen quotes that reflect her thoughts on
+  creativity, life, music, and personal growth.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/carly-rae-jepsen-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Carly-Rae-Jepsen-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/carly-rae-jepsen-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Carly-Rae-Jepsen-Quotes.webp)

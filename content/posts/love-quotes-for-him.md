@@ -1,11 +1,13 @@
 ---
-title: "188 Love Quotes For Him"
-date: "2024-08-25T18:01:49+02:00"
-author: "Seff Bray"
-description: "Discover the perfect words to express your deepest feelings with these hand curated 188 Love Quotes For Him."
+title: 188 Love Quotes For Him
+date: '2024-08-25T18:01:49+02:00'
+author: Seff Bray
+description: >-
+  Discover the perfect words to express your deepest feelings with these hand
+  curated 188 Love Quotes For Him.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/love-quotes-for-him/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Love-Quotes-For-Him-600x338-1.jpg'
+original_url: 'https://selfsaid.pages.dev/love-quotes-for-him/'
 ---
 
 ![Love Quotes For Him](https://seffsaid.com/wp-content/uploads/Love-Quotes-For-Him-600x338-1.jpg)

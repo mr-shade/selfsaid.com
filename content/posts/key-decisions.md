@@ -1,11 +1,13 @@
 ---
-title: "Key Decisions You’ll Be Thankful You Made Earlier"
-date: "2025-10-17T13:09:38+02:00"
-author: "Seff Bray"
-description: "The choices you make today matter. Discover eight key decisions that will lead to more peace, purpose, and gratitude in the years ahead."
+title: Key Decisions You’ll Be Thankful You Made Earlier
+date: '2025-10-17T13:09:38+02:00'
+author: Seff Bray
+description: >-
+  The choices you make today matter. Discover eight key decisions that will lead
+  to more peace, purpose, and gratitude in the years ahead.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/key-decisions/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/key-decisions.webp'
+original_url: 'https://selfsaid.pages.dev/key-decisions/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/key-decisions.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Planner Ideas: 18 ‘Must-Have’ Pages To Include In Your Planner"
-date: "2024-08-23T17:43:12+02:00"
-author: "Seff Bray"
-description: "Looking for planner ideas? Discover the 18 must-have pages you need in your planner. Powerful inserts that will get you super organized."
+title: 'Planner Ideas: 18 ‘Must-Have’ Pages To Include In Your Planner'
+date: '2024-08-23T17:43:12+02:00'
+author: Seff Bray
+description: >-
+  Looking for planner ideas? Discover the 18 must-have pages you need in your
+  planner. Powerful inserts that will get you super organized.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/planner-ideas/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/planner-ideas.webp'
+original_url: 'https://selfsaid.pages.dev/planner-ideas/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/planner-ideas.webp)

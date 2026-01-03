@@ -1,11 +1,13 @@
 ---
-title: "Easy Self Care Practices You Can Start Today"
-date: "2025-07-15T12:57:10+02:00"
-author: "Seff Bray"
-description: "Simple self care practices you can do today to help you feel calmer and more balanced."
+title: Easy Self Care Practices You Can Start Today
+date: '2025-07-15T12:57:10+02:00'
+author: Seff Bray
+description: >-
+  Simple self care practices you can do today to help you feel calmer and more
+  balanced.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/easy-self-care-practices/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/easy-self-care-practices.webp'
+original_url: 'https://selfsaid.pages.dev/easy-self-care-practices/'
 ---
 
 ![Easy Self Care Practices You Can Start Today](https://seffsaid.com/wp-content/uploads/easy-self-care-practices.webp)

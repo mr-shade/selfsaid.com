@@ -1,11 +1,13 @@
 ---
-title: "18 Ways to Slay the Day, Every Day"
-date: "2024-09-19T13:14:29+02:00"
-author: "Seff Bray"
-description: "18 strategies to tackle delays, stay productive, keep moving forward, and ensuring you slay the day, every day."
+title: '18 Ways to Slay the Day, Every Day'
+date: '2024-09-19T13:14:29+02:00'
+author: Seff Bray
+description: >-
+  18 strategies to tackle delays, stay productive, keep moving forward, and
+  ensuring you slay the day, every day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/slay-the-day/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/slay-the-day.webp'
+original_url: 'https://selfsaid.pages.dev/slay-the-day/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/slay-the-day.webp)

@@ -1,11 +1,13 @@
 ---
-title: "164 Quotes That Make You Think"
-date: "2023-12-20T15:46:23+01:00"
-author: "Seff Bray"
-description: "Challenge your thoughts and beliefs with the profound wisdom found in this collection of '164 Quotes That Make You Think'."
+title: 164 Quotes That Make You Think
+date: '2023-12-20T15:46:23+01:00'
+author: Seff Bray
+description: >-
+  Challenge your thoughts and beliefs with the profound wisdom found in this
+  collection of '164 Quotes That Make You Think'.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-that-make-you-think/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-make-you-think.jpg'
+original_url: 'https://selfsaid.pages.dev/quotes-that-make-you-think/'
 ---
 
 ![164 Quotes That Make You Think](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-think.jpg)

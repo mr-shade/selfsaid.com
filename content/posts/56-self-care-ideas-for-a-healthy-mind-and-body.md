@@ -1,11 +1,13 @@
 ---
-title: "56 Self-Care Ideas For A Healthy Mind And Body"
-date: "2025-04-10T12:01:06+02:00"
-author: "Seff Bray"
-description: "A list of 56 self-care ideas for a healthier mind and body. Simple, calming habits to help you slow down, reset, and reconnect with yourself."
+title: 56 Self-Care Ideas For A Healthy Mind And Body
+date: '2025-04-10T12:01:06+02:00'
+author: Seff Bray
+description: >-
+  A list of 56 self-care ideas for a healthier mind and body. Simple, calming
+  habits to help you slow down, reset, and reconnect with yourself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/56-self-care-ideas-for-a-healthy-mind-and-body/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-ideas-1.webp'
+original_url: 'https://selfsaid.pages.dev/56-self-care-ideas-for-a-healthy-mind-and-body/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-ideas-1.webp)

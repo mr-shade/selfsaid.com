@@ -1,11 +1,13 @@
 ---
-title: "How To Build A Better Version Of You"
-date: "2024-11-27T17:50:49+01:00"
-author: "Seff Bray"
-description: "Discover how to shape your habits, mindset, and routines to create the very best version of yourself."
+title: How To Build A Better Version Of You
+date: '2024-11-27T17:50:49+01:00'
+author: Seff Bray
+description: >-
+  Discover how to shape your habits, mindset, and routines to create the very
+  best version of yourself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/build-a-better-version-of-you/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Build-A-Better-Version-Of-You.webp'
+original_url: 'https://selfsaid.pages.dev/build-a-better-version-of-you/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Build-A-Better-Version-Of-You.webp)

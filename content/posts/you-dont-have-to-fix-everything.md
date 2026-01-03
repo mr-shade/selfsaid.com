@@ -1,11 +1,13 @@
 ---
-title: "You Don’t Have to Fix Everything Today"
-date: "2025-06-09T12:45:32+02:00"
-author: "Seff Bray"
-description: "Feeling overwhelmed? This gentle reminder will help you slow down and care for yourself without fixing everything at once."
+title: You Don’t Have to Fix Everything Today
+date: '2025-06-09T12:45:32+02:00'
+author: Seff Bray
+description: >-
+  Feeling overwhelmed? This gentle reminder will help you slow down and care for
+  yourself without fixing everything at once.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/you-dont-have-to-fix-everything/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/you-dont-have-to-fix-everything.webp'
+original_url: 'https://selfsaid.pages.dev/you-dont-have-to-fix-everything/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/you-dont-have-to-fix-everything.webp)

@@ -1,11 +1,15 @@
 ---
-title: "50 Things That You Need To Start Doing For Yourself"
-date: "2025-08-22T14:41:48+02:00"
-author: "Seff Bray"
-description: "Start putting yourself first with these 50 simple self-care ideas. Practical ways to protect your energy, boost your mood, and create a more balanced life."
+title: 50 Things That You Need To Start Doing For Yourself
+date: '2025-08-22T14:41:48+02:00'
+author: Seff Bray
+description: >-
+  Start putting yourself first with these 50 simple self-care ideas. Practical
+  ways to protect your energy, boost your mood, and create a more balanced life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/50-things-that-you-need-to-start-doing-for-yourself/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp
+original_url: >-
+  https://selfsaid.pages.dev/50-things-that-you-need-to-start-doing-for-yourself/
 ---
 
 ![Woman prioritizing her self-care by reading a book](https://seffsaid.com/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp)

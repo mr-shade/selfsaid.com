@@ -1,11 +1,13 @@
 ---
-title: "7 Ways To Cultivate A Beginner’s Mindset"
-date: "2024-04-01T18:01:23+02:00"
-author: "Seff Bray"
-description: "Discover how a beginner's mindset can revolutionize your approach to challenges and opportunities."
+title: 7 Ways To Cultivate A Beginner’s Mindset
+date: '2024-04-01T18:01:23+02:00'
+author: Seff Bray
+description: >-
+  Discover how a beginner's mindset can revolutionize your approach to
+  challenges and opportunities.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/beginners-mindset/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/beginners-mindset.webp'
+original_url: 'https://selfsaid.pages.dev/beginners-mindset/'
 ---
 
 ![A man using the beginner's mindset to learn to sail a yacht.](https://seffsaid.com/wp-content/uploads/beginners-mindset.webp)

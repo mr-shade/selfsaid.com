@@ -1,11 +1,13 @@
 ---
-title: "60 Quotes About Putting Yourself First Without Guilt"
-date: "2025-06-02T12:47:49+02:00"
-author: "Seff Bray"
-description: "A collection of 60 quotes about putting yourself first without guilt. Reminders that prioritising your needs is not selfish, it’s necessary."
+title: 60 Quotes About Putting Yourself First Without Guilt
+date: '2025-06-02T12:47:49+02:00'
+author: Seff Bray
+description: >-
+  A collection of 60 quotes about putting yourself first without guilt.
+  Reminders that prioritising your needs is not selfish, it’s necessary.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/putting-yourself-first/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/putting-yourself-first.webp'
+original_url: 'https://selfsaid.pages.dev/putting-yourself-first/'
 ---
 
 ![Putting Yourself First](https://seffsaid.com/wp-content/uploads/putting-yourself-first.webp)

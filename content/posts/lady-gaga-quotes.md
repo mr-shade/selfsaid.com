@@ -1,11 +1,13 @@
 ---
-title: "Lady Gaga’s Best Quotes"
-date: "2024-05-10T12:32:06+02:00"
-author: "Seff Bray"
-description: "50 of Lady Gaga's best quotes that showcase her wisdom, humor, and indomitable spirit."
+title: Lady Gaga’s Best Quotes
+date: '2024-05-10T12:32:06+02:00'
+author: Seff Bray
+description: >-
+  50 of Lady Gaga's best quotes that showcase her wisdom, humor, and indomitable
+  spirit.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/lady-gaga-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Lady-Gaga-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/lady-gaga-quotes/'
 ---
 
 ![Lady Gaga standing in front of a huge audience](https://seffsaid.com/wp-content/uploads/Lady-Gaga-Quotes.webp)

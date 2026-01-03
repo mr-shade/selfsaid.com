@@ -1,11 +1,13 @@
 ---
-title: "Reinvent Yourself: 20 Creative Ways to Transform Your World"
-date: "2024-04-04T12:41:53+02:00"
-author: "Seff Bray"
-description: "Discover actionable advice, real-life examples, and unique strategies to reinvent yourself and transform your life."
+title: 'Reinvent Yourself: 20 Creative Ways to Transform Your World'
+date: '2024-04-04T12:41:53+02:00'
+author: Seff Bray
+description: >-
+  Discover actionable advice, real-life examples, and unique strategies to
+  reinvent yourself and transform your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/reinvent-yourself/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Reinvent-Yourself.webp'
+original_url: 'https://selfsaid.pages.dev/reinvent-yourself/'
 ---
 
 ![Happy smiling man walking down a busy street](https://seffsaid.com/wp-content/uploads/Reinvent-Yourself.webp)

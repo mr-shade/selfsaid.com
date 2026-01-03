@@ -1,11 +1,13 @@
 ---
-title: "8 Proven Ways to Reduce Stress"
-date: "2024-05-23T18:16:04+02:00"
-author: "Seff Bray"
-description: "Discover 8 proven stress management tips to help you reduce stress and have you back feeling in control of your life."
+title: 8 Proven Ways to Reduce Stress
+date: '2024-05-23T18:16:04+02:00'
+author: Seff Bray
+description: >-
+  Discover 8 proven stress management tips to help you reduce stress and have
+  you back feeling in control of your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/proven-ways-to-reduce-stress/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp'
+original_url: 'https://selfsaid.pages.dev/proven-ways-to-reduce-stress/'
 ---
 
 ![Incredibly stressed man](https://seffsaid.com/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp)

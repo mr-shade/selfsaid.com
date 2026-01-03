@@ -1,11 +1,13 @@
 ---
-title: "Quotes To Make You Feel Better About Life And Yourself"
-date: "2024-07-10T13:08:26+02:00"
-author: "Seff Bray"
-description: "Discover 34 hand-selected inspirational quotes written specifically to make you feel better about life and yourself."
+title: Quotes To Make You Feel Better About Life And Yourself
+date: '2024-07-10T13:08:26+02:00'
+author: Seff Bray
+description: >-
+  Discover 34 hand-selected inspirational quotes written specifically to make
+  you feel better about life and yourself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-to-make-you-feel-better/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Quotes-To-Make-You-Feel-Better.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-to-make-you-feel-better/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-To-Make-You-Feel-Better.webp)

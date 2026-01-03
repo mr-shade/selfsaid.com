@@ -1,11 +1,13 @@
 ---
-title: "How to Live Your Best Life Starting Today"
-date: "2025-10-10T11:14:36+02:00"
-author: "Seff Bray"
-description: "Learn how to align with what matters, care for yourself, nurture real connections, and find meaning in everyday moments."
+title: How to Live Your Best Life Starting Today
+date: '2025-10-10T11:14:36+02:00'
+author: Seff Bray
+description: >-
+  Learn how to align with what matters, care for yourself, nurture real
+  connections, and find meaning in everyday moments.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-live-your-best-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-live-your-best-life.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-live-your-best-life/'
 ---
 
 ![Woman looking out to sea](https://seffsaid.com/wp-content/uploads/how-to-live-your-best-life.webp)

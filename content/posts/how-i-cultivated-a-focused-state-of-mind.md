@@ -1,11 +1,13 @@
 ---
-title: "How I Cultivated A Focused State Of Mind"
-date: "2024-02-06T12:22:37+01:00"
-author: "Seff Bray"
-description: "Discover the secrets to achieving laser-sharp focus in your daily life – click here to learn how!"
+title: How I Cultivated A Focused State Of Mind
+date: '2024-02-06T12:22:37+01:00'
+author: Seff Bray
+description: >-
+  Discover the secrets to achieving laser-sharp focus in your daily life – click
+  here to learn how!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-i-cultivated-a-focused-state-of-mind/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/focused-state-of-mind.webp'
+original_url: 'https://selfsaid.pages.dev/how-i-cultivated-a-focused-state-of-mind/'
 ---
 
 ![Woman sitting on a beautiful beach meditating.](https://seffsaid.com/wp-content/uploads/focused-state-of-mind.webp)

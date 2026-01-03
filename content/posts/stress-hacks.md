@@ -1,11 +1,14 @@
 ---
-title: "15 Everyday Stress Hacks That Actually Help (and Don’t Feel Like Work)"
-date: "2025-03-26T15:39:27+01:00"
-author: "Seff Bray"
-description: "These 15 everyday stress hacks are small, calming, and doable, no long routines or pressure to perform. Just gentle shifts that help you feel more grounded."
+title: 15 Everyday Stress Hacks That Actually Help (and Don’t Feel Like Work)
+date: '2025-03-26T15:39:27+01:00'
+author: Seff Bray
+description: >-
+  These 15 everyday stress hacks are small, calming, and doable, no long
+  routines or pressure to perform. Just gentle shifts that help you feel more
+  grounded.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/stress-hacks/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/everyday-stress-hacks.webp'
+original_url: 'https://selfsaid.pages.dev/stress-hacks/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/everyday-stress-hacks.webp)

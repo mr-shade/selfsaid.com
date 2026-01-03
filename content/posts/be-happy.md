@@ -1,11 +1,14 @@
 ---
-title: "Be Happy Printable Quote"
-date: "2024-10-29T17:40:22+01:00"
-author: "Seff Said"
-description: "Transform any room into a space filled with positivity by printing and displaying our \"Be Happy\" quote, a small step toward a brighter day."
+title: Be Happy Printable Quote
+date: '2024-10-29T17:40:22+01:00'
+author: Seff Said
+description: >-
+  Transform any room into a space filled with positivity by printing and
+  displaying our "Be Happy" quote, a small step toward a brighter day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/be-happy/"
+featured_image: >-
+  data:image/svg+xml,%3Csvg%20xmlns%3D%22http%3A%2F%2Fwww.w3.org%2F2000%2Fsvg%22%20width%3D%22640%22%20height%3D%22426%22%20viewBox%3D%220%200%20640%20426%22%3E%3C%2Fsvg%3E
+original_url: 'https://selfsaid.pages.dev/be-happy/'
 ---
 
 All [Printable Quotes](/printable-quotes)

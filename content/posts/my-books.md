@@ -1,11 +1,13 @@
 ---
-title: "My Books"
-date: "2024-01-17T11:14:16+01:00"
-author: "Seff Said"
-description: "Books written by Seff Bray, the owner of seffsaid.com that are currently available to purchase."
+title: My Books
+date: '2024-01-17T11:14:16+01:00'
+author: Seff Said
+description: >-
+  Books written by Seff Bray, the owner of seffsaid.com that are currently
+  available to purchase.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/my-books/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Seff-Bray-How-To-Say-No-283x400-1.webp'
+original_url: 'https://selfsaid.pages.dev/my-books/'
 ---
 
 # My Books

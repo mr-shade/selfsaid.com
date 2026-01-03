@@ -1,11 +1,13 @@
 ---
-title: "10 Ways to Unleash The Beast In You"
-date: "2024-03-25T11:27:02+01:00"
-author: "Seff Bray"
-description: "Discover 10 powerful strategies to awaken your inner beast and conquer life's challenges. with actionable advice and real-life examples."
+title: 10 Ways to Unleash The Beast In You
+date: '2024-03-25T11:27:02+01:00'
+author: Seff Bray
+description: >-
+  Discover 10 powerful strategies to awaken your inner beast and conquer life's
+  challenges. with actionable advice and real-life examples.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/unleash-the-beast-in-you/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Unleash-The-Beast-In-You.webp'
+original_url: 'https://selfsaid.pages.dev/unleash-the-beast-in-you/'
 ---
 
 ![Lion roaring unleashing his inner beast](https://seffsaid.com/wp-content/uploads/Unleash-The-Beast-In-You.webp)

@@ -1,11 +1,13 @@
 ---
-title: "60 Marriage Quotes That Celebrate Love and Commitment"
-date: "2024-11-03T16:06:42+01:00"
-author: "Seff Bray"
-description: "Experience the beauty and depth of marriage through 60 thoughtful quotes that celebrate the power of true partnership."
+title: 60 Marriage Quotes That Celebrate Love and Commitment
+date: '2024-11-03T16:06:42+01:00'
+author: Seff Bray
+description: >-
+  Experience the beauty and depth of marriage through 60 thoughtful quotes that
+  celebrate the power of true partnership.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/marriage-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/marriage-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/marriage-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/marriage-quotes.webp)

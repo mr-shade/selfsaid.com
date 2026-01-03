@@ -1,11 +1,13 @@
 ---
-title: "50 Deep Maturity Quotes"
-date: "2024-09-30T13:07:03+02:00"
-author: "Seff Bray"
-description: "Powerful maturity quotes highlighting self-awareness, patience, responsibility, life's challenges, and personal growth."
+title: 50 Deep Maturity Quotes
+date: '2024-09-30T13:07:03+02:00'
+author: Seff Bray
+description: >-
+  Powerful maturity quotes highlighting self-awareness, patience,
+  responsibility, life's challenges, and personal growth.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/maturity-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/maturity-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/maturity-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/maturity-quotes.webp)

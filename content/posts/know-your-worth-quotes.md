@@ -1,11 +1,13 @@
 ---
-title: "60 Empowering Quotes About Knowing Your Worth"
-date: "2025-06-04T12:36:59+02:00"
-author: "Seff Bray"
-description: "This list of 60 quotes about knowing your worth offers supportive words for when you feel overlooked, undervalued, or unsure of yourself."
+title: 60 Empowering Quotes About Knowing Your Worth
+date: '2025-06-04T12:36:59+02:00'
+author: Seff Bray
+description: >-
+  This list of 60 quotes about knowing your worth offers supportive words for
+  when you feel overlooked, undervalued, or unsure of yourself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/know-your-worth-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/know-your-worth-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/know-your-worth-quotes/'
 ---
 
 ![Quotes About Knowing Your Worth](https://seffsaid.com/wp-content/uploads/know-your-worth-quotes.webp)

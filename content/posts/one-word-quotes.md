@@ -1,11 +1,13 @@
 ---
-title: "100 One Word Quotes For Daily Motivation and Inspiration"
-date: "2024-01-31T17:44:55+01:00"
-author: "Seff Bray"
-description: "Discover a unique collection of 100 powerful one-word quotes hand-picked to motivate, inspire, uplift, and guide you."
+title: 100 One Word Quotes For Daily Motivation and Inspiration
+date: '2024-01-31T17:44:55+01:00'
+author: Seff Bray
+description: >-
+  Discover a unique collection of 100 powerful one-word quotes hand-picked to
+  motivate, inspire, uplift, and guide you.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/one-word-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/one-word-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/one-word-quotes/'
 ---
 
 ![One Word Quotes](https://seffsaid.com/wp-content/uploads/one-word-quotes.webp)

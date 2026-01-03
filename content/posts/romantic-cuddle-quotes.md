@@ -1,11 +1,13 @@
 ---
-title: "145 Romantic Cuddle Quotes"
-date: "2025-02-21T12:32:10+01:00"
-author: "Seff Bray"
-description: "These romantic cuddle quotes capture the feeling of hugging someone special and never wanting to let go."
+title: 145 Romantic Cuddle Quotes
+date: '2025-02-21T12:32:10+01:00'
+author: Seff Bray
+description: >-
+  These romantic cuddle quotes capture the feeling of hugging someone special
+  and never wanting to let go.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/romantic-cuddle-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/romantic-cuddle-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/romantic-cuddle-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/romantic-cuddle-quotes.webp)

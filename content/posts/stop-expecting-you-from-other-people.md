@@ -1,11 +1,14 @@
 ---
-title: "Stop Expecting YOU From Other People"
-date: "2023-02-09T12:07:09+01:00"
-author: "Seff Bray"
-description: "Learn how to build healthier and more meaningful relationships and live a more fulfilling life by stopping expecting you from other people."
+title: Stop Expecting YOU From Other People
+date: '2023-02-09T12:07:09+01:00'
+author: Seff Bray
+description: >-
+  Learn how to build healthier and more meaningful relationships and live a more
+  fulfilling life by stopping expecting you from other people.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/stop-expecting-you-from-other-people/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Stop-expecting-you-from-other-people.jpg
+original_url: 'https://selfsaid.pages.dev/stop-expecting-you-from-other-people/'
 ---
 
 How often do you look for yourself in other people? Rarely? In a few people? Literally every single soul you meet?

@@ -1,11 +1,13 @@
 ---
-title: "5 Daily Habits Holding You Back From Success"
-date: "2024-07-26T15:55:32+02:00"
-author: "Seff Bray"
-description: "Discover the five daily habits that are holding you back from success and learn how to overcome them to unlock your full potential."
+title: 5 Daily Habits Holding You Back From Success
+date: '2024-07-26T15:55:32+02:00'
+author: Seff Bray
+description: >-
+  Discover the five daily habits that are holding you back from success and
+  learn how to overcome them to unlock your full potential.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/daily-habits-that-keep-holding-us-back/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/daily-habits-holding-you-back.webp'
+original_url: 'https://selfsaid.pages.dev/daily-habits-that-keep-holding-us-back/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/daily-habits-holding-you-back.webp)

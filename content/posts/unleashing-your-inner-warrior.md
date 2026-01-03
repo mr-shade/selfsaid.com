@@ -1,11 +1,13 @@
 ---
-title: "Unleashing Your Inner Warrior: How to Bring Out the Fighter in You"
-date: "2024-08-05T12:59:11+02:00"
-author: "Seff Bray"
-description: "Discover strategies, mindset shifts, and actionable advice to help you tap into your inner warrior and tackle life's challenges head-on."
+title: 'Unleashing Your Inner Warrior: How to Bring Out the Fighter in You'
+date: '2024-08-05T12:59:11+02:00'
+author: Seff Bray
+description: >-
+  Discover strategies, mindset shifts, and actionable advice to help you tap
+  into your inner warrior and tackle life's challenges head-on.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/unleashing-your-inner-warrior/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/inner-warrior.webp'
+original_url: 'https://selfsaid.pages.dev/unleashing-your-inner-warrior/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/inner-warrior.webp)

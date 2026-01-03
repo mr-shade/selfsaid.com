@@ -1,11 +1,13 @@
 ---
-title: "How To Cultivate An Attitude Of Gratitude"
-date: "2024-07-17T09:57:09+02:00"
-author: "Seff Bray"
-description: "Here's how I cultivated my 'attitude for gratitude', the habit of feeling and expressing thanks for everything in your life."
+title: How To Cultivate An Attitude Of Gratitude
+date: '2024-07-17T09:57:09+02:00'
+author: Seff Bray
+description: >-
+  Here's how I cultivated my 'attitude for gratitude', the habit of feeling and
+  expressing thanks for everything in your life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-cultivate-an-attitude-of-gratitude/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/attitude-of-gratitude.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-cultivate-an-attitude-of-gratitude/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/attitude-of-gratitude.webp)

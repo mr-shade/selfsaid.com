@@ -1,11 +1,13 @@
 ---
-title: "14 Hacks To Simplify Your Life And Save Time"
-date: "2025-02-18T15:10:15+01:00"
-author: "Seff Bray"
-description: "Stop wasting time and start getting more done by simplifying your life with these 14 smart life hacks."
+title: 14 Hacks To Simplify Your Life And Save Time
+date: '2025-02-18T15:10:15+01:00'
+author: Seff Bray
+description: >-
+  Stop wasting time and start getting more done by simplifying your life with
+  these 14 smart life hacks.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/simplify-your-life-and-save-time/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Simplify-Your-Life-Save-Time.webp'
+original_url: 'https://selfsaid.pages.dev/simplify-your-life-and-save-time/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Simplify-Your-Life-Save-Time.webp)

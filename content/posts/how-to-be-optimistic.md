@@ -1,11 +1,13 @@
 ---
-title: "Ten Easy Ways to Boost Your Optimism"
-date: "2024-06-05T16:43:18+02:00"
-author: "Seff Bray"
-description: "Discover 10 easy ways to boost your optimism, filling your life with positivity, possibilities, and happiness."
+title: Ten Easy Ways to Boost Your Optimism
+date: '2024-06-05T16:43:18+02:00'
+author: Seff Bray
+description: >-
+  Discover 10 easy ways to boost your optimism, filling your life with
+  positivity, possibilities, and happiness.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-be-optimistic/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Be-Optimistic.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-be-optimistic/'
 ---
 
 ![Optimistic woman smiling at the camera](https://seffsaid.com/wp-content/uploads/How-To-Be-Optimistic.webp)

@@ -1,11 +1,13 @@
 ---
-title: "90 Inspirational Quotes About Life"
-date: "2024-04-08T17:56:30+02:00"
-author: "Seff Bray"
-description: "Let these 90 inspirational quotes about life uplift and guide you toward a more positive mindset."
+title: 90 Inspirational Quotes About Life
+date: '2024-04-08T17:56:30+02:00'
+author: Seff Bray
+description: >-
+  Let these 90 inspirational quotes about life uplift and guide you toward a
+  more positive mindset.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/best-inspirational-life-quotes-of-all-time/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/inspirational-quotes-about-life.webp'
+original_url: 'https://selfsaid.pages.dev/best-inspirational-life-quotes-of-all-time/'
 ---
 
 ![Woman sitting by a lake thinking about life](https://seffsaid.com/wp-content/uploads/inspirational-quotes-about-life.webp)

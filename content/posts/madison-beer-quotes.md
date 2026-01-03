@@ -1,11 +1,13 @@
 ---
-title: "Madison Beer’s Best Quotes"
-date: "2024-08-19T15:31:34+02:00"
-author: "Seff Bray"
-description: "A collection of Madison Beer quotes that encourage confidence, authenticity and personal growth in your daily life."
+title: Madison Beer’s Best Quotes
+date: '2024-08-19T15:31:34+02:00'
+author: Seff Bray
+description: >-
+  A collection of Madison Beer quotes that encourage confidence, authenticity
+  and personal growth in your daily life.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/madison-beer-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/madison-beer-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/madison-beer-quotes/'
 ---
 
 ![Madison Beer in concert](https://seffsaid.com/wp-content/uploads/madison-beer-quotes.webp)

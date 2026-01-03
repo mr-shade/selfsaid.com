@@ -1,11 +1,13 @@
 ---
-title: "10 Things To Stop Doing To Yourself Today"
-date: "2025-09-15T12:25:21+02:00"
-author: "Seff Bray"
-description: "Discover 10 things to stop doing to yourself today and start living with more peace, balance, and self-kindness."
+title: 10 Things To Stop Doing To Yourself Today
+date: '2025-09-15T12:25:21+02:00'
+author: Seff Bray
+description: >-
+  Discover 10 things to stop doing to yourself today and start living with more
+  peace, balance, and self-kindness.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/10-things-to-stop-doing-to-yourself-today/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Things-To-Stop-Doing-To-Yourself.webp'
+original_url: 'https://selfsaid.pages.dev/10-things-to-stop-doing-to-yourself-today/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Things-To-Stop-Doing-To-Yourself.webp)

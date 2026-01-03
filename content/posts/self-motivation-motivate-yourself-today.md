@@ -1,11 +1,13 @@
 ---
-title: "5 Powerful Ways To Motivate Yourself Starting Today"
-date: "2024-05-13T11:25:56+02:00"
-author: "Seff Bray"
-description: "Unlock your full potential by learning 5 powerful ways to motivate yourself and start taking your first steps toward incredible success."
+title: 5 Powerful Ways To Motivate Yourself Starting Today
+date: '2024-05-13T11:25:56+02:00'
+author: Seff Bray
+description: >-
+  Unlock your full potential by learning 5 powerful ways to motivate yourself
+  and start taking your first steps toward incredible success.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-motivation-motivate-yourself-today/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Motivate-Yourself-Today.webp'
+original_url: 'https://selfsaid.pages.dev/self-motivation-motivate-yourself-today/'
 ---
 
 ![Motivated woman about to start a workout at the gym](https://seffsaid.com/wp-content/uploads/Motivate-Yourself-Today.webp)

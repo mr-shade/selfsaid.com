@@ -1,11 +1,13 @@
 ---
-title: "Selena Gomez’s Best Quotes"
-date: "2024-07-04T15:34:28+02:00"
-author: "Seff Bray"
-description: "Get a glimpse into Selena Gomez's perspective on life and love with this exclusive compilation of her most heartfelt and profound quotes."
+title: Selena Gomez’s Best Quotes
+date: '2024-07-04T15:34:28+02:00'
+author: Seff Bray
+description: >-
+  Get a glimpse into Selena Gomez's perspective on life and love with this
+  exclusive compilation of her most heartfelt and profound quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/selena-gomez-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/selena-gomez-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/selena-gomez-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/selena-gomez-quotes.webp)

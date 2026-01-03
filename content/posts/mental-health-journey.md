@@ -1,11 +1,13 @@
 ---
-title: "60 Quotes to Support Your Mental Health Journey"
-date: "2025-06-03T13:27:49+02:00"
-author: "Seff Bray"
-description: "This collection of 60 quotes gently supports your mental health journey with encouragement, perspective, and quiet strength."
+title: 60 Quotes to Support Your Mental Health Journey
+date: '2025-06-03T13:27:49+02:00'
+author: Seff Bray
+description: >-
+  This collection of 60 quotes gently supports your mental health journey with
+  encouragement, perspective, and quiet strength.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/mental-health-journey/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Mental-Health-Journey.webp'
+original_url: 'https://selfsaid.pages.dev/mental-health-journey/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Mental-Health-Journey.webp)

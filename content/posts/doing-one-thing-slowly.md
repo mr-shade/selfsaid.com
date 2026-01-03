@@ -1,11 +1,14 @@
 ---
-title: "Doing One Thing Slowly: A Self-Care Practice for Busy Minds"
-date: "2025-04-03T17:49:12+02:00"
-author: "Seff Bray"
-description: "This simple practice, doing just one thing slowly each day, helped me reclaim calm, focus, and presence. No pressure. No performance. Just one pause at a time."
+title: 'Doing One Thing Slowly: A Self-Care Practice for Busy Minds'
+date: '2025-04-03T17:49:12+02:00'
+author: Seff Bray
+description: >-
+  This simple practice, doing just one thing slowly each day, helped me reclaim
+  calm, focus, and presence. No pressure. No performance. Just one pause at a
+  time.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/doing-one-thing-slowly/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/doing-one-thing-slowly.webp'
+original_url: 'https://selfsaid.pages.dev/doing-one-thing-slowly/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/doing-one-thing-slowly.webp)

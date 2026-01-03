@@ -1,11 +1,13 @@
 ---
-title: "Michael Jackson’s 50 Best Quotes"
-date: "2024-05-12T13:34:58+02:00"
-author: "Seff Bray"
-description: "Michael Jackson's 50 best quotes that shed light on his views about life, love, creativity, and humanity."
+title: Michael Jackson’s 50 Best Quotes
+date: '2024-05-12T13:34:58+02:00'
+author: Seff Bray
+description: >-
+  Michael Jackson's 50 best quotes that shed light on his views about life,
+  love, creativity, and humanity.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/michael-jackson-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Michael-Jackson-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/michael-jackson-quotes/'
 ---
 
 ![Michael Jackson in concert](https://seffsaid.com/wp-content/uploads/Michael-Jackson-Quotes.webp)

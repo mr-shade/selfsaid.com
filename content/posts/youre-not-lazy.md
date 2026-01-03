@@ -1,11 +1,13 @@
 ---
-title: "You’re Not Lazy. You’re Carrying Too Much"
-date: "2025-07-08T18:44:53+02:00"
-author: "Seff Bray"
-description: "If you feel unmotivated, stuck, or slow to get going, it’s not because you’re lazy. It’s because you’re carrying more than you realize."
+title: You’re Not Lazy. You’re Carrying Too Much
+date: '2025-07-08T18:44:53+02:00'
+author: Seff Bray
+description: >-
+  If you feel unmotivated, stuck, or slow to get going, it’s not because you’re
+  lazy. It’s because you’re carrying more than you realize.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/youre-not-lazy/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/youre-not-lazy.webp'
+original_url: 'https://selfsaid.pages.dev/youre-not-lazy/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/youre-not-lazy.webp)

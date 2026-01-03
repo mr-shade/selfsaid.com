@@ -1,11 +1,13 @@
 ---
-title: "How To Eliminate Distractions In The Workplace"
-date: "2024-07-24T13:13:28+02:00"
-author: "Seff Bray"
-description: "Discover 7 simple strategies that will help you eliminate the most common everyday distractions from your workplace."
+title: How To Eliminate Distractions In The Workplace
+date: '2024-07-24T13:13:28+02:00'
+author: Seff Bray
+description: >-
+  Discover 7 simple strategies that will help you eliminate the most common
+  everyday distractions from your workplace.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-eliminate-distractions-at-work/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Eliminate-Distractions-At-Work.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-eliminate-distractions-at-work/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Eliminate-Distractions-At-Work.webp)

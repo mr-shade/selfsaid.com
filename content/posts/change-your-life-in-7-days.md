@@ -1,11 +1,13 @@
 ---
-title: "Change Your Life in 7 Days"
-date: "2024-08-29T16:21:00+02:00"
-author: "Seff Bray"
-description: "Discover seven practical steps you can take to start changing your life in just 7 days."
+title: Change Your Life in 7 Days
+date: '2024-08-29T16:21:00+02:00'
+author: Seff Bray
+description: >-
+  Discover seven practical steps you can take to start changing your life in
+  just 7 days.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/change-your-life-in-7-days/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/change-your-life-in-7-days.webp'
+original_url: 'https://selfsaid.pages.dev/change-your-life-in-7-days/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/change-your-life-in-7-days.webp)

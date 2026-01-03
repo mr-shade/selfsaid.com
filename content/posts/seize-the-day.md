@@ -1,11 +1,14 @@
 ---
-title: "Seize The Day Printable Quote"
-date: "2024-11-04T11:56:19+01:00"
-author: "Seff Said"
-description: "Add energy and focus to your workspace with this Seize The Day printable wall art, a reminder to take charge and pursue your goals each day."
+title: Seize The Day Printable Quote
+date: '2024-11-04T11:56:19+01:00'
+author: Seff Said
+description: >-
+  Add energy and focus to your workspace with this Seize The Day printable wall
+  art, a reminder to take charge and pursue your goals each day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/seize-the-day/"
+featured_image: >-
+  data:image/svg+xml,%3Csvg%20xmlns%3D%22http%3A%2F%2Fwww.w3.org%2F2000%2Fsvg%22%20width%3D%22640%22%20height%3D%22480%22%20viewBox%3D%220%200%20640%20480%22%3E%3C%2Fsvg%3E
+original_url: 'https://selfsaid.pages.dev/seize-the-day/'
 ---
 
 All [Printable Quotes](/printable-quotes)

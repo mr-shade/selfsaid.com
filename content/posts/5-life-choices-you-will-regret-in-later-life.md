@@ -1,11 +1,13 @@
 ---
-title: "5 Life Choices You Will Regret In Later Life"
-date: "2024-02-21T12:49:59+01:00"
-author: "Seff Bray"
-description: "Every decision we make has the potential to shape our future. To live a life without regrets, steer clear of these five common life choices."
+title: 5 Life Choices You Will Regret In Later Life
+date: '2024-02-21T12:49:59+01:00'
+author: Seff Bray
+description: >-
+  Every decision we make has the potential to shape our future. To live a life
+  without regrets, steer clear of these five common life choices.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/5-life-choices-you-will-regret-in-later-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Life-Choices-You-Will-Regret.webp'
+original_url: 'https://selfsaid.pages.dev/5-life-choices-you-will-regret-in-later-life/'
 ---
 
 ![An old man looking back on his life with regret.](https://seffsaid.com/wp-content/uploads/Life-Choices-You-Will-Regret.webp)

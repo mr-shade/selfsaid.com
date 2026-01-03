@@ -1,11 +1,13 @@
 ---
-title: "38 Very Short Quotes About Life"
-date: "2024-06-13T11:43:06+02:00"
-author: "Seff Bray"
-description: "Discover 38 of the best short quotes about life that will fill you with wisdom and inspiration."
+title: 38 Very Short Quotes About Life
+date: '2024-06-13T11:43:06+02:00'
+author: Seff Bray
+description: >-
+  Discover 38 of the best short quotes about life that will fill you with wisdom
+  and inspiration.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/38-very-short-quotes-about-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Very-Short-Quotes-About-Life.webp'
+original_url: 'https://selfsaid.pages.dev/38-very-short-quotes-about-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Very-Short-Quotes-About-Life.webp)

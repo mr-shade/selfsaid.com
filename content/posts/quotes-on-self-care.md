@@ -1,11 +1,13 @@
 ---
-title: "150 Quotes On Self-Care"
-date: "2025-02-20T11:45:56+01:00"
-author: "Seff Bray"
-description: "150 quotes on self-care that offer the wisdom and encouragement to help you prioritize your well-being."
+title: 150 Quotes On Self-Care
+date: '2025-02-20T11:45:56+01:00'
+author: Seff Bray
+description: >-
+  150 quotes on self-care that offer the wisdom and encouragement to help you
+  prioritize your well-being.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/quotes-on-self-care/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Quotes-On-Self-Care.webp'
+original_url: 'https://selfsaid.pages.dev/quotes-on-self-care/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-On-Self-Care.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Eliminate Disguised Procrastination"
-date: "2024-07-04T12:59:44+02:00"
-author: "Seff Bray"
-description: "Discover effective strategies to identify and overcome disguised procrastination. A must-read for boosting productivity and achieving goals."
+title: Eliminate Disguised Procrastination
+date: '2024-07-04T12:59:44+02:00'
+author: Seff Bray
+description: >-
+  Discover effective strategies to identify and overcome disguised
+  procrastination. A must-read for boosting productivity and achieving goals.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/eliminate-disguised-procrastination/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Disguised-Procrastination.webp'
+original_url: 'https://selfsaid.pages.dev/eliminate-disguised-procrastination/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Disguised-Procrastination.webp)

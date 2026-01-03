@@ -1,11 +1,13 @@
 ---
-title: "Warren Buffett’s Best Quotes"
-date: "2024-08-05T15:32:17+02:00"
-author: "Seff Bray"
-description: "Unlock the secrets to successful investing and business strategies with our collection of Warren Buffett's best quotes."
+title: Warren Buffett’s Best Quotes
+date: '2024-08-05T15:32:17+02:00'
+author: Seff Bray
+description: >-
+  Unlock the secrets to successful investing and business strategies with our
+  collection of Warren Buffett's best quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/warren-buffett-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/warren-buffett-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/warren-buffett-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/warren-buffett-quotes.webp)

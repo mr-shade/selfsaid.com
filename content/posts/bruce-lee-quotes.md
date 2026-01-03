@@ -1,11 +1,13 @@
 ---
-title: "Bruce Lee’s Best Quotes"
-date: "2024-08-20T15:32:32+02:00"
-author: "Seff Bray"
-description: "Embrace the wisdom and insight of Bruce Lee with this collection of his very best quotes."
+title: Bruce Lee’s Best Quotes
+date: '2024-08-20T15:32:32+02:00'
+author: Seff Bray
+description: >-
+  Embrace the wisdom and insight of Bruce Lee with this collection of his very
+  best quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/bruce-lee-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Bruce-Lee-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/bruce-lee-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Bruce-Lee-quotes.webp)

@@ -1,11 +1,13 @@
 ---
-title: "Sunny Day Quotes To Light Up Your Life"
-date: "2024-10-31T13:13:15+01:00"
-author: "Seff Bray"
-description: "50 sunny day quotes to bring a little extra warmth to your day and inspire you to enjoy each moment in the sun."
+title: Sunny Day Quotes To Light Up Your Life
+date: '2024-10-31T13:13:15+01:00'
+author: Seff Bray
+description: >-
+  50 sunny day quotes to bring a little extra warmth to your day and inspire you
+  to enjoy each moment in the sun.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/sunny-day-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/sunny-day-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/sunny-day-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/sunny-day-quotes.webp)

@@ -1,11 +1,14 @@
 ---
-title: "One-Line Journaling: The Habit That Actually Stuck"
-date: "2025-04-04T15:56:15+02:00"
-author: "Seff Bray"
-description: "Tired of journaling habits that never stick? Discover how one simple sentence a day became the journaling practice that finally worked, and why it might work for you too."
+title: 'One-Line Journaling: The Habit That Actually Stuck'
+date: '2025-04-04T15:56:15+02:00'
+author: Seff Bray
+description: >-
+  Tired of journaling habits that never stick? Discover how one simple sentence
+  a day became the journaling practice that finally worked, and why it might
+  work for you too.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/one-line-journaling/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/one-line-journaling.webp'
+original_url: 'https://selfsaid.pages.dev/one-line-journaling/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/one-line-journaling.webp)

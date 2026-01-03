@@ -1,11 +1,13 @@
 ---
-title: "Miley Cyrus’s Best Quotes"
-date: "2024-08-15T17:32:00+02:00"
-author: "Seff Bray"
-description: "A collection of Miley Cyrus's best quotes on life, success, and personal growth."
+title: Miley Cyrus’s Best Quotes
+date: '2024-08-15T17:32:00+02:00'
+author: Seff Bray
+description: >-
+  A collection of Miley Cyrus's best quotes on life, success, and personal
+  growth.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/miley-cyrus-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Miley-Cyrus-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/miley-cyrus-quotes/'
 ---
 
 ![Miley Cyrus in concert.](https://seffsaid.com/wp-content/uploads/Miley-Cyrus-Quotes.webp)

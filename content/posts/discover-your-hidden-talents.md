@@ -1,11 +1,13 @@
 ---
-title: "10 Questions To Discover Your Hidden Talents"
-date: "2025-01-06T17:43:15+01:00"
-author: "Seff Bray"
-description: "These ten simple yet thought-provoking questions can help you uncover hidden talents and abilities you didn’t know you had."
+title: 10 Questions To Discover Your Hidden Talents
+date: '2025-01-06T17:43:15+01:00'
+author: Seff Bray
+description: >-
+  These ten simple yet thought-provoking questions can help you uncover hidden
+  talents and abilities you didn’t know you had.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/discover-your-hidden-talents/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/discover-your-hidden-talents.webp'
+original_url: 'https://selfsaid.pages.dev/discover-your-hidden-talents/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/discover-your-hidden-talents.webp)

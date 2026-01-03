@@ -1,11 +1,13 @@
 ---
-title: "Pick Me Up Quotes For When You’re Feeling Down"
-date: "2025-05-02T16:26:30+02:00"
-author: "Seff Bray"
-description: "Feeling low? These 50 pick-me-up quotes by Seff Bray offer quiet strength, soft encouragement, and emotional care for heavy days."
+title: Pick Me Up Quotes For When You’re Feeling Down
+date: '2025-05-02T16:26:30+02:00'
+author: Seff Bray
+description: >-
+  Feeling low? These 50 pick-me-up quotes by Seff Bray offer quiet strength,
+  soft encouragement, and emotional care for heavy days.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/pick-me-up-quotes-when-feeling-down/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/pick-me-up-quotes-webp.webp'
+original_url: 'https://selfsaid.pages.dev/pick-me-up-quotes-when-feeling-down/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/pick-me-up-quotes-webp.webp)

@@ -1,11 +1,13 @@
 ---
-title: "How To Keep A Positive Outlook In Life"
-date: "2024-07-29T13:51:48+02:00"
-author: "Seff Bray"
-description: "Learn how to keep a positive outlook in life by following these 5 simple techniques. Change your life today!"
+title: How To Keep A Positive Outlook In Life
+date: '2024-07-29T13:51:48+02:00'
+author: Seff Bray
+description: >-
+  Learn how to keep a positive outlook in life by following these 5 simple
+  techniques. Change your life today!
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/how-to-keep-a-positive-outlook-in-life/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/positive-outlook-in-life.webp'
+original_url: 'https://selfsaid.pages.dev/how-to-keep-a-positive-outlook-in-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/positive-outlook-in-life.webp)

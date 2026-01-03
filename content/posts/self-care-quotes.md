@@ -1,11 +1,13 @@
 ---
-title: "50 Self-Care Quotes to Soothe Your Mind & Soul"
-date: "2025-05-02T11:08:29+02:00"
-author: "Seff Bray"
-description: "Discover 50 self-care quotes to calm your mind and nourish your soul. Gentle reminders for slowing down, healing, and coming back to yourself."
+title: 50 Self-Care Quotes to Soothe Your Mind & Soul
+date: '2025-05-02T11:08:29+02:00'
+author: Seff Bray
+description: >-
+  Discover 50 self-care quotes to calm your mind and nourish your soul. Gentle
+  reminders for slowing down, healing, and coming back to yourself.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/self-care-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Care-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/self-care-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Quotes.webp)

@@ -1,11 +1,14 @@
 ---
-title: "8 Life Choices You’ll Wish You Made Sooner"
-date: "2024-12-07T18:17:04+01:00"
-author: "Seff Bray"
-description: "This surprising list of eight life choices could have changed your life if you had only made them sooner."
+title: 8 Life Choices You’ll Wish You Made Sooner
+date: '2024-12-07T18:17:04+01:00'
+author: Seff Bray
+description: >-
+  This surprising list of eight life choices could have changed your life if you
+  had only made them sooner.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/life-choices-you-will-wish-you-made-sooner/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/Life-Choices-Youll-Wish-You-Made-Sooner.webp
+original_url: 'https://selfsaid.pages.dev/life-choices-you-will-wish-you-made-sooner/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Life-Choices-Youll-Wish-You-Made-Sooner.webp)

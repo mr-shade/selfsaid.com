@@ -1,11 +1,13 @@
 ---
-title: "Elon Musk’s 50 Best Quotes"
-date: "2024-04-25T18:21:10+02:00"
-author: "Seff Bray"
-description: "Explore the mind behind SpaceX and Tesla with this collection of Elon Musk's 50 best quotes."
+title: Elon Musk’s 50 Best Quotes
+date: '2024-04-25T18:21:10+02:00'
+author: Seff Bray
+description: >-
+  Explore the mind behind SpaceX and Tesla with this collection of Elon Musk's
+  50 best quotes.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/elon-musk-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/Elon-Musk-Quotes.webp'
+original_url: 'https://selfsaid.pages.dev/elon-musk-quotes/'
 ---
 
 ![Elon Musk](https://seffsaid.com/wp-content/uploads/Elon-Musk-Quotes.webp)

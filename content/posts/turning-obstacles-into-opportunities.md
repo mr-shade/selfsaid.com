@@ -1,11 +1,12 @@
 ---
-title: "Turning Life’s Obstacles Into Opportunities"
-date: "2025-02-14T16:43:50+01:00"
-author: "Seff Bray"
-description: "Learn how to turn life's toughest moments into valuable opportunities."
+title: Turning Life’s Obstacles Into Opportunities
+date: '2025-02-14T16:43:50+01:00'
+author: Seff Bray
+description: Learn how to turn life's toughest moments into valuable opportunities.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/turning-obstacles-into-opportunities/"
+featured_image: >-
+  https://seffsaid.com/wp-content/uploads/turning-obstacles-into-opportunities.webp
+original_url: 'https://selfsaid.pages.dev/turning-obstacles-into-opportunities/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/turning-obstacles-into-opportunities.webp)

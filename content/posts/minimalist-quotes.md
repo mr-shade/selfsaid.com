@@ -1,11 +1,13 @@
 ---
-title: "Minimalist Quotes That Inspire a Calmer Life"
-date: "2025-05-19T13:02:58+02:00"
-author: "Seff Bray"
-description: "A collection of 50 minimalist quotes to inspire a calmer life. Thoughtful words to help you slow down, let go, and focus on what truly matters."
+title: Minimalist Quotes That Inspire a Calmer Life
+date: '2025-05-19T13:02:58+02:00'
+author: Seff Bray
+description: >-
+  A collection of 50 minimalist quotes to inspire a calmer life. Thoughtful
+  words to help you slow down, let go, and focus on what truly matters.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/minimalist-quotes/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/minimalist-quotes.webp'
+original_url: 'https://selfsaid.pages.dev/minimalist-quotes/'
 ---
 
 ![Minimalist Quotes That Inspire a Calmer Life](https://seffsaid.com/wp-content/uploads/minimalist-quotes.webp)

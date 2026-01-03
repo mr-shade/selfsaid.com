@@ -1,11 +1,14 @@
 ---
-title: "20 Powerful Mantras For Overcoming Anxiety And Stress"
-date: "2025-08-16T15:56:51+02:00"
-author: "Seff Bray"
-description: "Ease anxiety and stress with 20 calming mantras. Repeat these simple phrases anytime to quiet racing thoughts, steady your breath, and bring peace back into your day."
+title: 20 Powerful Mantras For Overcoming Anxiety And Stress
+date: '2025-08-16T15:56:51+02:00'
+author: Seff Bray
+description: >-
+  Ease anxiety and stress with 20 calming mantras. Repeat these simple phrases
+  anytime to quiet racing thoughts, steady your breath, and bring peace back
+  into your day.
 tags: []
-featured_image: ""
-original_url: "https://selfsaid.pages.dev/mantras-anxiety-stress/"
+featured_image: 'https://seffsaid.com/wp-content/uploads/mantras-anxiety-stress.webp'
+original_url: 'https://selfsaid.pages.dev/mantras-anxiety-stress/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/mantras-anxiety-stress.webp)
