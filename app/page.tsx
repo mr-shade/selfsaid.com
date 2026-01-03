@@ -58,7 +58,7 @@ export default function Home() {
                 <div className="col-span-12 lg:col-span-8">
                     <div className="flex items-center justify-between mb-8 border-b-2 border-black dark:border-white pb-2">
                         <h2 className="text-2xl font-black font-heading uppercase tracking-tighter">Latest News</h2>
-                        <span className="text-xs font-bold text-primary-main uppercase cursor-pointer hover:underline">View All</span>
+                        <Link href="/posts" className="text-xs font-bold text-primary-main uppercase cursor-pointer hover:underline">View All</Link>
                     </div>
 
                     <div className="grid grid-cols-1 md:grid-cols-2 gap-x-8 gap-y-12">

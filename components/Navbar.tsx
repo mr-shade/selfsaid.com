@@ -9,7 +9,7 @@ export default function Navbar() {
                     <span className="text-2xl font-black text-secondary-main dark:text-white uppercase tracking-tighter group-hover:text-primary-main transition-colors">Said</span>
                 </Link>
                 <div className="hidden md:flex items-center space-x-8">
-                    {['Home', 'About', 'Newsletter', 'Contact'].map((item) => (
+                    {['Home', 'Posts', 'About', 'Contact'].map((item) => (
                         <Link
                             key={item}
                             href={item === 'Home' ? '/' : `/${item.toLowerCase()}`}
