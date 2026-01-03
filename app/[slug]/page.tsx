@@ -1,58 +1,86 @@
-import { getPostBySlug, getAllPosts } from '@/lib/posts';
+import { getAllPosts, getPostBySlug, getAllPages, getPageBySlug } from '@/lib/posts';
 import { notFound } from 'next/navigation';
-import { Metadata } from 'next';
 import { MDXRemote } from 'next-mdx-remote/rsc';
 import Link from 'next/link';
+import type { Metadata, ResolvingMetadata } from 'next';
 
-// Components for MDX
-const components = {
-    // Add custom components here if needed
-    // img: (props: any) => <img {...props} className="rounded-lg my-4" />,
-};
-
-type Props = {
-    params: Promise<{ slug: string }>
+interface Props {
+    params: { slug: string };
 }
 
 // Force static gen
 export const dynamicParams = false;
 
+// Custom components for MDX
+const components = {
+    // Add any custom components here if needed
+    // img: (props: any) => <img {...props} className="rounded-lg my-4" />,
+};
+
 export async function generateStaticParams() {
     const posts = getAllPosts();
-    return posts.map((post) => ({
+    const pages = getAllPages();
+
+    const postParams = posts.map((post) => ({
         slug: post.slug,
     }));
+
+    const pageParams = pages.map((page) => ({
+        slug: page.slug,
+    }));
+
+    return [...postParams, ...pageParams];
 }
 
-export async function generateMetadata({ params }: Props): Promise<Metadata> {
-    const { slug } = await params;
-    const post = getPostBySlug(slug);
-    if (!post) return {};
+export async function generateMetadata(
+    { params }: Props,
+    parent: ResolvingMetadata
+): Promise<Metadata> {
+    const { slug } = params;
+
+    // Try to find post first, then page
+    let content = getPostBySlug(slug);
+    if (!content) {
+        content = getPageBySlug(slug);
+    }
+
+    if (!content) {
+        return {
+            title: 'Not Found',
+        };
+    }
 
     return {
-        title: post.title,
-        description: post.description,
-        authors: [{ name: post.author }],
+        title: content.title,
+        description: content.description,
         openGraph: {
-            title: post.title,
-            description: post.description,
+            title: content.title,
+            description: content.description,
             type: 'article',
-            publishedTime: post.date,
-            authors: [post.author],
-            images: post.featured_image ? [post.featured_image] : [],
+            publishedTime: content.date,
+            authors: [content.author],
+            images: [content.featured_image || '/images/og-default.jpg'],
         },
         twitter: {
             card: 'summary_large_image',
-            title: post.title,
-            description: post.description,
-            images: post.featured_image ? [post.featured_image] : [],
+            title: content.title,
+            description: content.description,
+            images: [content.featured_image || '/images/og-default.jpg'],
         },
     };
 }
 
 export default async function PostPage({ params }: Props) {
-    const { slug } = await params;
-    const post = getPostBySlug(slug);
+    const { slug } = params;
+
+    // Try to find post first, then page
+    let post = getPostBySlug(slug);
+    let isPage = false;
+
+    if (!post) {
+        post = getPageBySlug(slug);
+        isPage = !!post;
+    }
 
     if (!post) {
         notFound();
