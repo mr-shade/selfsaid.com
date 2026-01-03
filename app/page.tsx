@@ -35,8 +35,8 @@ export default function Home() {
                                 </span>
                             </div>
                             <Link href={`/${heroPost.slug}`} className="group-hover:text-primary-main transition-colors">
-                                <h1 className="text-3xl md:text-4xl lg:text-5xl font-black font-heading leading-tight mb-4">
-                                    {heroPost.title}
+                                <h1 className="text-5xl md:text-7xl font-bold mb-6 bg-gradient-to-r from-blue-600 to-violet-600 bg-clip-text text-transparent">
+                                    Self Said
                                 </h1>
                             </Link>
                             <p className="text-secondary-light dark:text-neutral-400 text-lg mb-6 line-clamp-3">

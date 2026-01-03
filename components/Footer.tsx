@@ -5,7 +5,7 @@ export default function Footer() {
                 <div className="grid grid-cols-1 md:grid-cols-4 gap-12 mb-12">
                     <div className="col-span-1 md:col-span-1">
                         <h3 className="text-3xl font-black font-heading tracking-tighter mb-6">
-                            <span className="text-primary-main">SEFF</span>SAID
+                            <span className="text-primary-main">SELF</span>SAID
                         </h3>
                         <p className="text-neutral-400 text-sm leading-relaxed mb-6">
                             Empowering your daily journey with curated inspiration, practical life advice, and the motivation to build a life you love.
@@ -49,7 +49,7 @@ export default function Footer() {
                 </div>
 
                 <div className="border-t border-neutral-800 pt-8 flex flex-col md:flex-row justify-between items-center text-xs text-neutral-500">
-                    <p>© {new Date().getFullYear()} Seff Said Media. All rights reserved.</p>
+                    <p>© {new Date().getFullYear()} Self Said Media. All rights reserved.</p>
                     <p>Designed for Impact.</p>
                 </div>
             </div>
