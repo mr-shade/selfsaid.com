@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/how-to-achieve-your-full-potential.webp
-original_url: 'https://selfsaid.pages.dev/how-to-achieve-your-full-potential/'
+original_url: 'https://selfsaid.30tools.com/how-to-achieve-your-full-potential/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-achieve-your-full-potential.webp)

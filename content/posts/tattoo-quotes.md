@@ -7,7 +7,7 @@ description: >-
   quotes, & let them inspire your next piece of self-expression.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/tattoo-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/tattoo-quotes/'
+original_url: 'https://selfsaid.30tools.com/tattoo-quotes/'
 ---
 
 ![225 Tattoo Quotes about Strength, Love, and Life](https://seffsaid.com/wp-content/uploads/tattoo-quotes.jpg)

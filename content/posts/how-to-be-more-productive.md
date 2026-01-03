@@ -5,7 +5,7 @@ author: Seff Bray
 description: Become the most productive person you know with these 8 simple tips.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-be-more-productive.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-be-more-productive/'
+original_url: 'https://selfsaid.30tools.com/how-to-be-more-productive/'
 ---
 
 ![Man sitting at his office desk working productively](https://seffsaid.com/wp-content/uploads/how-to-be-more-productive.webp)

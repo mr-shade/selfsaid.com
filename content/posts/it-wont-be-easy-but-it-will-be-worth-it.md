@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/It-wont-be-easy-but-it-will-be-worth-it.jpg
-original_url: 'https://selfsaid.pages.dev/it-wont-be-easy-but-it-will-be-worth-it/'
+original_url: 'https://selfsaid.30tools.com/it-wont-be-easy-but-it-will-be-worth-it/'
 ---
 
 ![It won't be easy, but it will be worth it.](https://seffsaid.com/wp-content/uploads/It-wont-be-easy-but-it-will-be-worth-it.jpg)

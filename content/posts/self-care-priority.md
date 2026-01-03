@@ -7,7 +7,7 @@ description: >-
   boosting health and clarity to bringing more joy into life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/reasons-self-care-priority.webp'
-original_url: 'https://selfsaid.pages.dev/self-care-priority/'
+original_url: 'https://selfsaid.30tools.com/self-care-priority/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/reasons-self-care-priority.webp)

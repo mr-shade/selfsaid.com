@@ -5,14 +5,14 @@ author: "Seff Said"
 description: ""
 tags: []
 featured_image: ""
-original_url: "https://selfsaid.pages.dev/cookie-policy-eu/"
+original_url: "https://selfsaid.30tools.com/cookie-policy-eu/"
 ---
 
 _This Cookie Policy was last updated on 8th November 2022 and applies to citizens and legal permanent residents of the European Economic Area and Switzerland._  
 
 ## 1\. Introduction
 
-Our website, [https://selfsaid.pages.dev](/) (hereinafter: “the website”) uses cookies and other related technologies (for convenience all technologies are referred to as “cookies”). Cookies are also placed by third parties we have engaged. In the document below we inform you about the use of cookies on our website.
+Our website, [https://selfsaid.30tools.com](/) (hereinafter: “the website”) uses cookies and other related technologies (for convenience all technologies are referred to as “cookies”). Cookies are also placed by third parties we have engaged. In the document below we inform you about the use of cookies on our website.
 
 ## 2\. What are cookies?
 
@@ -1090,7 +1090,7 @@ For questions and/or comments about our Cookie Policy and this statement, please
 Seff Bray  
 Unit 109449, PO Box 7169, 5BH15 9EL, Poole, United Kingdom  
 United Kingdom  
-Website: [https://selfsaid.pages.dev](/)  
+Website: [https://selfsaid.30tools.com](/)  
 Email: seff@ex.comseffsaid.com  
 
 This Cookie Policy was synchronised with [cookiedatabase.org](https://cookiedatabase.org/) on 2nd November 2022.

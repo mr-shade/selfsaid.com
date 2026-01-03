@@ -7,7 +7,7 @@ description: >-
   here's a guide to breaking it into small, achievable steps.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/task-decomposition.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-break-a-big-task-into-small-steps/'
+original_url: 'https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/task-decomposition.webp)

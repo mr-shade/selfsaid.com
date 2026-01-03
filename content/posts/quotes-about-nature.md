@@ -7,7 +7,7 @@ description: >-
   uplifting quotes about nature.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-nature.jpg'
-original_url: 'https://selfsaid.pages.dev/quotes-about-nature/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-nature/'
 ---
 
 ![Quotes About Nature](https://seffsaid.com/wp-content/uploads/quotes-about-nature.jpg)

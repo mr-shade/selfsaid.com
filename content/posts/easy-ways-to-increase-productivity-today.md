@@ -7,7 +7,7 @@ description: >-
   powerful strategies to increase productivity today.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/increase-productivity-today.webp'
-original_url: 'https://selfsaid.pages.dev/easy-ways-to-increase-productivity-today/'
+original_url: 'https://selfsaid.30tools.com/easy-ways-to-increase-productivity-today/'
 ---
 
 ![Productive people working in a busy library](https://seffsaid.com/wp-content/uploads/increase-productivity-today.webp)

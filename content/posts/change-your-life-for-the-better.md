@@ -7,7 +7,7 @@ description: >-
   life for the better.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Change-Your-Life-For-The-Better.webp'
-original_url: 'https://selfsaid.pages.dev/change-your-life-for-the-better/'
+original_url: 'https://selfsaid.30tools.com/change-your-life-for-the-better/'
 ---
 
 ![Man looking out to sea happy to have changed his life for the better](https://seffsaid.com/wp-content/uploads/Change-Your-Life-For-The-Better.webp)

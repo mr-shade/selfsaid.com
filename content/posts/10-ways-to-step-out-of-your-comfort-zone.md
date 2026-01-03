@@ -7,7 +7,7 @@ description: >-
   zone.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Step-Out-Of-Your-Comfort-Zone.webp'
-original_url: 'https://selfsaid.pages.dev/10-ways-to-step-out-of-your-comfort-zone/'
+original_url: 'https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone/'
 ---
 
 ![Man happy to have finally stepped out of his comfort zone](https://seffsaid.com/wp-content/uploads/Step-Out-Of-Your-Comfort-Zone.webp)

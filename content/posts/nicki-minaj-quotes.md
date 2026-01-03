@@ -7,7 +7,7 @@ description: >-
   quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Nicki-Minaj-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/nicki-minaj-quotes/'
+original_url: 'https://selfsaid.30tools.com/nicki-minaj-quotes/'
 ---
 
 ![Nicki Minaj performing live on stage](https://seffsaid.com/wp-content/uploads/Nicki-Minaj-Quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   space, protect your time, and bring calm back into your days.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-to-Make-Life-Simple-Again.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-make-life-simple-again/'
+original_url: 'https://selfsaid.30tools.com/how-to-make-life-simple-again/'
 ---
 
 ![Man relaxing at the beach enjoying the simple life](https://seffsaid.com/wp-content/uploads/How-to-Make-Life-Simple-Again.webp)

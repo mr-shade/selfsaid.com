@@ -7,7 +7,7 @@ description: >-
   challenges. with actionable advice and real-life examples.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Unleash-The-Beast-In-You.webp'
-original_url: 'https://selfsaid.pages.dev/unleash-the-beast-in-you/'
+original_url: 'https://selfsaid.30tools.com/unleash-the-beast-in-you/'
 ---
 
 ![Lion roaring unleashing his inner beast](https://seffsaid.com/wp-content/uploads/Unleash-The-Beast-In-You.webp)

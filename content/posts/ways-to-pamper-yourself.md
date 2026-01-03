@@ -7,7 +7,7 @@ description: >-
   ideas.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/pamper-yourself.webp'
-original_url: 'https://selfsaid.pages.dev/ways-to-pamper-yourself/'
+original_url: 'https://selfsaid.30tools.com/ways-to-pamper-yourself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/pamper-yourself.webp)

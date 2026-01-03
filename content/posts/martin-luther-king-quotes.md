@@ -7,7 +7,7 @@ description: >-
   help you move forward with clarity, strength, and compassion.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/martin-luther-king-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/martin-luther-king-quotes/'
+original_url: 'https://selfsaid.30tools.com/martin-luther-king-quotes/'
 ---
 
 ![Martin Luther King Quotes](https://seffsaid.com/wp-content/uploads/martin-luther-king-quotes.jpg)

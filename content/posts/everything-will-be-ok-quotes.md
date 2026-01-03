@@ -7,7 +7,7 @@ description: >-
   matter the situation, everything will be ok.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/everything-will-be-ok-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/everything-will-be-ok-quotes/'
+original_url: 'https://selfsaid.30tools.com/everything-will-be-ok-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/everything-will-be-ok-quotes.webp)

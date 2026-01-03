@@ -7,7 +7,7 @@ description: >-
   self-care, and create a life of calm progress and meaningful habits.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/tips-for-productive-living.webp'
-original_url: 'https://selfsaid.pages.dev/tips-for-productive-living/'
+original_url: 'https://selfsaid.30tools.com/tips-for-productive-living/'
 ---
 
 ![Man jogging living life productively](https://seffsaid.com/wp-content/uploads/tips-for-productive-living.webp)

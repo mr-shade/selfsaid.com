@@ -7,7 +7,7 @@ description: >-
   humility, and unwavering determination.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Serena-Williams-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/serena-williams-quotes/'
+original_url: 'https://selfsaid.30tools.com/serena-williams-quotes/'
 ---
 
 ![Serena Williams](https://seffsaid.com/wp-content/uploads/Serena-Williams-Quotes.webp)

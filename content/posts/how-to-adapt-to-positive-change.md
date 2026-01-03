@@ -5,7 +5,7 @@ author: Seff Bray
 description: Transform how you view change with ten simple yet powerful questions.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/adapt-to-positive-change.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-adapt-to-positive-change/'
+original_url: 'https://selfsaid.30tools.com/how-to-adapt-to-positive-change/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/adapt-to-positive-change.webp)

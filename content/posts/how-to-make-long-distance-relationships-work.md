@@ -7,7 +7,7 @@ description: >-
   long-distance relationship.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/long-distance-relationship.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-make-long-distance-relationships-work/'
+original_url: 'https://selfsaid.30tools.com/how-to-make-long-distance-relationships-work/'
 ---
 
 ![Two people about to start a long distance relationship](https://seffsaid.com/wp-content/uploads/long-distance-relationship.webp)

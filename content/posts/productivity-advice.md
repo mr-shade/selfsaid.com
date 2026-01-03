@@ -7,7 +7,7 @@ description: >-
   you work smarter and get more done.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/productivity-advice.webp'
-original_url: 'https://selfsaid.pages.dev/productivity-advice/'
+original_url: 'https://selfsaid.30tools.com/productivity-advice/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/productivity-advice.webp)

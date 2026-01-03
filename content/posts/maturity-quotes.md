@@ -7,7 +7,7 @@ description: >-
   responsibility, life's challenges, and personal growth.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/maturity-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/maturity-quotes/'
+original_url: 'https://selfsaid.30tools.com/maturity-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/maturity-quotes.webp)

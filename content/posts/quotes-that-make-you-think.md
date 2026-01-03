@@ -7,7 +7,7 @@ description: >-
   collection of '164 Quotes That Make You Think'.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-make-you-think.jpg'
-original_url: 'https://selfsaid.pages.dev/quotes-that-make-you-think/'
+original_url: 'https://selfsaid.30tools.com/quotes-that-make-you-think/'
 ---
 
 ![164 Quotes That Make You Think](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-think.jpg)

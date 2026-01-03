@@ -7,7 +7,7 @@ description: >-
   techniques. Change your life today!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/positive-outlook-in-life.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-keep-a-positive-outlook-in-life/'
+original_url: 'https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/positive-outlook-in-life.webp)

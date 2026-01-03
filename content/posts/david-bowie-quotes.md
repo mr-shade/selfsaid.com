@@ -7,7 +7,7 @@ description: >-
   his remarkable perspective on fame, life and art.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/David-Bowie-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/david-bowie-quotes/'
+original_url: 'https://selfsaid.30tools.com/david-bowie-quotes/'
 ---
 
 ![David Bowie performing live](https://seffsaid.com/wp-content/uploads/David-Bowie-Quotes.webp)

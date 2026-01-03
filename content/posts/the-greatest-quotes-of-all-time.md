@@ -7,7 +7,7 @@ description: >-
   of the greatest authors who have ever lived.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/greatest-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/the-greatest-quotes-of-all-time/'
+original_url: 'https://selfsaid.30tools.com/the-greatest-quotes-of-all-time/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/greatest-quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   talents and abilities you didn’t know you had.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/discover-your-hidden-talents.webp'
-original_url: 'https://selfsaid.pages.dev/discover-your-hidden-talents/'
+original_url: 'https://selfsaid.30tools.com/discover-your-hidden-talents/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/discover-your-hidden-talents.webp)

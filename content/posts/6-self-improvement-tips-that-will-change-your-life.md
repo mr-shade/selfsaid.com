@@ -7,7 +7,7 @@ description: >-
   better.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Improvement-Tips.webp'
-original_url: 'https://selfsaid.pages.dev/6-self-improvement-tips-that-will-change-your-life/'
+original_url: 'https://selfsaid.30tools.com/6-self-improvement-tips-that-will-change-your-life/'
 ---
 
 ![Man smiling sitting in a French Cafe](https://seffsaid.com/wp-content/uploads/Self-Improvement-Tips.webp)

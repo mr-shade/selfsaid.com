@@ -7,7 +7,7 @@ description: >-
   supported even when you don’t know what you need.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-to-Take-Care-of-Yourself.webp'
-original_url: 'https://selfsaid.pages.dev/self-care-when-you-dont-know-what-you-need/'
+original_url: 'https://selfsaid.30tools.com/self-care-when-you-dont-know-what-you-need/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-to-Take-Care-of-Yourself.webp)

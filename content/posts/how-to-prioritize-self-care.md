@@ -7,7 +7,7 @@ description: >-
   boundaries to building daily rituals that support balance.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Prioritize-Self-Care.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-prioritize-self-care/'
+original_url: 'https://selfsaid.30tools.com/how-to-prioritize-self-care/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Prioritize-Self-Care.webp)

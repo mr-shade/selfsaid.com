@@ -7,7 +7,7 @@ description: >-
   never ever do.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Things-Successful-People-Never-Do.webp'
-original_url: 'https://selfsaid.pages.dev/6-things-successful-people-never-do/'
+original_url: 'https://selfsaid.30tools.com/6-things-successful-people-never-do/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Things-Successful-People-Never-Do.webp)

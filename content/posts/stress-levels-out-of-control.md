@@ -7,7 +7,7 @@ description: >-
   will tell you if your stress levels are getting out of control.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/stress-levels-control.webp'
-original_url: 'https://selfsaid.pages.dev/stress-levels-out-of-control/'
+original_url: 'https://selfsaid.30tools.com/stress-levels-out-of-control/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stress-levels-control.webp)

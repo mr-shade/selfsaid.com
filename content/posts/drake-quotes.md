@@ -5,7 +5,7 @@ author: Seff Bray
 description: Drake's 50 best quotes that will inspire and guide you in your everyday life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Drake-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/drake-quotes/'
+original_url: 'https://selfsaid.30tools.com/drake-quotes/'
 ---
 
 ![Drake in concert](https://seffsaid.com/wp-content/uploads/Drake-Quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   – “25 Daily Habits That Will Change Your Life” for free!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/25-Daily-Habits-TN.jpg'
-original_url: 'https://selfsaid.pages.dev/ebook/'
+original_url: 'https://selfsaid.30tools.com/ebook/'
 ---
 
 ### Get my FREE eBook:

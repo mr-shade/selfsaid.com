@@ -7,7 +7,7 @@ description: >-
   you feel better about life and yourself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Quotes-To-Make-You-Feel-Better.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-to-make-you-feel-better/'
+original_url: 'https://selfsaid.30tools.com/quotes-to-make-you-feel-better/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-To-Make-You-Feel-Better.webp)

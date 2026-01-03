@@ -7,7 +7,7 @@ description: >-
   yourself in the wit and wisdom of a literary icon.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/mark-twain-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/25-inspirational-mark-twain-quotes/'
+original_url: 'https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes/'
 ---
 
 ![Mark Twain Quotes](https://seffsaid.com/wp-content/uploads/mark-twain-quotes.jpg)

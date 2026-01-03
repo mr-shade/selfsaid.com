@@ -7,7 +7,7 @@ description: >-
   50 best quotes
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Kim-Kardashian-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/kim-kardashian-quotes/'
+original_url: 'https://selfsaid.30tools.com/kim-kardashian-quotes/'
 ---
 
 ![Kim Kardashian](https://seffsaid.com/wp-content/uploads/Kim-Kardashian-Quotes.webp)

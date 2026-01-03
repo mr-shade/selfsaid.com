@@ -7,7 +7,7 @@ description: >-
   ways to feel more grounded, present, and emotionally well.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/happy-life.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-live-a-happy-life/'
+original_url: 'https://selfsaid.30tools.com/how-to-live-a-happy-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/happy-life.webp)

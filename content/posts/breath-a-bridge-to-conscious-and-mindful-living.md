@@ -5,7 +5,7 @@ author: Seff Bray
 description: A guide to using breath as a bridge to conscious and mindful living.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/breath-mindful-living.webp'
-original_url: 'https://selfsaid.pages.dev/breath-a-bridge-to-conscious-and-mindful-living/'
+original_url: 'https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-mindful-living/'
 ---
 
 ![Woman using breath to meditate](https://seffsaid.com/wp-content/uploads/breath-mindful-living.webp)

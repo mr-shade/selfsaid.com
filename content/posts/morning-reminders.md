@@ -7,7 +7,7 @@ description: >-
   of pressure, protect your peace, and begin the day with care and intention.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/morning-reminders.webp'
-original_url: 'https://selfsaid.pages.dev/morning-reminders/'
+original_url: 'https://selfsaid.30tools.com/morning-reminders/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/morning-reminders.webp)

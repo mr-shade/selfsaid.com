@@ -7,7 +7,7 @@ description: >-
   you refreshed and energized.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-daily-routine.webp'
-original_url: 'https://selfsaid.pages.dev/ways-to-sneak-self-care-into-your-daily-routine/'
+original_url: 'https://selfsaid.30tools.com/ways-to-sneak-self-care-into-your-daily-routine/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-daily-routine.webp)

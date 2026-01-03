@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Daily-Habits-Change-Your-Life.webp'
 original_url: >-
-  https://selfsaid.pages.dev/5-simple-daily-habits-that-can-actually-change-your-life/
+  https://selfsaid.30tools.com/5-simple-daily-habits-that-can-actually-change-your-life/
 ---
 
 ![Woman running along a beautiful beach with her arms outstretched](https://seffsaid.com/wp-content/uploads/Daily-Habits-Change-Your-Life.webp)

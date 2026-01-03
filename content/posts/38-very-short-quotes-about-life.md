@@ -7,7 +7,7 @@ description: >-
   and inspiration.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Very-Short-Quotes-About-Life.webp'
-original_url: 'https://selfsaid.pages.dev/38-very-short-quotes-about-life/'
+original_url: 'https://selfsaid.30tools.com/38-very-short-quotes-about-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Very-Short-Quotes-About-Life.webp)

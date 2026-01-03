@@ -5,7 +5,7 @@ author: Seff Bray
 description: 'A collection of Gracie Abrams quotes on music, creativity, life, and love.'
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Gracie-Abrams-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/gracie-abrams-quotes/'
+original_url: 'https://selfsaid.30tools.com/gracie-abrams-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Gracie-Abrams-Quotes.webp)

@@ -8,7 +8,7 @@ description: >-
   and how it can gently transform your inner life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/emotional-self-care.webp'
-original_url: 'https://selfsaid.pages.dev/what-is-emotional-self-care/'
+original_url: 'https://selfsaid.30tools.com/what-is-emotional-self-care/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/emotional-self-care.webp)

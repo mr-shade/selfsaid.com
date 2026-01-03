@@ -7,7 +7,7 @@ description: >-
   happiness through 8 simple yet powerful practices.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Secrets-To-True-Happiness.webp'
-original_url: 'https://selfsaid.pages.dev/unlock-the-secrets-to-true-happiness/'
+original_url: 'https://selfsaid.30tools.com/unlock-the-secrets-to-true-happiness/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Secrets-To-True-Happiness.webp)

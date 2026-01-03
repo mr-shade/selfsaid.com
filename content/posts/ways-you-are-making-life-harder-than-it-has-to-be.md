@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Ways-You-Are-Making-Your-Life-Harder.webp
-original_url: 'https://selfsaid.pages.dev/ways-you-are-making-life-harder-than-it-has-to-be/'
+original_url: 'https://selfsaid.30tools.com/ways-you-are-making-life-harder-than-it-has-to-be/'
 ---
 
 ![Frustrated man staring at his phone](https://seffsaid.com/wp-content/uploads/Ways-You-Are-Making-Your-Life-Harder.webp)

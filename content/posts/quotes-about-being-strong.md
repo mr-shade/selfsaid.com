@@ -7,7 +7,7 @@ description: >-
   about being strong during difficult times.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-being-strong.jpg'
-original_url: 'https://selfsaid.pages.dev/quotes-about-being-strong/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-being-strong/'
 ---
 
 ![Quotes About Being Strong](https://seffsaid.com/wp-content/uploads/quotes-about-being-strong.jpg)

@@ -7,7 +7,7 @@ description: >-
   fulfilling and purposeful life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-live-life.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-live-life/'
+original_url: 'https://selfsaid.30tools.com/how-to-live-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-live-life.webp)

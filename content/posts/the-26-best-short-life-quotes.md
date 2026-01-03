@@ -7,7 +7,7 @@ description: >-
   brighten your day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/best-short-life-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/the-26-best-short-life-quotes/'
+original_url: 'https://selfsaid.30tools.com/the-26-best-short-life-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/best-short-life-quotes.webp)

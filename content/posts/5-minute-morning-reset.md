@@ -8,7 +8,7 @@ description: >-
   perfection.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/5-Minute-Morning-Reset.webp'
-original_url: 'https://selfsaid.pages.dev/5-minute-morning-reset/'
+original_url: 'https://selfsaid.30tools.com/5-minute-morning-reset/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/5-Minute-Morning-Reset.webp)

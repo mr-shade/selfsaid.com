@@ -7,7 +7,7 @@ description: >-
   bring positivity & intention into every aspect of your daily life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/morning-affirmations-600x333-1.webp'
-original_url: 'https://selfsaid.pages.dev/morning-affirmations/'
+original_url: 'https://selfsaid.30tools.com/morning-affirmations/'
 ---
 
 ![Woman reciting her morning affirmations](https://seffsaid.com/wp-content/uploads/morning-affirmations-600x333-1.webp)

@@ -5,7 +5,7 @@ author: "Seff Said"
 description: ""
 tags: []
 featured_image: ""
-original_url: "https://selfsaid.pages.dev/account/"
+original_url: "https://selfsaid.30tools.com/account/"
 ---
 
 \[ec\_account\]

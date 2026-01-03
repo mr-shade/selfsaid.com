@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Ways-To-Make-Your-Life-Exciting-Again.webp
-original_url: 'https://selfsaid.pages.dev/7-ways-to-make-your-life-exciting-again/'
+original_url: 'https://selfsaid.30tools.com/7-ways-to-make-your-life-exciting-again/'
 ---
 
 ![Two women excited to see each other chatting on a beach.](https://seffsaid.com/wp-content/uploads/Ways-To-Make-Your-Life-Exciting-Again.webp)

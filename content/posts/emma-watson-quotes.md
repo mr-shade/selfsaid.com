@@ -7,7 +7,7 @@ description: >-
   ignite your inner strength.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Emma-Watson-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/emma-watson-quotes/'
+original_url: 'https://selfsaid.30tools.com/emma-watson-quotes/'
 ---
 
 ![Emma Watson](https://seffsaid.com/wp-content/uploads/Emma-Watson-Quotes.webp)

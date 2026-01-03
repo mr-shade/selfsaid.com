@@ -7,7 +7,7 @@ description: >-
   progress, celebrate small victories, and embrace a fresh start.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/End-Of-The-Month-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/end-of-the-month-quotes/'
+original_url: 'https://selfsaid.30tools.com/end-of-the-month-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/End-Of-The-Month-Quotes.webp)

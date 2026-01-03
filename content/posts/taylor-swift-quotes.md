@@ -7,7 +7,7 @@ description: >-
   up, and self-expression.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Taylor-Swift-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/taylor-swift-quotes/'
+original_url: 'https://selfsaid.30tools.com/taylor-swift-quotes/'
 ---
 
 ![Taylor Swift in concert](https://seffsaid.com/wp-content/uploads/Taylor-Swift-Quotes.webp)

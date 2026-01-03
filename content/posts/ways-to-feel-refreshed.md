@@ -7,7 +7,7 @@ description: >-
   tricks.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Ways-to-Feel-Refreshed.webp'
-original_url: 'https://selfsaid.pages.dev/ways-to-feel-refreshed/'
+original_url: 'https://selfsaid.30tools.com/ways-to-feel-refreshed/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Ways-to-Feel-Refreshed.webp)

@@ -7,7 +7,7 @@ description: >-
   planner. Powerful inserts that will get you super organized.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/planner-ideas.webp'
-original_url: 'https://selfsaid.pages.dev/planner-ideas/'
+original_url: 'https://selfsaid.30tools.com/planner-ideas/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/planner-ideas.webp)

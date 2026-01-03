@@ -7,7 +7,7 @@ description: >-
   attitude in your daily life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/positive-attitude.webp'
-original_url: 'https://selfsaid.pages.dev/easy-ways-to-develop-a-positive-attitude/'
+original_url: 'https://selfsaid.30tools.com/easy-ways-to-develop-a-positive-attitude/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/positive-attitude.webp)

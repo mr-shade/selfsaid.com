@@ -7,7 +7,7 @@ description: >-
   heavy. Includes self-care tools and practices that actually work.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Resilience-Hacks-1.webp'
-original_url: 'https://selfsaid.pages.dev/resilience-hacks/'
+original_url: 'https://selfsaid.30tools.com/resilience-hacks/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Resilience-Hacks-1.webp)

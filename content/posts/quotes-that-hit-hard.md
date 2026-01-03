@@ -7,7 +7,7 @@ description: >-
   deeply about life, love, and resilience.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-hit-hard.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-that-hit-hard/'
+original_url: 'https://selfsaid.30tools.com/quotes-that-hit-hard/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-hit-hard.webp)

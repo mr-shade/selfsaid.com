@@ -7,7 +7,7 @@ description: >-
   procrastination. A must-read for boosting productivity and achieving goals.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Disguised-Procrastination.webp'
-original_url: 'https://selfsaid.pages.dev/eliminate-disguised-procrastination/'
+original_url: 'https://selfsaid.30tools.com/eliminate-disguised-procrastination/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Disguised-Procrastination.webp)

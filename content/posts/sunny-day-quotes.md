@@ -7,7 +7,7 @@ description: >-
   to enjoy each moment in the sun.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/sunny-day-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/sunny-day-quotes/'
+original_url: 'https://selfsaid.30tools.com/sunny-day-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/sunny-day-quotes.webp)

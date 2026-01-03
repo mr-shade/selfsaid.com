@@ -7,7 +7,7 @@ description: >-
   filled with humor, inspiration, and life lessons.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Bruno-Mars-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/bruno-mars-quotes/'
+original_url: 'https://selfsaid.30tools.com/bruno-mars-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Bruno-Mars-Quotes.webp)

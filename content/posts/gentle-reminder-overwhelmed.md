@@ -7,7 +7,7 @@ description: >-
   return to yourself with small, steady acts of care.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/gentle-reminder-overwhelmed.webp'
-original_url: 'https://selfsaid.pages.dev/gentle-reminder-overwhelmed/'
+original_url: 'https://selfsaid.30tools.com/gentle-reminder-overwhelmed/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/gentle-reminder-overwhelmed.webp)

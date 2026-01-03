@@ -7,7 +7,7 @@ description: >-
   and motivation back and get you going in life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-regain-motivation.webp'
-original_url: 'https://selfsaid.pages.dev/dont-want-to-do-anything-anymore/'
+original_url: 'https://selfsaid.30tools.com/dont-want-to-do-anything-anymore/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-regain-motivation.webp)

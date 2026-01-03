@@ -7,7 +7,7 @@ description: >-
   emerges when one is fully absorbed in an activity.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/flow-state-of-mind.webp'
-original_url: 'https://selfsaid.pages.dev/flow-state-of-mind/'
+original_url: 'https://selfsaid.30tools.com/flow-state-of-mind/'
 ---
 
 ![Woman running while in a flow state of mind.](https://seffsaid.com/wp-content/uploads/flow-state-of-mind.webp)

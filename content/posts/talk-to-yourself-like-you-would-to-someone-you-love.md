@@ -10,7 +10,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/talk-yourself-love-600.webp'
 original_url: >-
-  https://selfsaid.pages.dev/talk-to-yourself-like-you-would-to-someone-you-love/
+  https://selfsaid.30tools.com/talk-to-yourself-like-you-would-to-someone-you-love/
 ---
 
 ![Talk to Yourself Like You Would to Someone You Love](https://seffsaid.com/wp-content/uploads/talk-yourself-love-600.webp)

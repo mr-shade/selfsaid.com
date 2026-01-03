@@ -7,7 +7,7 @@ description: >-
   others while staying connected to your needs and emotional well-being.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-be-a-good-friend.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-be-a-good-friend/'
+original_url: 'https://selfsaid.30tools.com/how-to-be-a-good-friend/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-be-a-good-friend.webp)

@@ -7,7 +7,7 @@ description: >-
   feeling lighter, freer, and more focused.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Things-To-Let-Go-Of.webp'
-original_url: 'https://selfsaid.pages.dev/things-to-let-go-of-before-your-next-birthday/'
+original_url: 'https://selfsaid.30tools.com/things-to-let-go-of-before-your-next-birthday/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Things-To-Let-Go-Of.webp)

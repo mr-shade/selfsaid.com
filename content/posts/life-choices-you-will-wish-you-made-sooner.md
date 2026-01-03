@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Life-Choices-Youll-Wish-You-Made-Sooner.webp
-original_url: 'https://selfsaid.pages.dev/life-choices-you-will-wish-you-made-sooner/'
+original_url: 'https://selfsaid.30tools.com/life-choices-you-will-wish-you-made-sooner/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Life-Choices-Youll-Wish-You-Made-Sooner.webp)

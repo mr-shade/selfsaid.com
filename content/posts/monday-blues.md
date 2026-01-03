@@ -7,7 +7,7 @@ description: >-
   your mindset, and start the week feeling calmer and more in control.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/monday-blues.jpg'
-original_url: 'https://selfsaid.pages.dev/monday-blues/'
+original_url: 'https://selfsaid.30tools.com/monday-blues/'
 ---
 
 ![4 Ways to Beat the Monday Blues](https://seffsaid.com/wp-content/uploads/monday-blues.jpg)

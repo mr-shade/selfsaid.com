@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/SEFFSAID-Every-Moment-Matters-800x800-1.webp
-original_url: 'https://selfsaid.pages.dev/every-moment-matters/'
+original_url: 'https://selfsaid.30tools.com/every-moment-matters/'
 ---
 
 All [Printable Quotes](/printable-quotes)

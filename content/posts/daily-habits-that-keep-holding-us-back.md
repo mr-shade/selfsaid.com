@@ -7,7 +7,7 @@ description: >-
   learn how to overcome them to unlock your full potential.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/daily-habits-holding-you-back.webp'
-original_url: 'https://selfsaid.pages.dev/daily-habits-that-keep-holding-us-back/'
+original_url: 'https://selfsaid.30tools.com/daily-habits-that-keep-holding-us-back/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/daily-habits-holding-you-back.webp)

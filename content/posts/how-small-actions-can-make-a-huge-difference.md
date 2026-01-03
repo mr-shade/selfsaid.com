@@ -7,7 +7,7 @@ description: >-
   actionable advice on how you can harness this power for yourself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Small-Actions.webp'
-original_url: 'https://selfsaid.pages.dev/how-small-actions-can-make-a-huge-difference/'
+original_url: 'https://selfsaid.30tools.com/how-small-actions-can-make-a-huge-difference/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Small-Actions.webp)

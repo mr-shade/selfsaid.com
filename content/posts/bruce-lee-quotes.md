@@ -7,7 +7,7 @@ description: >-
   best quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Bruce-Lee-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/bruce-lee-quotes/'
+original_url: 'https://selfsaid.30tools.com/bruce-lee-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Bruce-Lee-quotes.webp)

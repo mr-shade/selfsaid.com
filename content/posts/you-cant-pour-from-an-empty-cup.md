@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/you-cant-pour-from-an-empty-cup-600x600-1.webp
-original_url: 'https://selfsaid.pages.dev/you-cant-pour-from-an-empty-cup/'
+original_url: 'https://selfsaid.30tools.com/you-cant-pour-from-an-empty-cup/'
 ---
 
 ![You Can’t Pour from an Empty Cup](https://seffsaid.com/wp-content/uploads/you-cant-pour-from-an-empty-cup-600x600-1.webp)

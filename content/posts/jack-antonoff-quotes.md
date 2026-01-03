@@ -7,7 +7,7 @@ description: >-
   self-discovery, emotional connection, and staying true to oneself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Jack-Antonoff-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/jack-antonoff-quotes/'
+original_url: 'https://selfsaid.30tools.com/jack-antonoff-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Jack-Antonoff-Quotes.webp)

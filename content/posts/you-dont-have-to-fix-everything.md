@@ -7,7 +7,7 @@ description: >-
   yourself without fixing everything at once.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/you-dont-have-to-fix-everything.webp'
-original_url: 'https://selfsaid.pages.dev/you-dont-have-to-fix-everything/'
+original_url: 'https://selfsaid.30tools.com/you-dont-have-to-fix-everything/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/you-dont-have-to-fix-everything.webp)

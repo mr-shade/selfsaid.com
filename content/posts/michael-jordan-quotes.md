@@ -7,7 +7,7 @@ description: >-
   greatness.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/michael-jordan-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/michael-jordan-quotes/'
+original_url: 'https://selfsaid.30tools.com/michael-jordan-quotes/'
 ---
 
 ![120 Michael Jordan Quotes to Inspire Your Personal Best](https://seffsaid.com/wp-content/uploads/michael-jordan-quotes.jpg)

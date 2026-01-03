@@ -5,7 +5,7 @@ author: Seff Bray
 description: Discover 20 priceless moments that no amount of money can ever purchase
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/priceless-moments.webp'
-original_url: 'https://selfsaid.pages.dev/priceless-moments-money-cant-buy/'
+original_url: 'https://selfsaid.30tools.com/priceless-moments-money-cant-buy/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/priceless-moments.webp)

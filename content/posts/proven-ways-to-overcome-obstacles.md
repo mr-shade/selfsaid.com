@@ -7,7 +7,7 @@ description: >-
   obstacles in your life. Learn how to overcome life's challenges today!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Overcome-Obstacles.webp'
-original_url: 'https://selfsaid.pages.dev/proven-ways-to-overcome-obstacles/'
+original_url: 'https://selfsaid.30tools.com/proven-ways-to-overcome-obstacles/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Overcome-Obstacles.webp)

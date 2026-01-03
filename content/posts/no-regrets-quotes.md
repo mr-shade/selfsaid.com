@@ -7,7 +7,7 @@ description: >-
   risks, live fully, and let go of what holds you back.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/no-regrets-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/no-regrets-quotes/'
+original_url: 'https://selfsaid.30tools.com/no-regrets-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/no-regrets-quotes.webp)

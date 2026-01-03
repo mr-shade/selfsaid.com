@@ -8,7 +8,7 @@ description: >-
   overwhelm.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Care-Routine-Real-Life.webp'
-original_url: 'https://selfsaid.pages.dev/self-care-routine/'
+original_url: 'https://selfsaid.30tools.com/self-care-routine/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Routine-Real-Life.webp)

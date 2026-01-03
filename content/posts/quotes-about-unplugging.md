@@ -7,7 +7,7 @@ description: >-
   spiritual leaders and others enlighten you on the virtues of unplugging.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/unplugging-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-about-unplugging/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-unplugging/'
 ---
 
 ![Woman sitting at the edge of a lake enjoying a digital detox](https://seffsaid.com/wp-content/uploads/unplugging-quotes.webp)

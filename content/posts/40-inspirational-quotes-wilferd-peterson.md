@@ -7,7 +7,7 @@ description: >-
   books, and poems have inspired generations.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/wilferd-peterson-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/40-inspirational-quotes-wilferd-peterson/'
+original_url: 'https://selfsaid.30tools.com/40-inspirational-quotes-wilferd-peterson/'
 ---
 
 ![Wilferd Peterson Quotes](https://seffsaid.com/wp-content/uploads/wilferd-peterson-quotes.jpg)

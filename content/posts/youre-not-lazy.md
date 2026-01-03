@@ -7,7 +7,7 @@ description: >-
   lazy. It’s because you’re carrying more than you realize.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/youre-not-lazy.webp'
-original_url: 'https://selfsaid.pages.dev/youre-not-lazy/'
+original_url: 'https://selfsaid.30tools.com/youre-not-lazy/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/youre-not-lazy.webp)

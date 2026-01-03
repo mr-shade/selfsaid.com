@@ -7,7 +7,7 @@ description: >-
   practice, a little commitment, and these 5 simple techniques.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Live-In-The-Moment.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-live-in-the-moment/'
+original_url: 'https://selfsaid.30tools.com/how-to-live-in-the-moment/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Live-In-The-Moment.webp)

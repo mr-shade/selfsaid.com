@@ -7,7 +7,7 @@ description: >-
   move forward.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/overthinking-break-the-loop.webp'
-original_url: 'https://selfsaid.pages.dev/overthinking-break-the-loop/'
+original_url: 'https://selfsaid.30tools.com/overthinking-break-the-loop/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/overthinking-break-the-loop.webp)

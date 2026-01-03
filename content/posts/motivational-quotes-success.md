@@ -7,7 +7,7 @@ description: >-
   mindset, inspire success, and help you develop a winning attitude.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/motivational-quotes-for-success.jpg'
-original_url: 'https://selfsaid.pages.dev/motivational-quotes-success/'
+original_url: 'https://selfsaid.30tools.com/motivational-quotes-success/'
 ---
 
 ![Motivational Quotes For Success](https://seffsaid.com/wp-content/uploads/motivational-quotes-for-success.jpg)

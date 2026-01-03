@@ -7,7 +7,7 @@ description: >-
   quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/J-K-Rowling-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/j-k-rowling-quotes/'
+original_url: 'https://selfsaid.30tools.com/j-k-rowling-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/J-K-Rowling-Quotes.webp)

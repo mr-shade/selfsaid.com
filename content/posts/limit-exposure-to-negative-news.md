@@ -7,7 +7,7 @@ description: >-
   space for calm, balance, and resilience in daily life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/negative-news.webp'
-original_url: 'https://selfsaid.pages.dev/limit-exposure-to-negative-news/'
+original_url: 'https://selfsaid.30tools.com/limit-exposure-to-negative-news/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/negative-news.webp)

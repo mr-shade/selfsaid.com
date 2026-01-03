@@ -7,7 +7,7 @@ description: >-
   personal growth from a motivational icon. Get inspired!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Inky-Johnson-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/inky-johnson-quotes/'
+original_url: 'https://selfsaid.30tools.com/inky-johnson-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Inky-Johnson-quotes.webp)

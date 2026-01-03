@@ -7,7 +7,7 @@ description: >-
   fulfillment every single day. Live the good life starting today.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-live-the-good-life.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-live-the-good-life/'
+original_url: 'https://selfsaid.30tools.com/how-to-live-the-good-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-live-the-good-life.webp)

@@ -7,7 +7,7 @@ description: >-
   are 8 compelling reasons to start reading a novel today!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/benefits-of-reading-books.webp'
-original_url: 'https://selfsaid.pages.dev/8-benefits-of-reading-books/'
+original_url: 'https://selfsaid.30tools.com/8-benefits-of-reading-books/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/benefits-of-reading-books.webp)

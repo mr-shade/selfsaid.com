@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/No-guts-No-glory-No-legend-No-story.jpg
-original_url: 'https://selfsaid.pages.dev/no-guts-no-glory-no-legend-no-story/'
+original_url: 'https://selfsaid.30tools.com/no-guts-no-glory-no-legend-no-story/'
 ---
 
 ![No guts. No glory. No legend. No story.](https://seffsaid.com/wp-content/uploads/No-guts-No-glory-No-legend-No-story.jpg)

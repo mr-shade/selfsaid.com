@@ -7,7 +7,7 @@ description: >-
   make you relentless in working towards your goals and dreams.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/badass-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/powerful-badass-quotes/'
+original_url: 'https://selfsaid.30tools.com/powerful-badass-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/badass-quotes.webp)

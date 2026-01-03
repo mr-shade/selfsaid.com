@@ -7,7 +7,7 @@ description: >-
   mindset. Find emotional balance and stay steady no matter what life brings.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-stay-calm-under-pressure.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-stay-calm-under-pressure/'
+original_url: 'https://selfsaid.30tools.com/how-to-stay-calm-under-pressure/'
 ---
 
 ![Man staying calm in a hectic environment](https://seffsaid.com/wp-content/uploads/how-to-stay-calm-under-pressure.webp)

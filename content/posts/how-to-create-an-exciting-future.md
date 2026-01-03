@@ -7,7 +7,7 @@ description: >-
   now!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/create-an-exciting-future.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-create-an-exciting-future/'
+original_url: 'https://selfsaid.30tools.com/how-to-create-an-exciting-future/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/create-an-exciting-future.webp)

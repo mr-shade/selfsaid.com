@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-keep-going.webp'
 original_url: >-
-  https://selfsaid.pages.dev/how-to-keep-going-when-youre-tired-of-starting-over/
+  https://selfsaid.30tools.com/how-to-keep-going-when-youre-tired-of-starting-over/
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-keep-going.webp)

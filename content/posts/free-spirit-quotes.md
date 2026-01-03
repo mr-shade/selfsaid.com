@@ -7,7 +7,7 @@ description: >-
   passion, and inspire courageous living.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/free-spirit-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/free-spirit-quotes/'
+original_url: 'https://selfsaid.30tools.com/free-spirit-quotes/'
 ---
 
 ![Free Spirit Quotes](https://seffsaid.com/wp-content/uploads/free-spirit-quotes.jpg)

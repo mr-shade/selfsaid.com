@@ -7,7 +7,7 @@ description: >-
   you in every area of life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/meaningful-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/meaningful-quotes/'
+original_url: 'https://selfsaid.30tools.com/meaningful-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/meaningful-quotes.webp)

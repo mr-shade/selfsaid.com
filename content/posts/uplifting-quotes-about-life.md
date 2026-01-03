@@ -7,7 +7,7 @@ description: >-
   inspire and motivate you towards positive change.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/uplifting-quotes-about-life.webp'
-original_url: 'https://selfsaid.pages.dev/uplifting-quotes-about-life/'
+original_url: 'https://selfsaid.30tools.com/uplifting-quotes-about-life/'
 ---
 
 ![Hiker admiring the uplifting view from a mountain top](https://seffsaid.com/wp-content/uploads/uplifting-quotes-about-life.webp)

@@ -7,7 +7,7 @@ description: >-
   outweighs any short term advantages of lying.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/benefits-of-telling-the-truth.webp'
-original_url: 'https://selfsaid.pages.dev/8-remarkable-benefits-of-always-telling-the-truth/'
+original_url: 'https://selfsaid.30tools.com/8-remarkable-benefits-of-always-telling-the-truth/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/benefits-of-telling-the-truth.webp)

@@ -7,7 +7,7 @@ description: >-
   that shines through a person’s character and actions.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-inner-beauty.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-about-inner-beauty/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-inner-beauty/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-inner-beauty.webp)

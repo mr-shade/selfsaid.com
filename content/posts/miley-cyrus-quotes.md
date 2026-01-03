@@ -7,7 +7,7 @@ description: >-
   growth.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Miley-Cyrus-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/miley-cyrus-quotes/'
+original_url: 'https://selfsaid.30tools.com/miley-cyrus-quotes/'
 ---
 
 ![Miley Cyrus in concert.](https://seffsaid.com/wp-content/uploads/Miley-Cyrus-Quotes.webp)

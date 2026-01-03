@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "Find all contact details for SEFFSAID here, including email, social media links, and the weekly inspirational newsletter."
 tags: []
 featured_image: ""
-original_url: "https://selfsaid.pages.dev/contact/"
+original_url: "https://selfsaid.30tools.com/contact/"
 ---
 
 # Contact SEFFSAID

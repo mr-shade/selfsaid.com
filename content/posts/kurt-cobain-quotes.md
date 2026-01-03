@@ -7,7 +7,7 @@ description: >-
   best quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/kurt-cobain-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/kurt-cobain-quotes/'
+original_url: 'https://selfsaid.30tools.com/kurt-cobain-quotes/'
 ---
 
 ![Kurt Cobain on stage with Nirvana](https://seffsaid.com/wp-content/uploads/kurt-cobain-quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   available to purchase.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Seff-Bray-How-To-Say-No-283x400-1.webp'
-original_url: 'https://selfsaid.pages.dev/my-books/'
+original_url: 'https://selfsaid.30tools.com/my-books/'
 ---
 
 # My Books

@@ -7,7 +7,7 @@ description: >-
   Philosopher.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Marcus-Aurelius-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/marcus-aurelius-quotes/'
+original_url: 'https://selfsaid.30tools.com/marcus-aurelius-quotes/'
 ---
 
 ![Marcus Aurelius](https://seffsaid.com/wp-content/uploads/Marcus-Aurelius-Quotes.webp)

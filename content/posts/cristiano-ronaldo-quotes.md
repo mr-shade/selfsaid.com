@@ -7,7 +7,7 @@ description: >-
   inspiring quotes from the footballer Cristiano Ronaldo.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Cristiano-Ronaldo-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/cristiano-ronaldo-quotes/'
+original_url: 'https://selfsaid.30tools.com/cristiano-ronaldo-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Cristiano-Ronaldo-Quotes.webp)

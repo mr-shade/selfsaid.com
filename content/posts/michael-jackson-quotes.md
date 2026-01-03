@@ -7,7 +7,7 @@ description: >-
   love, creativity, and humanity.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Michael-Jackson-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/michael-jackson-quotes/'
+original_url: 'https://selfsaid.30tools.com/michael-jackson-quotes/'
 ---
 
 ![Michael Jackson in concert](https://seffsaid.com/wp-content/uploads/Michael-Jackson-Quotes.webp)

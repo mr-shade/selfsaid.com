@@ -7,7 +7,7 @@ description: >-
   everyday steps to create a life that feels good, not just looks good.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/create-the-future.webp'
-original_url: 'https://selfsaid.pages.dev/create-the-future-of-your-dreams/'
+original_url: 'https://selfsaid.30tools.com/create-the-future-of-your-dreams/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/create-the-future.webp)

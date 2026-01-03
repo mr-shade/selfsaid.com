@@ -7,7 +7,7 @@ description: >-
   groundbreaking book, 'How To Say No'.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Learn-How-To-Say-No-webp.webp'
-original_url: 'https://selfsaid.pages.dev/learn-how-to-say-no/'
+original_url: 'https://selfsaid.30tools.com/learn-how-to-say-no/'
 ---
 
 ![Learn How To Say No Book by Seff Bray](https://seffsaid.com/wp-content/uploads/Learn-How-To-Say-No-webp.webp)

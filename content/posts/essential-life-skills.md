@@ -7,7 +7,7 @@ description: >-
   ability to succeed in all areas of life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/essential-life-skills.webp'
-original_url: 'https://selfsaid.pages.dev/essential-life-skills/'
+original_url: 'https://selfsaid.30tools.com/essential-life-skills/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/essential-life-skills.webp)

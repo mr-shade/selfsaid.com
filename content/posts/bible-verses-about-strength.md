@@ -7,7 +7,7 @@ description: >-
   faith and trust in God.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Bible-Quotes-About-Strength.webp'
-original_url: 'https://selfsaid.pages.dev/bible-verses-about-strength/'
+original_url: 'https://selfsaid.30tools.com/bible-verses-about-strength/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Bible-Quotes-About-Strength.webp)

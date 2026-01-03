@@ -7,7 +7,7 @@ description: >-
   the songs that defined a generation.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Paul-McCartney-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/paul-mccartney-quotes/'
+original_url: 'https://selfsaid.30tools.com/paul-mccartney-quotes/'
 ---
 
 ![Paul McCartney on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Paul-McCartney-Quotes.webp)

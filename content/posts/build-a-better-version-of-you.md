@@ -7,7 +7,7 @@ description: >-
   best version of yourself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Build-A-Better-Version-Of-You.webp'
-original_url: 'https://selfsaid.pages.dev/build-a-better-version-of-you/'
+original_url: 'https://selfsaid.30tools.com/build-a-better-version-of-you/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Build-A-Better-Version-Of-You.webp)

@@ -8,7 +8,7 @@ description: >-
   time.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/doing-one-thing-slowly.webp'
-original_url: 'https://selfsaid.pages.dev/doing-one-thing-slowly/'
+original_url: 'https://selfsaid.30tools.com/doing-one-thing-slowly/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/doing-one-thing-slowly.webp)

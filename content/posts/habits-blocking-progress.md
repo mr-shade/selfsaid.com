@@ -7,7 +7,7 @@ description: >-
   your progress?
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/habits-blocking-progress.webp'
-original_url: 'https://selfsaid.pages.dev/habits-blocking-progress/'
+original_url: 'https://selfsaid.30tools.com/habits-blocking-progress/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/habits-blocking-progress.webp)

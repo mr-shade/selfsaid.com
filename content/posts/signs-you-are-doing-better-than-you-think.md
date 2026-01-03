@@ -7,7 +7,7 @@ description: >-
   on the right path - even if it doesn’t feel like it.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/closer-to-okay.webp'
-original_url: 'https://selfsaid.pages.dev/signs-you-are-doing-better-than-you-think/'
+original_url: 'https://selfsaid.30tools.com/signs-you-are-doing-better-than-you-think/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/closer-to-okay.webp)

@@ -9,7 +9,7 @@ tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Getting-Back-Up-And-Moving-Forwards-After-Failure.webp
 original_url: >-
-  https://selfsaid.pages.dev/quotes-about-getting-back-up-and-moving-forwards-after-failure/
+  https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure/
 ---
 
 ![Mountain climber not allowing himself to be defeated by failure.](https://seffsaid.com/wp-content/uploads/Getting-Back-Up-And-Moving-Forwards-After-Failure.webp)

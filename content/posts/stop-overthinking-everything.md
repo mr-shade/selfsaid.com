@@ -7,7 +7,7 @@ description: >-
   overactive brain from a chronic state of stress to a calmer place.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Stop-Overthinking-Everything.webp'
-original_url: 'https://selfsaid.pages.dev/stop-overthinking-everything/'
+original_url: 'https://selfsaid.30tools.com/stop-overthinking-everything/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Stop-Overthinking-Everything.webp)

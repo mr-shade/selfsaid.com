@@ -7,7 +7,7 @@ description: >-
   better you and a better life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/personal-development-tips.webp'
-original_url: 'https://selfsaid.pages.dev/12-personal-development-tips/'
+original_url: 'https://selfsaid.30tools.com/12-personal-development-tips/'
 ---
 
 ![Woman with outstretched arms facing out to sea on a beautiful sunny day](https://seffsaid.com/wp-content/uploads/personal-development-tips.webp)

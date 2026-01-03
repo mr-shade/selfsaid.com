@@ -7,7 +7,7 @@ description: >-
   Read these 44 powerful quotes about strength and resilience.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-strength.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-about-strength/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-strength/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-strength.webp)

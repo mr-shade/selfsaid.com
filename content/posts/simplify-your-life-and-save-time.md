@@ -7,7 +7,7 @@ description: >-
   these 14 smart life hacks.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Simplify-Your-Life-Save-Time.webp'
-original_url: 'https://selfsaid.pages.dev/simplify-your-life-and-save-time/'
+original_url: 'https://selfsaid.30tools.com/simplify-your-life-and-save-time/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Simplify-Your-Life-Save-Time.webp)

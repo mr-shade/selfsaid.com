@@ -7,7 +7,7 @@ description: >-
   everyday distractions from your workplace.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Eliminate-Distractions-At-Work.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-eliminate-distractions-at-work/'
+original_url: 'https://selfsaid.30tools.com/how-to-eliminate-distractions-at-work/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Eliminate-Distractions-At-Work.webp)

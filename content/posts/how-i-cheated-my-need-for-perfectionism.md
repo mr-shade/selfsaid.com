@@ -6,7 +6,7 @@ description: A short story of a frustrated gardener's search for perfectionism.
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/How-I-Cheated-My-Need-For-Perfectionism.webp
-original_url: 'https://selfsaid.pages.dev/how-i-cheated-my-need-for-perfectionism/'
+original_url: 'https://selfsaid.30tools.com/how-i-cheated-my-need-for-perfectionism/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-I-Cheated-My-Need-For-Perfectionism.webp)

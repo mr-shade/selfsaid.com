@@ -7,7 +7,7 @@ description: >-
   challenge is too great, and no dream is too big to achieve.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/nothing-is-impossible-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/nothing-is-impossible-quotes/'
+original_url: 'https://selfsaid.30tools.com/nothing-is-impossible-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/nothing-is-impossible-quotes.webp)

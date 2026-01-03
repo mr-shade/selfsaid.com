@@ -8,7 +8,7 @@ description: >-
   heart again.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/trust-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-about-trust/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-trust/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/trust-quotes.webp)

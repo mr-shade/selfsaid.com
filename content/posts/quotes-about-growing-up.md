@@ -7,7 +7,7 @@ description: >-
   and downs of getting older.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-growing-up.jpg'
-original_url: 'https://selfsaid.pages.dev/quotes-about-growing-up/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-growing-up/'
 ---
 
 ![130 Inspirational Quotes About Growing Up](https://seffsaid.com/wp-content/uploads/quotes-about-growing-up.jpg)

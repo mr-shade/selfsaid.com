@@ -7,7 +7,7 @@ description: >-
   who wants to connect without losing themselves.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Feel-More-At-Ease.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-be-likeable/'
+original_url: 'https://selfsaid.30tools.com/how-to-be-likeable/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Feel-More-At-Ease.webp)

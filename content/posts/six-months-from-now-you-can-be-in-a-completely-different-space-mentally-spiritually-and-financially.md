@@ -12,7 +12,7 @@ tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially.jpg
 original_url: >-
-  https://selfsaid.pages.dev/six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially/
+  https://selfsaid.30tools.com/six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially/
 ---
 
 ![Six months from now you can be in a completely different space mentally, spiritually, and financially.](https://seffsaid.com/wp-content/uploads/Six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially.jpg)

@@ -7,7 +7,7 @@ description: >-
   and never wanting to let go.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/romantic-cuddle-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/romantic-cuddle-quotes/'
+original_url: 'https://selfsaid.30tools.com/romantic-cuddle-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/romantic-cuddle-quotes.webp)

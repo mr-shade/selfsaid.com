@@ -7,7 +7,7 @@ description: >-
   this collection of her most iconic quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Lana-Del-Rey-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/lana-del-rey-quotes/'
+original_url: 'https://selfsaid.30tools.com/lana-del-rey-quotes/'
 ---
 
 ![Lana Del Rey in concert](https://seffsaid.com/wp-content/uploads/Lana-Del-Rey-quotes.webp)

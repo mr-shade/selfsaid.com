@@ -7,7 +7,7 @@ description: >-
   unwavering commitment to being true to herself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Dua-Lipa-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/dua-lipa-quotes/'
+original_url: 'https://selfsaid.30tools.com/dua-lipa-quotes/'
 ---
 
 ![Dua Lipa In Concert](https://seffsaid.com/wp-content/uploads/Dua-Lipa-quotes.webp)

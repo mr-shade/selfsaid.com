@@ -7,7 +7,7 @@ description: >-
   self-assured, in control and full of confidence in any situation.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-appear-confident.webp'
-original_url: 'https://selfsaid.pages.dev/10-ways-to-appear-more-confident/'
+original_url: 'https://selfsaid.30tools.com/10-ways-to-appear-more-confident/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-appear-confident.webp)

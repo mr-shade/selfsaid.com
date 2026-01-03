@@ -7,7 +7,7 @@ description: >-
   story.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/productive-day.webp'
-original_url: 'https://selfsaid.pages.dev/productive-day/'
+original_url: 'https://selfsaid.30tools.com/productive-day/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/productive-day.webp)

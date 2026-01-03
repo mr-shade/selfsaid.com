@@ -7,7 +7,7 @@ description: >-
   most of each and every day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/you-only-live-once-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/you-only-live-once-quotes/'
+original_url: 'https://selfsaid.30tools.com/you-only-live-once-quotes/'
 ---
 
 ![Couple in love hugging](https://seffsaid.com/wp-content/uploads/you-only-live-once-quotes.webp)

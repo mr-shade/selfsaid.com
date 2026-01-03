@@ -7,7 +7,7 @@ description: >-
   five most common life mistakes to avoid.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Common-Life-Mistakes-To-Avoid.webp'
-original_url: 'https://selfsaid.pages.dev/5-common-life-mistakes-to-avoid/'
+original_url: 'https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid/'
 ---
 
 ![Man upset after making a common life mistake](https://seffsaid.com/wp-content/uploads/Common-Life-Mistakes-To-Avoid.webp)

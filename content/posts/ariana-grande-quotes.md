@@ -7,7 +7,7 @@ description: >-
   quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Ariana-Grande-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/ariana-grande-quotes/'
+original_url: 'https://selfsaid.30tools.com/ariana-grande-quotes/'
 ---
 
 ![Ariana Grande live on stage](https://seffsaid.com/wp-content/uploads/Ariana-Grande-Quotes.webp)

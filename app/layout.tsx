@@ -22,11 +22,11 @@ export async function generateMetadata(): Promise<Metadata> {
         keywords: ['motivation', 'inspiration', 'quotes', 'self-improvement', 'productivity', 'life advice'],
         authors: [{ name: 'Self Said' }],
         creator: 'Self Said',
-        metadataBase: new URL('https://selfsaid.pages.dev'),
+        metadataBase: new URL('https://selfsaid.30tools.com'),
         openGraph: {
             type: 'website',
             locale: 'en_US',
-            url: 'https://selfsaid.pages.dev',
+            url: 'https://selfsaid.30tools.com',
             siteName: 'Self Said',
             title: 'Self Said - Inspiration, Motivation, and Life Advice',
             description: 'Your daily dose of inspiration, motivation, and practical life advice.',

@@ -8,7 +8,7 @@ description: >-
   your day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-stay-calm.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-stay-calm-in-stressful-situations/'
+original_url: 'https://selfsaid.30tools.com/how-to-stay-calm-in-stressful-situations/'
 ---
 
 ![Woman meditating on top of a mountain](https://seffsaid.com/wp-content/uploads/how-to-stay-calm.webp)

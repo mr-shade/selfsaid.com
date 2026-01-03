@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Acts-Of-Kindness-Live-Longer.webp'
 original_url: >-
-  https://selfsaid.pages.dev/simple-acts-of-kindness-that-can-make-us-live-longer/
+  https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer/
 ---
 
 ![Man showing kindness helping a stranger](https://seffsaid.com/wp-content/uploads/Acts-Of-Kindness-Live-Longer.webp)

@@ -7,7 +7,7 @@ description: >-
   work.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/hacks-to-take-back-time.webp'
-original_url: 'https://selfsaid.pages.dev/take-back-time-for-yourself/'
+original_url: 'https://selfsaid.30tools.com/take-back-time-for-yourself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/hacks-to-take-back-time.webp)

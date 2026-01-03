@@ -7,7 +7,7 @@ description: >-
   create a calmer, more supportive inner voice.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Overcome-Self-Criticism.webp'
-original_url: 'https://selfsaid.pages.dev/stop-self-criticism/'
+original_url: 'https://selfsaid.30tools.com/stop-self-criticism/'
 ---
 
 ![Woman gazing out of a window on a grey rainy day.](https://seffsaid.com/wp-content/uploads/Overcome-Self-Criticism.webp)

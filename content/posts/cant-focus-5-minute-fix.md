@@ -7,7 +7,7 @@ description: >-
   and bring your focus back.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/cant-focus-5-minute-fix.webp'
-original_url: 'https://selfsaid.pages.dev/cant-focus-5-minute-fix/'
+original_url: 'https://selfsaid.30tools.com/cant-focus-5-minute-fix/'
 ---
 
 ![Can’t Focus Lately? Try This 5-Minute Fix](https://seffsaid.com/wp-content/uploads/cant-focus-5-minute-fix.webp)

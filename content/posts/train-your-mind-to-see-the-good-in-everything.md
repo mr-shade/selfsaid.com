@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Train-your-mind-to-see-the-good-in-everything.jpg
-original_url: 'https://selfsaid.pages.dev/train-your-mind-to-see-the-good-in-everything/'
+original_url: 'https://selfsaid.30tools.com/train-your-mind-to-see-the-good-in-everything/'
 ---
 
 ![Train Your Mind To See The Good In Everything](https://seffsaid.com/wp-content/uploads/Train-your-mind-to-see-the-good-in-everything.jpg)

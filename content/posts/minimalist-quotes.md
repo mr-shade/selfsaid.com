@@ -7,7 +7,7 @@ description: >-
   words to help you slow down, let go, and focus on what truly matters.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/minimalist-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/minimalist-quotes/'
+original_url: 'https://selfsaid.30tools.com/minimalist-quotes/'
 ---
 
 ![Minimalist Quotes That Inspire a Calmer Life](https://seffsaid.com/wp-content/uploads/minimalist-quotes.webp)

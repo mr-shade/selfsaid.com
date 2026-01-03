@@ -7,7 +7,7 @@ description: >-
   quotes from the Dalai Lama.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/dalai-lama-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/inspirational-quotes-dalai-lama/'
+original_url: 'https://selfsaid.30tools.com/inspirational-quotes-dalai-lama/'
 ---
 
 ![A photo of the Dalai Lama deep in thought.](https://seffsaid.com/wp-content/uploads/dalai-lama-quotes.webp)

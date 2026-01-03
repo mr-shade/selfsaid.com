@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/maximize-your-potential.webp'
 original_url: >-
-  https://selfsaid.pages.dev/simple-steps-for-maximizing-your-potential-every-day/
+  https://selfsaid.30tools.com/simple-steps-for-maximizing-your-potential-every-day/
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/maximize-your-potential.webp)

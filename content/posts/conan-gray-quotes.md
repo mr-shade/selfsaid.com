@@ -7,7 +7,7 @@ description: >-
   life, love, growing up, and his personal experiences.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/conan-gray-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/conan-gray-quotes/'
+original_url: 'https://selfsaid.30tools.com/conan-gray-quotes/'
 ---
 
 ![Conan Gray in concert](https://seffsaid.com/wp-content/uploads/conan-gray-quotes.webp)

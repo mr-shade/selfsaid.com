@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/10-Minute-Self-Care-Activities.webp'
 original_url: >-
-  https://selfsaid.pages.dev/self-care-activities-that-you-can-do-in-10-minutes-or-less/
+  https://selfsaid.30tools.com/self-care-activities-that-you-can-do-in-10-minutes-or-less/
 ---
 
 ![Woman enjoying 10 minutes of self care meditating on a beach.](https://seffsaid.com/wp-content/uploads/10-Minute-Self-Care-Activities.webp)

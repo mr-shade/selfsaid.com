@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Inspirational-Have-A-Good-Day-Quotes.jpg
-original_url: 'https://selfsaid.pages.dev/have-a-good-day-quotes/'
+original_url: 'https://selfsaid.30tools.com/have-a-good-day-quotes/'
 ---
 
 ![218 Inspirational 'Have A Good Day' Quotes](https://seffsaid.com/wp-content/uploads/Inspirational-Have-A-Good-Day-Quotes.jpg)

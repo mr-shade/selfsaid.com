@@ -7,7 +7,7 @@ description: >-
   that encourage thankfulness and inner peace.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/gratitude-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/gratitude-quotes/'
+original_url: 'https://selfsaid.30tools.com/gratitude-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/gratitude-quotes.webp)

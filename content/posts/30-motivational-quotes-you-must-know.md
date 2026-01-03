@@ -7,7 +7,7 @@ description: >-
   fortune, and happiness.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/motivational-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/30-motivational-quotes-you-must-know/'
+original_url: 'https://selfsaid.30tools.com/30-motivational-quotes-you-must-know/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/motivational-quotes.webp)

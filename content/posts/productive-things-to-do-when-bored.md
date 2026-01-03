@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Productive-Things-To-Do-When-Bored.webp
-original_url: 'https://selfsaid.pages.dev/productive-things-to-do-when-bored/'
+original_url: 'https://selfsaid.30tools.com/productive-things-to-do-when-bored/'
 ---
 
 ![Bored girl trying to think of something productive to do](https://seffsaid.com/wp-content/uploads/Productive-Things-To-Do-When-Bored.webp)

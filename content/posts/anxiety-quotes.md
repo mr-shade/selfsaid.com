@@ -7,7 +7,7 @@ description: >-
   slow down, breathe, and find peace in the present moment.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/anxiety-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/anxiety-quotes/'
+original_url: 'https://selfsaid.30tools.com/anxiety-quotes/'
 ---
 
 ![Anxious woman](https://seffsaid.com/wp-content/uploads/anxiety-quotes.webp)

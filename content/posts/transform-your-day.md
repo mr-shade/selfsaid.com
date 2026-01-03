@@ -7,7 +7,7 @@ description: >-
   game-changing life hacks.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/life-hacks.webp'
-original_url: 'https://selfsaid.pages.dev/transform-your-day/'
+original_url: 'https://selfsaid.30tools.com/transform-your-day/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/life-hacks.webp)

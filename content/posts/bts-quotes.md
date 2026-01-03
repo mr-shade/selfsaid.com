@@ -7,7 +7,7 @@ description: >-
   wisdom they've gained through their experiences.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/BTS-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/bts-quotes/'
+original_url: 'https://selfsaid.30tools.com/bts-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/BTS-Quotes.webp)

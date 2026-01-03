@@ -7,7 +7,7 @@ description: >-
   be your reason to dance with joy!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/party-quotes-webp.webp'
-original_url: 'https://selfsaid.pages.dev/party-quotes/'
+original_url: 'https://selfsaid.30tools.com/party-quotes/'
 ---
 
 ![Two women dancing at a party](https://seffsaid.com/wp-content/uploads/party-quotes-webp.webp)

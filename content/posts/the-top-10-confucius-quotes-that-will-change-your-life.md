@@ -6,7 +6,7 @@ description: Discover the timeless wisdom of Confucius with our list of his 50 b
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Confucius-Quotes.webp'
 original_url: >-
-  https://selfsaid.pages.dev/the-top-10-confucius-quotes-that-will-change-your-life/
+  https://selfsaid.30tools.com/the-top-10-confucius-quotes-that-will-change-your-life/
 ---
 
 ![Confucius thinking up another of his life changing quotes](https://seffsaid.com/wp-content/uploads/Confucius-Quotes.webp)

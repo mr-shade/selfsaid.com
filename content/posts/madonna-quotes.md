@@ -7,7 +7,7 @@ description: >-
   and inspiring quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Madonna-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/madonna-quotes/'
+original_url: 'https://selfsaid.30tools.com/madonna-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Madonna-Quotes.webp)

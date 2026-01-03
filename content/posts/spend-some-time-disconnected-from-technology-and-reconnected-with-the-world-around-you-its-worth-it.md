@@ -12,7 +12,7 @@ tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-Its-worth-it-1.jpg
 original_url: >-
-  https://selfsaid.pages.dev/spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it/
+  https://selfsaid.30tools.com/spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it/
 ---
 
 ![Spend Some Time Disconnected From Technology And Reconnected With The World Around You. It’s Worth It.](https://seffsaid.com/wp-content/uploads/Spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-Its-worth-it-1.jpg)

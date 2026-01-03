@@ -7,7 +7,7 @@ tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Train-your-mind-to-be-calm-in-every-storm.jpg
 original_url: >-
-  https://selfsaid.pages.dev/train-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well/
+  https://selfsaid.30tools.com/train-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well/
 ---
 
 ![Train your mind to be calm in every storm. It will serve you well.](https://seffsaid.com/wp-content/uploads/Train-your-mind-to-be-calm-in-every-storm.jpg)

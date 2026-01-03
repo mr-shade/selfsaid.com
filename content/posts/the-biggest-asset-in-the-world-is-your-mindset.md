@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/The-biggest-asset-in-the-world-is-your-mindset.jpg
-original_url: 'https://selfsaid.pages.dev/the-biggest-asset-in-the-world-is-your-mindset/'
+original_url: 'https://selfsaid.30tools.com/the-biggest-asset-in-the-world-is-your-mindset/'
 ---
 
 ![The biggest asset in the world is your mindset.](https://seffsaid.com/wp-content/uploads/The-biggest-asset-in-the-world-is-your-mindset.jpg)

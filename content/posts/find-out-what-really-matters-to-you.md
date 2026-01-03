@@ -7,7 +7,7 @@ description: >-
   priorities and personal values.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/what-really-matters.webp'
-original_url: 'https://selfsaid.pages.dev/find-out-what-really-matters-to-you/'
+original_url: 'https://selfsaid.30tools.com/find-out-what-really-matters-to-you/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/what-really-matters.webp)

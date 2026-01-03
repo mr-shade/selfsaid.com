@@ -7,7 +7,7 @@ description: >-
   48 simple ways to reduce stress and anxiety starting today.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Reduce-Stress-and-Anxiety.webp'
-original_url: 'https://selfsaid.pages.dev/48-simple-ways-to-reduce-stress-and-anxiety/'
+original_url: 'https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Reduce-Stress-and-Anxiety.webp)

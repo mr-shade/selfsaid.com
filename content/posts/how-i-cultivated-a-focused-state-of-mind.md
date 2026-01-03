@@ -7,7 +7,7 @@ description: >-
   here to learn how!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/focused-state-of-mind.webp'
-original_url: 'https://selfsaid.pages.dev/how-i-cultivated-a-focused-state-of-mind/'
+original_url: 'https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind/'
 ---
 
 ![Woman sitting on a beautiful beach meditating.](https://seffsaid.com/wp-content/uploads/focused-state-of-mind.webp)

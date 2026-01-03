@@ -7,7 +7,7 @@ description: >-
   quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Marilyn-Monroe-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/marilyn-monroe-quotes/'
+original_url: 'https://selfsaid.30tools.com/marilyn-monroe-quotes/'
 ---
 
 ![Marilyn Monroe](https://seffsaid.com/wp-content/uploads/Marilyn-Monroe-Quotes.webp)

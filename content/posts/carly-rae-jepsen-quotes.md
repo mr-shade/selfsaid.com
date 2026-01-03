@@ -7,7 +7,7 @@ description: >-
   creativity, life, music, and personal growth.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Carly-Rae-Jepsen-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/carly-rae-jepsen-quotes/'
+original_url: 'https://selfsaid.30tools.com/carly-rae-jepsen-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Carly-Rae-Jepsen-Quotes.webp)

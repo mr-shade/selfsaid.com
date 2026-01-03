@@ -7,7 +7,7 @@ description: >-
   balanced.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/easy-self-care-practices.webp'
-original_url: 'https://selfsaid.pages.dev/easy-self-care-practices/'
+original_url: 'https://selfsaid.30tools.com/easy-self-care-practices/'
 ---
 
 ![Easy Self Care Practices You Can Start Today](https://seffsaid.com/wp-content/uploads/easy-self-care-practices.webp)

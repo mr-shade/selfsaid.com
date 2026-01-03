@@ -7,7 +7,7 @@ description: >-
   calming habits that support your well-being without overwhelm.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/minimalist-self-care.webp'
-original_url: 'https://selfsaid.pages.dev/minimalist-self-care/'
+original_url: 'https://selfsaid.30tools.com/minimalist-self-care/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/minimalist-self-care.webp)

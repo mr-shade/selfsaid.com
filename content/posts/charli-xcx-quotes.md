@@ -7,7 +7,7 @@ description: >-
   that redefine what it means to be a modern artist.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Charli-XCX-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/charli-xcx-quotes/'
+original_url: 'https://selfsaid.30tools.com/charli-xcx-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Charli-XCX-Quotes.webp)

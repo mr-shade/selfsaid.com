@@ -7,7 +7,7 @@ description: >-
   every moment of your life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/three-word-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/three-word-quotes/'
+original_url: 'https://selfsaid.30tools.com/three-word-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/three-word-quotes.webp)

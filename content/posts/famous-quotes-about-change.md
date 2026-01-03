@@ -7,7 +7,7 @@ description: >-
   about change will inspire you to move forward with confidence.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/famous-quotes-about-change.webp'
-original_url: 'https://selfsaid.pages.dev/famous-quotes-about-change/'
+original_url: 'https://selfsaid.30tools.com/famous-quotes-about-change/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/famous-quotes-about-change.webp)

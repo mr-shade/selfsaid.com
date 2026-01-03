@@ -9,7 +9,7 @@ tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/One-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg
 original_url: >-
-  https://selfsaid.pages.dev/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/
+  https://selfsaid.30tools.com/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/
 ---
 
 ![One day you will be at the place you always wanted to be. Don't stop believing.](https://seffsaid.com/wp-content/uploads/One-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg)

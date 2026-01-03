@@ -7,7 +7,7 @@ description: >-
   encouragement, perspective, and quiet strength.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Mental-Health-Journey.webp'
-original_url: 'https://selfsaid.pages.dev/mental-health-journey/'
+original_url: 'https://selfsaid.30tools.com/mental-health-journey/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Mental-Health-Journey.webp)

@@ -7,7 +7,7 @@ description: >-
   simplify, and finally get through your to do list.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/too-many-to-dos.webp'
-original_url: 'https://selfsaid.pages.dev/too-many-to-dos-how-to-get-through-your-list/'
+original_url: 'https://selfsaid.30tools.com/too-many-to-dos-how-to-get-through-your-list/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/too-many-to-dos.webp)

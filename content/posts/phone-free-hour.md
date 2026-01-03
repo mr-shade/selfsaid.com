@@ -7,7 +7,7 @@ description: >-
   guilt, without pressure, and with more peace than I expected.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/phone-free-hour.webp'
-original_url: 'https://selfsaid.pages.dev/phone-free-hour/'
+original_url: 'https://selfsaid.30tools.com/phone-free-hour/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/phone-free-hour.webp)

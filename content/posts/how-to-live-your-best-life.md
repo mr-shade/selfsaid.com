@@ -7,7 +7,7 @@ description: >-
   connections, and find meaning in everyday moments.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-live-your-best-life.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-live-your-best-life/'
+original_url: 'https://selfsaid.30tools.com/how-to-live-your-best-life/'
 ---
 
 ![Woman looking out to sea](https://seffsaid.com/wp-content/uploads/how-to-live-your-best-life.webp)

@@ -7,7 +7,7 @@ description: >-
   quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Amy-Winehouse-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/amy-winehouse-quotes/'
+original_url: 'https://selfsaid.30tools.com/amy-winehouse-quotes/'
 ---
 
 ![Amy Winehouse](https://seffsaid.com/wp-content/uploads/Amy-Winehouse-Quotes.webp)

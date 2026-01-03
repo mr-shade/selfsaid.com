@@ -9,7 +9,7 @@ tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp
 original_url: >-
-  https://selfsaid.pages.dev/50-things-that-you-need-to-start-doing-for-yourself/
+  https://selfsaid.30tools.com/50-things-that-you-need-to-start-doing-for-yourself/
 ---
 
 ![Woman prioritizing her self-care by reading a book](https://seffsaid.com/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp)

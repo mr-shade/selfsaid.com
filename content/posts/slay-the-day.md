@@ -7,7 +7,7 @@ description: >-
   ensuring you slay the day, every day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/slay-the-day.webp'
-original_url: 'https://selfsaid.pages.dev/slay-the-day/'
+original_url: 'https://selfsaid.30tools.com/slay-the-day/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/slay-the-day.webp)

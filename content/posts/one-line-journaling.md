@@ -8,7 +8,7 @@ description: >-
   work for you too.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/one-line-journaling.webp'
-original_url: 'https://selfsaid.pages.dev/one-line-journaling/'
+original_url: 'https://selfsaid.30tools.com/one-line-journaling/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/one-line-journaling.webp)

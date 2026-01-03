@@ -7,7 +7,7 @@ description: >-
   expressing thanks for everything in your life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/attitude-of-gratitude.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-cultivate-an-attitude-of-gratitude/'
+original_url: 'https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/attitude-of-gratitude.webp)

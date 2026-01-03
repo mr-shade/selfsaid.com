@@ -7,7 +7,7 @@ description: >-
   unshakable Self-Discipline.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-build-self-discipline.webp'
-original_url: 'https://selfsaid.pages.dev/8-techniques-to-build-self-discipline/'
+original_url: 'https://selfsaid.30tools.com/8-techniques-to-build-self-discipline/'
 ---
 
 ![Athlete running a marathon](https://seffsaid.com/wp-content/uploads/how-to-build-self-discipline.webp)

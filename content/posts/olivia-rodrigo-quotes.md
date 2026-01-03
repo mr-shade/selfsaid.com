@@ -7,7 +7,7 @@ description: >-
   and growing up.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Olivia-Rodrigo-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/olivia-rodrigo-quotes/'
+original_url: 'https://selfsaid.30tools.com/olivia-rodrigo-quotes/'
 ---
 
 ![Olivia Rodrigo singing live in concert](https://seffsaid.com/wp-content/uploads/Olivia-Rodrigo-Quotes.webp)

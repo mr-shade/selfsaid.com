@@ -7,7 +7,7 @@ description: >-
   that feel safe, mutual, and true to who you are.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Build-Your-Tribe.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-build-your-tribe/'
+original_url: 'https://selfsaid.30tools.com/how-to-build-your-tribe/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Build-Your-Tribe.webp)

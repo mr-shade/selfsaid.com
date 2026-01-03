@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Productivity-Hacks-You-Havent-Tried.webp
-original_url: 'https://selfsaid.pages.dev/productivity-hacks/'
+original_url: 'https://selfsaid.30tools.com/productivity-hacks/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Productivity-Hacks-You-Havent-Tried.webp)

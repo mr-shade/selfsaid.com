@@ -7,7 +7,7 @@ description: >-
   more calm, intention, and clarity back into your daily routine.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-build-a-day.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-build-a-day-that-feels-more-like-you/'
+original_url: 'https://selfsaid.30tools.com/how-to-build-a-day-that-feels-more-like-you/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-build-a-day.webp)

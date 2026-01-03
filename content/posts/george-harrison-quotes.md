@@ -7,7 +7,7 @@ description: >-
   love, and everything in between.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/George-Harrison-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/george-harrison-quotes/'
+original_url: 'https://selfsaid.30tools.com/george-harrison-quotes/'
 ---
 
 ![George Harrison on stage with The Beatles](https://seffsaid.com/wp-content/uploads/George-Harrison-Quotes.webp)

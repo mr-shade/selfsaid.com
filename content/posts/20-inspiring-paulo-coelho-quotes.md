@@ -7,7 +7,7 @@ description: >-
   change your life
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Paulo-Coelho-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/20-inspiring-paulo-coelho-quotes/'
+original_url: 'https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes/'
 ---
 
 ![Paulo Coelho](https://seffsaid.com/wp-content/uploads/Paulo-Coelho-Quotes.webp)

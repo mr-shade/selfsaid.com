@@ -7,7 +7,7 @@ description: >-
   heart quotes – explore and be empowered.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/follow-your-heart-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/follow-your-heart-quotes/'
+original_url: 'https://selfsaid.30tools.com/follow-your-heart-quotes/'
 ---
 
 ![Follow Your Heart Quotes](https://seffsaid.com/wp-content/uploads/follow-your-heart-quotes.jpg)

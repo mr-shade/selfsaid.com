@@ -7,7 +7,7 @@ description: >-
   regrets.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Live-Life-Without-Regrets.webp'
-original_url: 'https://selfsaid.pages.dev/ways-to-live-life-without-regrets/'
+original_url: 'https://selfsaid.30tools.com/ways-to-live-life-without-regrets/'
 ---
 
 ![Four friends socializing outside at a bar](https://seffsaid.com/wp-content/uploads/Live-Life-Without-Regrets.webp)

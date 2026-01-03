@@ -7,7 +7,7 @@ description: >-
   of self-worth to your life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/self-love-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/self-love-quotes/'
+original_url: 'https://selfsaid.30tools.com/self-love-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-love-quotes.webp)

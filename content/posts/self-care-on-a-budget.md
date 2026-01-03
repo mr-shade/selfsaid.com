@@ -7,7 +7,7 @@ description: >-
   these budget-friendly self-care tips.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-on-a-budget.webp'
-original_url: 'https://selfsaid.pages.dev/self-care-on-a-budget/'
+original_url: 'https://selfsaid.30tools.com/self-care-on-a-budget/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-on-a-budget.webp)

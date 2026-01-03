@@ -7,7 +7,7 @@ description: >-
   decisions.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/life-decisions-guide.webp'
-original_url: 'https://selfsaid.pages.dev/life-decisions-guide/'
+original_url: 'https://selfsaid.30tools.com/life-decisions-guide/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/life-decisions-guide.webp)

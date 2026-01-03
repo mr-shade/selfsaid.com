@@ -7,7 +7,7 @@ description: >-
   quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Dolly-Parton-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/dolly-parton-quotes/'
+original_url: 'https://selfsaid.30tools.com/dolly-parton-quotes/'
 ---
 
 ![Dolly Parton live in concert](https://seffsaid.com/wp-content/uploads/Dolly-Parton-Quotes.webp)

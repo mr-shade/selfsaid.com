@@ -7,7 +7,7 @@ description: >-
   Quotes. Get both inspired and motivated today!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/arnold-schwarzenegger-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/arnold-schwarzenegger-quotes/'
+original_url: 'https://selfsaid.30tools.com/arnold-schwarzenegger-quotes/'
 ---
 
 ![Arnold Schwarzenegger Quotes](https://seffsaid.com/wp-content/uploads/arnold-schwarzenegger-quotes.jpg)

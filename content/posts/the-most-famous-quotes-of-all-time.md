@@ -7,7 +7,7 @@ description: >-
   this collection of The 96 Most Famous Quotes Of All Time
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Most-Famous-Quotes-Of-All-Time.webp'
-original_url: 'https://selfsaid.pages.dev/the-most-famous-quotes-of-all-time/'
+original_url: 'https://selfsaid.30tools.com/the-most-famous-quotes-of-all-time/'
 ---
 
 ![Camera flashes from Paparazzi](https://seffsaid.com/wp-content/uploads/Most-Famous-Quotes-Of-All-Time.webp)

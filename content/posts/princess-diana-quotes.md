@@ -7,7 +7,7 @@ description: >-
   collection of 50 of her best quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Princess-Diana-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/princess-diana-quotes/'
+original_url: 'https://selfsaid.30tools.com/princess-diana-quotes/'
 ---
 
 ![Princess Diana](https://seffsaid.com/wp-content/uploads/Princess-Diana-Quotes.webp)

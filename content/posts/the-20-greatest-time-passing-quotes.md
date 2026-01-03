@@ -7,7 +7,7 @@ description: >-
   every second count.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Time-Passing-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/the-20-greatest-time-passing-quotes/'
+original_url: 'https://selfsaid.30tools.com/the-20-greatest-time-passing-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Time-Passing-Quotes.webp)

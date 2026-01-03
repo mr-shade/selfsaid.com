@@ -7,7 +7,7 @@ description: >-
   kickstart a day filled with positivity.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/good-morning-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/inspirational-good-morning-quotes/'
+original_url: 'https://selfsaid.30tools.com/inspirational-good-morning-quotes/'
 ---
 
 ![A beautiful sunrise over a calm sea](https://seffsaid.com/wp-content/uploads/good-morning-quotes.jpg)

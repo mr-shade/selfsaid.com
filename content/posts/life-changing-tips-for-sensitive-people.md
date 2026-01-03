@@ -7,7 +7,7 @@ description: >-
   protect your energy, and embrace sensitivity as a strength.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Tips-for-Sensitive-People.webp'
-original_url: 'https://selfsaid.pages.dev/life-changing-tips-for-sensitive-people/'
+original_url: 'https://selfsaid.30tools.com/life-changing-tips-for-sensitive-people/'
 ---
 
 ![Sensitive person looking at the camera](https://seffsaid.com/wp-content/uploads/Tips-for-Sensitive-People.webp)

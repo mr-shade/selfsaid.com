@@ -7,7 +7,7 @@ description: >-
   future.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/stop-reliving-past-mistakes.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-stop-reliving-past-mistakes/'
+original_url: 'https://selfsaid.30tools.com/how-to-stop-reliving-past-mistakes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stop-reliving-past-mistakes.webp)

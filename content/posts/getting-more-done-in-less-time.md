@@ -7,7 +7,7 @@ description: >-
   shares 5 ways to get more done in less time by doing less.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/more-done.webp'
-original_url: 'https://selfsaid.pages.dev/getting-more-done-in-less-time/'
+original_url: 'https://selfsaid.30tools.com/getting-more-done-in-less-time/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/more-done.webp)

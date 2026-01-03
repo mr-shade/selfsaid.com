@@ -7,7 +7,7 @@ description: >-
   and a super productive day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/sticky-notes.webp'
-original_url: 'https://selfsaid.pages.dev/sticky-notes-we-need-to-read-every-morning/'
+original_url: 'https://selfsaid.30tools.com/sticky-notes-we-need-to-read-every-morning/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/sticky-notes.webp)

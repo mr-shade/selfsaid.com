@@ -7,7 +7,7 @@ description: >-
   move forward without burning out.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/too-much-to-do.webp'
-original_url: 'https://selfsaid.pages.dev/too-much-to-do/'
+original_url: 'https://selfsaid.30tools.com/too-much-to-do/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/too-much-to-do.webp)

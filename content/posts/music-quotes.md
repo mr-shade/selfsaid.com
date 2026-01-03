@@ -7,7 +7,7 @@ description: >-
   power to heal, connect, and uplift the human spirit.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/music-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/music-quotes/'
+original_url: 'https://selfsaid.30tools.com/music-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/music-quotes.webp)

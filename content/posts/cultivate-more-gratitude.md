@@ -5,7 +5,7 @@ author: Seff Bray
 description: Want to feel more thankful? Start with these ten powerful questions.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Cultivate-More-Gratitude.webp'
-original_url: 'https://selfsaid.pages.dev/cultivate-more-gratitude/'
+original_url: 'https://selfsaid.30tools.com/cultivate-more-gratitude/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Cultivate-More-Gratitude.webp)

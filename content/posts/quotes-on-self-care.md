@@ -7,7 +7,7 @@ description: >-
   prioritize your well-being.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Quotes-On-Self-Care.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-on-self-care/'
+original_url: 'https://selfsaid.30tools.com/quotes-on-self-care/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-On-Self-Care.webp)

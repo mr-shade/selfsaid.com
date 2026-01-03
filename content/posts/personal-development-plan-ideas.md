@@ -7,7 +7,7 @@ description: >-
   and achieve your goals.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Personal-Development-Plan-Ideas.webp'
-original_url: 'https://selfsaid.pages.dev/personal-development-plan-ideas/'
+original_url: 'https://selfsaid.30tools.com/personal-development-plan-ideas/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Personal-Development-Plan-Ideas.webp)

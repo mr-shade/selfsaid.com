@@ -7,7 +7,7 @@ description: >-
   just 7 days.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/change-your-life-in-7-days.webp'
-original_url: 'https://selfsaid.pages.dev/change-your-life-in-7-days/'
+original_url: 'https://selfsaid.30tools.com/change-your-life-in-7-days/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/change-your-life-in-7-days.webp)

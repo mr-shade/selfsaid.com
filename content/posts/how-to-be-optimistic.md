@@ -7,7 +7,7 @@ description: >-
   positivity, possibilities, and happiness.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Be-Optimistic.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-be-optimistic/'
+original_url: 'https://selfsaid.30tools.com/how-to-be-optimistic/'
 ---
 
 ![Optimistic woman smiling at the camera](https://seffsaid.com/wp-content/uploads/How-To-Be-Optimistic.webp)

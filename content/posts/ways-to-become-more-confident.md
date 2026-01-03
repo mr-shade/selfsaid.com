@@ -7,7 +7,7 @@ description: >-
   any situation.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Ways-to-Become-More-Confident.webp'
-original_url: 'https://selfsaid.pages.dev/ways-to-become-more-confident/'
+original_url: 'https://selfsaid.30tools.com/ways-to-become-more-confident/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Ways-to-Become-More-Confident.webp)

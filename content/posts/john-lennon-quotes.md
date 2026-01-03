@@ -7,7 +7,7 @@ description: >-
   peace, love, and life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/John-Lennon-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/john-lennon-quotes/'
+original_url: 'https://selfsaid.30tools.com/john-lennon-quotes/'
 ---
 
 ![John Lennon with a guitar over his shoulder walking down a deserted road.](https://seffsaid.com/wp-content/uploads/John-Lennon-Quotes.webp)

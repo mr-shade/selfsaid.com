@@ -7,7 +7,7 @@ description: >-
   into your inner warrior and tackle life's challenges head-on.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/inner-warrior.webp'
-original_url: 'https://selfsaid.pages.dev/unleashing-your-inner-warrior/'
+original_url: 'https://selfsaid.30tools.com/unleashing-your-inner-warrior/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/inner-warrior.webp)

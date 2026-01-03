@@ -7,7 +7,7 @@ description: >-
   fans and newcomers alike will find both relatable and inspiring.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/bruce-springsteen-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/bruce-springsteen-quotes/'
+original_url: 'https://selfsaid.30tools.com/bruce-springsteen-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/bruce-springsteen-quotes.webp)

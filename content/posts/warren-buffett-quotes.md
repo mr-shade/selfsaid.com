@@ -7,7 +7,7 @@ description: >-
   collection of Warren Buffett's best quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/warren-buffett-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/warren-buffett-quotes/'
+original_url: 'https://selfsaid.30tools.com/warren-buffett-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/warren-buffett-quotes.webp)

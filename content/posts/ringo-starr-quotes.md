@@ -7,7 +7,7 @@ description: >-
   quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Ringo-Starr-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/ringo-starr-quotes/'
+original_url: 'https://selfsaid.30tools.com/ringo-starr-quotes/'
 ---
 
 ![Ringo Starr on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Ringo-Starr-Quotes.webp)

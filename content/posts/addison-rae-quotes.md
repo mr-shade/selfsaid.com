@@ -7,7 +7,7 @@ description: >-
   as both a social media influencer and a public figure.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Addison-Rae-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/addison-rae-quotes/'
+original_url: 'https://selfsaid.30tools.com/addison-rae-quotes/'
 ---
 
 ![Addison Rae in concert](https://seffsaid.com/wp-content/uploads/Addison-Rae-Quotes.webp)

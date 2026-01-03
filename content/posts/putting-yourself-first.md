@@ -7,7 +7,7 @@ description: >-
   Reminders that prioritising your needs is not selfish, it’s necessary.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/putting-yourself-first.webp'
-original_url: 'https://selfsaid.pages.dev/putting-yourself-first/'
+original_url: 'https://selfsaid.30tools.com/putting-yourself-first/'
 ---
 
 ![Putting Yourself First](https://seffsaid.com/wp-content/uploads/putting-yourself-first.webp)

@@ -7,7 +7,7 @@ description: >-
   peace, balance, and self-kindness.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Things-To-Stop-Doing-To-Yourself.webp'
-original_url: 'https://selfsaid.pages.dev/10-things-to-stop-doing-to-yourself-today/'
+original_url: 'https://selfsaid.30tools.com/10-things-to-stop-doing-to-yourself-today/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Things-To-Stop-Doing-To-Yourself.webp)

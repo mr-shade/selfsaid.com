@@ -7,7 +7,7 @@ description: >-
   habits to reduce stress, restore energy, and improve well-being.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-routine.webp'
-original_url: 'https://selfsaid.pages.dev/create-a-self-care-routine-that-works/'
+original_url: 'https://selfsaid.30tools.com/create-a-self-care-routine-that-works/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-routine.webp)

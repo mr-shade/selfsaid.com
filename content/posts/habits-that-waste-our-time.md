@@ -7,7 +7,7 @@ description: >-
   habits.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/habits-that-waste-our-time.webp'
-original_url: 'https://selfsaid.pages.dev/habits-that-waste-our-time/'
+original_url: 'https://selfsaid.30tools.com/habits-that-waste-our-time/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/habits-that-waste-our-time.webp)

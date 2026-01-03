@@ -7,7 +7,7 @@ description: >-
   and start taking your first steps toward incredible success.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Motivate-Yourself-Today.webp'
-original_url: 'https://selfsaid.pages.dev/self-motivation-motivate-yourself-today/'
+original_url: 'https://selfsaid.30tools.com/self-motivation-motivate-yourself-today/'
 ---
 
 ![Motivated woman about to start a workout at the gym](https://seffsaid.com/wp-content/uploads/Motivate-Yourself-Today.webp)

@@ -7,7 +7,7 @@ description: >-
   stay patient even when faced with setbacks and obstacles
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Be-Patient-with-Your-Dreams.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-be-patient-with-your-dreams/'
+original_url: 'https://selfsaid.30tools.com/how-to-be-patient-with-your-dreams/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Be-Patient-with-Your-Dreams.webp)

@@ -7,7 +7,7 @@ description: >-
   make for your mind and body.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/reasons-to-do-nothing.webp'
-original_url: 'https://selfsaid.pages.dev/reasons-to-do-nothing/'
+original_url: 'https://selfsaid.30tools.com/reasons-to-do-nothing/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/reasons-to-do-nothing.webp)

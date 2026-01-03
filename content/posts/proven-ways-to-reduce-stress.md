@@ -7,7 +7,7 @@ description: >-
   you back feeling in control of your life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp'
-original_url: 'https://selfsaid.pages.dev/proven-ways-to-reduce-stress/'
+original_url: 'https://selfsaid.30tools.com/proven-ways-to-reduce-stress/'
 ---
 
 ![Incredibly stressed man](https://seffsaid.com/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp)

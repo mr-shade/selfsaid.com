@@ -7,7 +7,7 @@ description: >-
   yourself really means, and how to start.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Taking-Care-of-Yourself.webp'
-original_url: 'https://selfsaid.pages.dev/what-taking-care-of-yourself-really-means/'
+original_url: 'https://selfsaid.30tools.com/what-taking-care-of-yourself-really-means/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Taking-Care-of-Yourself.webp)

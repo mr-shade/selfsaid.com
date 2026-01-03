@@ -7,7 +7,7 @@ description: >-
   your stress levels plummet!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Reduce-Stress-Naturally.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-reduce-stress/'
+original_url: 'https://selfsaid.30tools.com/how-to-reduce-stress/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Reduce-Stress-Naturally.webp)

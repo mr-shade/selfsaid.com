@@ -7,7 +7,7 @@ description: >-
   warmth and connection into your life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/make-someone-happy.webp'
-original_url: 'https://selfsaid.pages.dev/16-simple-ways-to-make-someone-happy/'
+original_url: 'https://selfsaid.30tools.com/16-simple-ways-to-make-someone-happy/'
 ---
 
 ![Woman making someone happy through laughter.](https://seffsaid.com/wp-content/uploads/make-someone-happy.webp)

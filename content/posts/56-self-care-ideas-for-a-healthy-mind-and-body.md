@@ -7,7 +7,7 @@ description: >-
   habits to help you slow down, reset, and reconnect with yourself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-ideas-1.webp'
-original_url: 'https://selfsaid.pages.dev/56-self-care-ideas-for-a-healthy-mind-and-body/'
+original_url: 'https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-mind-and-body/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-ideas-1.webp)

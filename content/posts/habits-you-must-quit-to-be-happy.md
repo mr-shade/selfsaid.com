@@ -5,7 +5,7 @@ author: Seff Bray
 description: Discover the 12 habits standing between you and a truly happy life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/habits-you-must-quit-to-be-happy.webp'
-original_url: 'https://selfsaid.pages.dev/habits-you-must-quit-to-be-happy/'
+original_url: 'https://selfsaid.30tools.com/habits-you-must-quit-to-be-happy/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/habits-you-must-quit-to-be-happy.webp)

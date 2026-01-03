@@ -7,7 +7,7 @@ description: >-
   reminders to pause, let go, and return to yourself at your own pace.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Buddha-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/buddha-quotes/'
+original_url: 'https://selfsaid.30tools.com/buddha-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Buddha-Quotes.webp)

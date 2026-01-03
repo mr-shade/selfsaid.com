@@ -7,7 +7,7 @@ description: >-
   effective techniques that anyone can use.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/discover-your-inner-wisdom.webp'
-original_url: 'https://selfsaid.pages.dev/discover-your-inner-wisdom/'
+original_url: 'https://selfsaid.30tools.com/discover-your-inner-wisdom/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/discover-your-inner-wisdom.webp)

@@ -7,7 +7,7 @@ description: >-
   to more peace, purpose, and gratitude in the years ahead.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/key-decisions.webp'
-original_url: 'https://selfsaid.pages.dev/key-decisions/'
+original_url: 'https://selfsaid.30tools.com/key-decisions/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/key-decisions.webp)

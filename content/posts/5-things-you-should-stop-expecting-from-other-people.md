@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Stop-Expecting.webp'
 original_url: >-
-  https://selfsaid.pages.dev/5-things-you-should-stop-expecting-from-other-people/
+  https://selfsaid.30tools.com/5-things-you-should-stop-expecting-from-other-people/
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Stop-Expecting.webp)

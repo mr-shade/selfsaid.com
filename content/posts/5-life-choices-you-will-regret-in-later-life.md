@@ -7,7 +7,7 @@ description: >-
   without regrets, steer clear of these five common life choices.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Life-Choices-You-Will-Regret.webp'
-original_url: 'https://selfsaid.pages.dev/5-life-choices-you-will-regret-in-later-life/'
+original_url: 'https://selfsaid.30tools.com/5-life-choices-you-will-regret-in-later-life/'
 ---
 
 ![An old man looking back on his life with regret.](https://seffsaid.com/wp-content/uploads/Life-Choices-You-Will-Regret.webp)

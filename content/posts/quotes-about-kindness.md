@@ -7,7 +7,7 @@ description: >-
   impact of kindness in our lives.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-kindness-600x333-1.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-about-kindness/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-kindness/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-kindness-600x333-1.webp)

@@ -7,7 +7,7 @@ description: >-
   Thoughtful reminders to bring peace, presence, and clarity to your days.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/simple-living-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/simple-living-quotes/'
+original_url: 'https://selfsaid.30tools.com/simple-living-quotes/'
 ---
 
 ![Simple Living Quotes](https://seffsaid.com/wp-content/uploads/simple-living-quotes.webp)

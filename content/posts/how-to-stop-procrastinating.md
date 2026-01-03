@@ -7,7 +7,7 @@ description: >-
   and skyrocket your productivity.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-stop-procrastinating/'
+original_url: 'https://selfsaid.30tools.com/how-to-stop-procrastinating/'
 ---
 
 ![An office worker busy working on a computer](https://seffsaid.com/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp)

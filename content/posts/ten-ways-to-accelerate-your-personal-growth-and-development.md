@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Accelerate-Your-Personal-Growth.webp'
 original_url: >-
-  https://selfsaid.pages.dev/ten-ways-to-accelerate-your-personal-growth-and-development/
+  https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development/
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Accelerate-Your-Personal-Growth.webp)

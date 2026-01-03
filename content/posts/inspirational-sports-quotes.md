@@ -7,7 +7,7 @@ description: >-
   soaking in the timeless wisdom from legendary sports heroes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Inspirational-Sports-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/inspirational-sports-quotes/'
+original_url: 'https://selfsaid.30tools.com/inspirational-sports-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Inspirational-Sports-Quotes.webp)

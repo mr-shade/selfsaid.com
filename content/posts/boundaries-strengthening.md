@@ -7,7 +7,7 @@ description: >-
   time to set firmer boundaries.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/boundaries-strengthening.webp'
-original_url: 'https://selfsaid.pages.dev/boundaries-strengthening/'
+original_url: 'https://selfsaid.30tools.com/boundaries-strengthening/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/boundaries-strengthening.webp)

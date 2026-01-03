@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/increase-productivity-in-the-workplace.webp
-original_url: 'https://selfsaid.pages.dev/29-tips-to-increase-productivity-at-work/'
+original_url: 'https://selfsaid.30tools.com/29-tips-to-increase-productivity-at-work/'
 ---
 
 ![A busy office full of productive people](https://seffsaid.com/wp-content/uploads/increase-productivity-in-the-workplace.webp)

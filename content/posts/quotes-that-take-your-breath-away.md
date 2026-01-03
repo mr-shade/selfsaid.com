@@ -7,7 +7,7 @@ description: >-
   your breath away.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Quotes-That-Take-Your-Breath-Away.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-that-take-your-breath-away/'
+original_url: 'https://selfsaid.30tools.com/quotes-that-take-your-breath-away/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-That-Take-Your-Breath-Away.webp)

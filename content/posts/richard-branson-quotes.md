@@ -7,7 +7,7 @@ description: >-
   risk-taking, and life in general.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/richard-branson-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/richard-branson-quotes/'
+original_url: 'https://selfsaid.30tools.com/richard-branson-quotes/'
 ---
 
 ![Richard Branson walking along a desert road](https://seffsaid.com/wp-content/uploads/richard-branson-quotes.webp)

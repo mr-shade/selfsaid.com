@@ -7,7 +7,7 @@ description: >-
   soon leave you questioning their meaning.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-make-no-sense.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-that-make-no-sense/'
+original_url: 'https://selfsaid.30tools.com/quotes-that-make-no-sense/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-make-no-sense.webp)

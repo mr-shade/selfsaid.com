@@ -7,7 +7,7 @@ description: >-
   Discover a new appreciation for your daily life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Privileges-Thankful.webp'
-original_url: 'https://selfsaid.pages.dev/privileges-we-forget-to-be-thankful-for/'
+original_url: 'https://selfsaid.30tools.com/privileges-we-forget-to-be-thankful-for/'
 ---
 
 ![Woman walking through a meadow on a beautiful summer day](https://seffsaid.com/wp-content/uploads/Privileges-Thankful.webp)

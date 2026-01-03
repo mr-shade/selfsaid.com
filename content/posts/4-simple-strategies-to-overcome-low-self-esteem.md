@@ -7,7 +7,7 @@ description: >-
   offers practical advice and strategies to boost your confidence.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/overcoming-low-self-esteem.jpg'
-original_url: 'https://selfsaid.pages.dev/4-simple-strategies-to-overcome-low-self-esteem/'
+original_url: 'https://selfsaid.30tools.com/4-simple-strategies-to-overcome-low-self-esteem/'
 ---
 
 ![Overcoming Low Self-Esteem](https://seffsaid.com/wp-content/uploads/overcoming-low-self-esteem.jpg)

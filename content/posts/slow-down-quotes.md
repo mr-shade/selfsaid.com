@@ -8,7 +8,7 @@ description: >-
   pace.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/slow-down-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/slow-down-quotes/'
+original_url: 'https://selfsaid.30tools.com/slow-down-quotes/'
 ---
 
 ![Slow Down Quotes for a Calmer Day](https://seffsaid.com/wp-content/uploads/slow-down-quotes.webp)

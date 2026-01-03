@@ -7,7 +7,7 @@ description: >-
   effective ways on how to fall asleep fast.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Fall-Asleep-Fast.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-fall-asleep-fast/'
+original_url: 'https://selfsaid.30tools.com/how-to-fall-asleep-fast/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Fall-Asleep-Fast.webp)

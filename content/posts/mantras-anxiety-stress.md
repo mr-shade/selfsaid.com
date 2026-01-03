@@ -8,7 +8,7 @@ description: >-
   into your day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/mantras-anxiety-stress.webp'
-original_url: 'https://selfsaid.pages.dev/mantras-anxiety-stress/'
+original_url: 'https://selfsaid.30tools.com/mantras-anxiety-stress/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/mantras-anxiety-stress.webp)

@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/things-you-will-never-regret-doing.webp
-original_url: 'https://selfsaid.pages.dev/7-things-youll-never-regret-doing/'
+original_url: 'https://selfsaid.30tools.com/7-things-youll-never-regret-doing/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/things-you-will-never-regret-doing.webp)

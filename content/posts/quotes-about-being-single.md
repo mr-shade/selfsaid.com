@@ -7,7 +7,7 @@ description: >-
   strength and freedom of embracing life on your own terms.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-being-single.jpg'
-original_url: 'https://selfsaid.pages.dev/quotes-about-being-single/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-being-single/'
 ---
 
 ![Quotes About Being Single](https://seffsaid.com/wp-content/uploads/quotes-about-being-single.jpg)

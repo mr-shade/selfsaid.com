@@ -7,7 +7,7 @@ description: >-
   unwind and find calm.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/tired-but-wired-switch-off.webp'
-original_url: 'https://selfsaid.pages.dev/tired-but-wired-switch-off/'
+original_url: 'https://selfsaid.30tools.com/tired-but-wired-switch-off/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/tired-but-wired-switch-off.webp)

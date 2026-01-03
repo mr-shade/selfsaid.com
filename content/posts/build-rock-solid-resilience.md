@@ -7,7 +7,7 @@ description: >-
   stay focused and confident in any situation.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/build-rock-solid-resilience.webp'
-original_url: 'https://selfsaid.pages.dev/build-rock-solid-resilience/'
+original_url: 'https://selfsaid.30tools.com/build-rock-solid-resilience/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/build-rock-solid-resilience.webp)

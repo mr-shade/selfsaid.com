@@ -7,7 +7,7 @@ description: >-
   when you feel overlooked, undervalued, or unsure of yourself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/know-your-worth-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/know-your-worth-quotes/'
+original_url: 'https://selfsaid.30tools.com/know-your-worth-quotes/'
 ---
 
 ![Quotes About Knowing Your Worth](https://seffsaid.com/wp-content/uploads/know-your-worth-quotes.webp)

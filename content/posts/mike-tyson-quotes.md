@@ -7,7 +7,7 @@ description: >-
   legend.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Mike-Tyson-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/mike-tyson-quotes/'
+original_url: 'https://selfsaid.30tools.com/mike-tyson-quotes/'
 ---
 
 ![Mike Tyson in a boxing ring fighting his opponent](https://seffsaid.com/wp-content/uploads/Mike-Tyson-Quotes.webp)

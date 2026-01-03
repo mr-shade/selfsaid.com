@@ -7,7 +7,7 @@ description: >-
   better define your personal boundaries.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Define-Your-Boundaries.webp'
-original_url: 'https://selfsaid.pages.dev/define-your-boundaries/'
+original_url: 'https://selfsaid.30tools.com/define-your-boundaries/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Define-Your-Boundaries.webp)

@@ -7,7 +7,7 @@ description: >-
   reinvent yourself and transform your life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Reinvent-Yourself.webp'
-original_url: 'https://selfsaid.pages.dev/reinvent-yourself/'
+original_url: 'https://selfsaid.30tools.com/reinvent-yourself/'
 ---
 
 ![Happy smiling man walking down a busy street](https://seffsaid.com/wp-content/uploads/Reinvent-Yourself.webp)

@@ -7,7 +7,7 @@ description: >-
   feel more at ease and they might help you too.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/craving-calm.webp'
-original_url: 'https://selfsaid.pages.dev/craving-calm-what-finally-worked/'
+original_url: 'https://selfsaid.30tools.com/craving-calm-what-finally-worked/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/craving-calm.webp)

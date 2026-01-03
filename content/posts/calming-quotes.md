@@ -7,7 +7,7 @@ description: >-
   feels too much. Reminders to slow down, breathe, and take care of your peace.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/calming-quotes-600x300-1.webp'
-original_url: 'https://selfsaid.pages.dev/calming-quotes/'
+original_url: 'https://selfsaid.30tools.com/calming-quotes/'
 ---
 
 ![Calming Quotes](https://seffsaid.com/wp-content/uploads/calming-quotes-600x300-1.webp)

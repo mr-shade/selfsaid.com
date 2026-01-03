@@ -5,7 +5,7 @@ export const dynamic = 'force-static'
 
 export default function sitemap(): MetadataRoute.Sitemap {
     const posts = getAllPosts()
-    const baseUrl = 'https://selfsaid.pages.dev' // Using the production domain as canonical
+    const baseUrl = 'https://selfsaid.30tools.com' // Using the production domain as canonical
 
     const postEntries = posts.map((post) => ({
         url: `${baseUrl}/${post.slug}`,

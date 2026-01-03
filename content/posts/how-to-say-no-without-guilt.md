@@ -8,7 +8,7 @@ description: >-
   energy.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/learned-to-say-no.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-say-no-without-guilt/'
+original_url: 'https://selfsaid.30tools.com/how-to-say-no-without-guilt/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/learned-to-say-no.webp)

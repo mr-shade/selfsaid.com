@@ -7,7 +7,7 @@ description: >-
   way you think.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/deep-quotes-about-life.webp'
-original_url: 'https://selfsaid.pages.dev/deep-quotes-about-life/'
+original_url: 'https://selfsaid.30tools.com/deep-quotes-about-life/'
 ---
 
 ![Man looking into space pondering the deep questions in life](https://seffsaid.com/wp-content/uploads/deep-quotes-about-life.webp)

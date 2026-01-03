@@ -6,7 +6,7 @@ description: Mindset Is What Separates The Best From The Rest
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Mindset-is-what-separates-the-best-from-the-rest.jpg
-original_url: 'https://selfsaid.pages.dev/mindset-is-what-separates-the-best-from-the-rest/'
+original_url: 'https://selfsaid.30tools.com/mindset-is-what-separates-the-best-from-the-rest/'
 ---
 
 ![Mindset is what separates the best from the rest](https://seffsaid.com/wp-content/uploads/Mindset-is-what-separates-the-best-from-the-rest.jpg)

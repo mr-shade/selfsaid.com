@@ -7,7 +7,7 @@ description: >-
   feeling overwhelmed, anxious, or low.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/mental-health-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/mental-health-quotes/'
+original_url: 'https://selfsaid.30tools.com/mental-health-quotes/'
 ---
 
 ![Mental Health Quotes That Actually Help](https://seffsaid.com/wp-content/uploads/mental-health-quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   set healthy boundaries, and build self-compassion every day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/kind-to-self.jpg'
-original_url: 'https://selfsaid.pages.dev/ways-to-be-kinder-to-yourself/'
+original_url: 'https://selfsaid.30tools.com/ways-to-be-kinder-to-yourself/'
 ---
 
 ![Man sitting on a beautiful beach relaxing.](https://seffsaid.com/wp-content/uploads/kind-to-self.jpg)

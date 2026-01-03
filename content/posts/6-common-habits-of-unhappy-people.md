@@ -5,7 +5,7 @@ author: Seff Bray
 description: Uncover the six common habits that could be sabotaging your happiness.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Habits-Of-Unhappy-People.webp'
-original_url: 'https://selfsaid.pages.dev/6-common-habits-of-unhappy-people/'
+original_url: 'https://selfsaid.30tools.com/6-common-habits-of-unhappy-people/'
 ---
 
 ![Unhappy woman looking at the camera](https://seffsaid.com/wp-content/uploads/Habits-Of-Unhappy-People.webp)

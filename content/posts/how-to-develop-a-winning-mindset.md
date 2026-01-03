@@ -7,7 +7,7 @@ description: >-
   goals but also transform your entire approach to life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Develop-A-Winning-Mindset.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-develop-a-winning-mindset/'
+original_url: 'https://selfsaid.30tools.com/how-to-develop-a-winning-mindset/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Develop-A-Winning-Mindset.webp)

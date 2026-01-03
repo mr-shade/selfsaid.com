@@ -7,7 +7,7 @@ description: >-
   appreciation and enjoyment of life and make you a much happier person.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-be-happy.webp'
-original_url: 'https://selfsaid.pages.dev/7-ways-to-be-a-happier-person/'
+original_url: 'https://selfsaid.30tools.com/7-ways-to-be-a-happier-person/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-be-happy.webp)

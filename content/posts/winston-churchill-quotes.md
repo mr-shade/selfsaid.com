@@ -7,7 +7,7 @@ description: >-
   collection of Winston Churchill's 90 most memorable quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/winston-churchill.webp'
-original_url: 'https://selfsaid.pages.dev/winston-churchill-quotes/'
+original_url: 'https://selfsaid.30tools.com/winston-churchill-quotes/'
 ---
 
 ![Winston Churchill](https://seffsaid.com/wp-content/uploads/winston-churchill.webp)

@@ -7,7 +7,7 @@ description: >-
   positivity and inspiration into your life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/SEFFSAID-Dream-Big.webp'
-original_url: 'https://selfsaid.pages.dev/printable-quotes/'
+original_url: 'https://selfsaid.30tools.com/printable-quotes/'
 ---
 
 # Printable Quotes

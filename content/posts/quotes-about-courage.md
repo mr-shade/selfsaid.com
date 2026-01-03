@@ -7,7 +7,7 @@ description: >-
   facing life's challenges.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Quotes-About-Courage.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-about-courage/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-courage/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-About-Courage.webp)

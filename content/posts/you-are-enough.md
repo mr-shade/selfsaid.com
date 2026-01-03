@@ -7,7 +7,7 @@ description: >-
   printable quote available for instant download.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/SEFFSAID-YouAreEnough-800x800-1.webp'
-original_url: 'https://selfsaid.pages.dev/you-are-enough/'
+original_url: 'https://selfsaid.30tools.com/you-are-enough/'
 ---
 
 All [Printable Quotes](/printable-quotes)

@@ -7,7 +7,7 @@ description: >-
   your well-being a world of good.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Signs-Time-To-Change-Your-Mindset.webp'
-original_url: 'https://selfsaid.pages.dev/seven-signs-that-its-time-to-change-your-mindset/'
+original_url: 'https://selfsaid.30tools.com/seven-signs-that-its-time-to-change-your-mindset/'
 ---
 
 ![Man coming to the realisation that it's time to change his mindset](https://seffsaid.com/wp-content/uploads/Signs-Time-To-Change-Your-Mindset.webp)

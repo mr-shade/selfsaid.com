@@ -7,7 +7,7 @@ description: >-
   your life forever.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/mindsets-for-success.webp'
-original_url: 'https://selfsaid.pages.dev/mindsets-for-success/'
+original_url: 'https://selfsaid.30tools.com/mindsets-for-success/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/mindsets-for-success.webp)

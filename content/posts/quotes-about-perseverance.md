@@ -7,7 +7,7 @@ description: >-
   will encourage you to keep pushing forward and never give up.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-perseverance.jpg'
-original_url: 'https://selfsaid.pages.dev/quotes-about-perseverance/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-perseverance/'
 ---
 
 ![Quotes About Perseverance](https://seffsaid.com/wp-content/uploads/quotes-about-perseverance.jpg)

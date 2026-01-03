@@ -7,7 +7,7 @@ description: >-
   perspective for whatever lies ahead.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/wise-quotes-about-life-1.jpg'
-original_url: 'https://selfsaid.pages.dev/wise-quotes-about-life/'
+original_url: 'https://selfsaid.30tools.com/wise-quotes-about-life/'
 ---
 
 ![Wise Quotes About Life](https://seffsaid.com/wp-content/uploads/wise-quotes-about-life-1.jpg)

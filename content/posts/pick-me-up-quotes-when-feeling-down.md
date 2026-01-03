@@ -7,7 +7,7 @@ description: >-
   soft encouragement, and emotional care for heavy days.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/pick-me-up-quotes-webp.webp'
-original_url: 'https://selfsaid.pages.dev/pick-me-up-quotes-when-feeling-down/'
+original_url: 'https://selfsaid.30tools.com/pick-me-up-quotes-when-feeling-down/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/pick-me-up-quotes-webp.webp)

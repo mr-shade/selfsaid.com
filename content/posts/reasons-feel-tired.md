@@ -10,7 +10,7 @@ description: >-
   again.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Reasons-You-Might-Feel-Tired.webp'
-original_url: 'https://selfsaid.pages.dev/reasons-feel-tired/'
+original_url: 'https://selfsaid.30tools.com/reasons-feel-tired/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Reasons-You-Might-Feel-Tired.webp)

@@ -7,7 +7,7 @@ description: >-
   more positive mindset.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/inspirational-quotes-about-life.webp'
-original_url: 'https://selfsaid.pages.dev/best-inspirational-life-quotes-of-all-time/'
+original_url: 'https://selfsaid.30tools.com/best-inspirational-life-quotes-of-all-time/'
 ---
 
 ![Woman sitting by a lake thinking about life](https://seffsaid.com/wp-content/uploads/inspirational-quotes-about-life.webp)

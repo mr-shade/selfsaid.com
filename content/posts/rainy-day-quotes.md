@@ -7,7 +7,7 @@ description: >-
   the rainiest of days.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/rainy-day-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/rainy-day-quotes/'
+original_url: 'https://selfsaid.30tools.com/rainy-day-quotes/'
 ---
 
 ![Rainy Day Quotes to Uplift Your Spirits](https://seffsaid.com/wp-content/uploads/rainy-day-quotes.jpg)

@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Choices-Your-Future-Self-Will-Thank-You-For.webp
-original_url: 'https://selfsaid.pages.dev/future-self/'
+original_url: 'https://selfsaid.30tools.com/future-self/'
 ---
 
 ![Older man happy about his life choices](https://seffsaid.com/wp-content/uploads/Choices-Your-Future-Self-Will-Thank-You-For.webp)

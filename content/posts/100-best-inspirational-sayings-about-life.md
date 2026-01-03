@@ -7,7 +7,7 @@ description: >-
   positively transform your mindset.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Inspirational-Sayings-About-Life.webp'
-original_url: 'https://selfsaid.pages.dev/100-best-inspirational-sayings-about-life/'
+original_url: 'https://selfsaid.30tools.com/100-best-inspirational-sayings-about-life/'
 ---
 
 ![A beautiful inspirational sunset at sea](https://seffsaid.com/wp-content/uploads/Inspirational-Sayings-About-Life.webp)

@@ -8,7 +8,7 @@ description: >-
   grounded.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/everyday-stress-hacks.webp'
-original_url: 'https://selfsaid.pages.dev/stress-hacks/'
+original_url: 'https://selfsaid.30tools.com/stress-hacks/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/everyday-stress-hacks.webp)

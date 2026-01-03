@@ -7,7 +7,7 @@ description: >-
   calm, energy, and joy in everyday life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Ways-to-Make-Today-a-Great-Day.webp'
-original_url: 'https://selfsaid.pages.dev/ways-to-make-today-a-great-day/'
+original_url: 'https://selfsaid.30tools.com/ways-to-make-today-a-great-day/'
 ---
 
 ![Woman having a great day walking along a cliff top by the sea](https://seffsaid.com/wp-content/uploads/Ways-to-Make-Today-a-Great-Day.webp)

@@ -5,7 +5,7 @@ author: "Seff Bray"
 description: "Here are a few ways to cope with lockdown, this enforced me-time, and some ideas on how to make the most of it, perhaps even enjoy it."
 tags: []
 featured_image: ""
-original_url: "https://selfsaid.pages.dev/5-ways-to-cope-with-lockdown/"
+original_url: "https://selfsaid.30tools.com/5-ways-to-cope-with-lockdown/"
 ---
 
 The Covid-19 (or novel coronavirus) pandemic is having immeasurable effects on the world at large and on us all as individuals. Many of us have chosen or been forced into isolation of varying degrees and this, at the time of writing, is having many effects on our mental health.

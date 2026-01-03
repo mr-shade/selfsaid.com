@@ -7,7 +7,7 @@ description: >-
   enormous meaning.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Finding-Meaning-In-The-Mundane.webp'
-original_url: 'https://selfsaid.pages.dev/finding-meaning-in-the-mundane/'
+original_url: 'https://selfsaid.30tools.com/finding-meaning-in-the-mundane/'
 ---
 
 ![Man at work bored with his mundane lifestyle](https://seffsaid.com/wp-content/uploads/Finding-Meaning-In-The-Mundane.webp)

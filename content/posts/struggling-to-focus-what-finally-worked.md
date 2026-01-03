@@ -7,7 +7,7 @@ description: >-
   finally helped me to get things done.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/struggling-to-focus.webp'
-original_url: 'https://selfsaid.pages.dev/struggling-to-focus-what-finally-worked/'
+original_url: 'https://selfsaid.30tools.com/struggling-to-focus-what-finally-worked/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/struggling-to-focus.webp)

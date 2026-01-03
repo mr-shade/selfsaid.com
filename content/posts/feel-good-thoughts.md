@@ -7,7 +7,7 @@ description: >-
   bring comfort, calm, and perspective when life feels heavy.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/feel-good-thoughts.webp'
-original_url: 'https://selfsaid.pages.dev/feel-good-thoughts/'
+original_url: 'https://selfsaid.30tools.com/feel-good-thoughts/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/feel-good-thoughts.webp)

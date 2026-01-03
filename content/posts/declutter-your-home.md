@@ -7,7 +7,7 @@ description: >-
   guide.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/declutter-your-home.webp'
-original_url: 'https://selfsaid.pages.dev/declutter-your-home/'
+original_url: 'https://selfsaid.30tools.com/declutter-your-home/'
 ---
 
 ![A minimalist room free of clutter.](https://seffsaid.com/wp-content/uploads/declutter-your-home.webp)

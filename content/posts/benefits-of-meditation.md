@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/science-based-benefits-of-meditation.webp
-original_url: 'https://selfsaid.pages.dev/benefits-of-meditation/'
+original_url: 'https://selfsaid.30tools.com/benefits-of-meditation/'
 ---
 
 ![Woman meditating at sea on a luxury yacht](https://seffsaid.com/wp-content/uploads/science-based-benefits-of-meditation.webp)

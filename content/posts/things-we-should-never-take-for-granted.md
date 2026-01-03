@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Things-We-Should-Never-Take-for-Granted.webp
-original_url: 'https://selfsaid.pages.dev/things-we-should-never-take-for-granted/'
+original_url: 'https://selfsaid.30tools.com/things-we-should-never-take-for-granted/'
 ---
 
 ![Happy couple walking on a beautiful beach holding hands.](https://seffsaid.com/wp-content/uploads/Things-We-Should-Never-Take-for-Granted.webp)

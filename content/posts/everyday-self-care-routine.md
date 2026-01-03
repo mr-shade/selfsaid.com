@@ -8,7 +8,7 @@ description: >-
   feel better.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Everyday-Self-Care-Routine-webp.webp'
-original_url: 'https://selfsaid.pages.dev/everyday-self-care-routine/'
+original_url: 'https://selfsaid.30tools.com/everyday-self-care-routine/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Everyday-Self-Care-Routine-webp.webp)

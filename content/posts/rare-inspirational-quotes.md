@@ -7,7 +7,7 @@ description: >-
   that you've probably never heard before.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/rare-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/rare-inspirational-quotes/'
+original_url: 'https://selfsaid.30tools.com/rare-inspirational-quotes/'
 ---
 
 ![Rare Quotes You've Probably Never Heard Before](https://seffsaid.com/wp-content/uploads/rare-quotes.jpg)

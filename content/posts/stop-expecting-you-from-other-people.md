@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Stop-expecting-you-from-other-people.jpg
-original_url: 'https://selfsaid.pages.dev/stop-expecting-you-from-other-people/'
+original_url: 'https://selfsaid.30tools.com/stop-expecting-you-from-other-people/'
 ---
 
 How often do you look for yourself in other people? Rarely? In a few people? Literally every single soul you meet?

@@ -7,7 +7,7 @@ description: >-
   character in the Kung Fu Panda TV series.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Master-Oogway-Quotes2.webp'
-original_url: 'https://selfsaid.pages.dev/master-oogway-quotes/'
+original_url: 'https://selfsaid.30tools.com/master-oogway-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Master-Oogway-Quotes2.webp)

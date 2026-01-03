@@ -8,7 +8,7 @@ description: >-
   overall health.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Benefits-Of-Good-Oral-Hygiene.webp'
-original_url: 'https://selfsaid.pages.dev/benefits-of-good-oral-hygiene/'
+original_url: 'https://selfsaid.30tools.com/benefits-of-good-oral-hygiene/'
 ---
 
 ![Woman smiling](https://seffsaid.com/wp-content/uploads/Benefits-Of-Good-Oral-Hygiene.webp)

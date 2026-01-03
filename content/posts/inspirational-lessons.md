@@ -7,7 +7,7 @@ description: >-
   apart and allow them to achieve extraordinary results.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Inspirational-Lessons-600.webp'
-original_url: 'https://selfsaid.pages.dev/inspirational-lessons/'
+original_url: 'https://selfsaid.30tools.com/inspirational-lessons/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Inspirational-Lessons-600.webp)

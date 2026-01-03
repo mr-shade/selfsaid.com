@@ -7,7 +7,7 @@ description: >-
   growth, kindness, and relationships.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/harry-styles-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/harry-styles-quotes/'
+original_url: 'https://selfsaid.30tools.com/harry-styles-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/harry-styles-quotes.webp)

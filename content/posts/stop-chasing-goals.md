@@ -7,7 +7,7 @@ description: >-
   outcomes and started living with intention instead.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/stop-chasing-goals.webp'
-original_url: 'https://selfsaid.pages.dev/stop-chasing-goals/'
+original_url: 'https://selfsaid.30tools.com/stop-chasing-goals/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stop-chasing-goals.webp)

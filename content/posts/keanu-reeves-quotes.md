@@ -7,7 +7,7 @@ description: >-
   and unique outlook on life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/keanu-reeves-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/keanu-reeves-quotes/'
+original_url: 'https://selfsaid.30tools.com/keanu-reeves-quotes/'
 ---
 
 ![Keanu Reeves dressed as John Wick](https://seffsaid.com/wp-content/uploads/keanu-reeves-quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   Washington quotes, and allow their timeless wisdom to inspire you.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/George-Washington-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/george-washington-quotes/'
+original_url: 'https://selfsaid.30tools.com/george-washington-quotes/'
 ---
 
 ![86 George Washington Quotes on Leadership, Liberty, and Life](https://seffsaid.com/wp-content/uploads/George-Washington-quotes.jpg)

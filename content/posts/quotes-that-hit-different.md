@@ -7,7 +7,7 @@ description: >-
   Here are 50 powerful quotes that hit different.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-hit-different.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-that-hit-different/'
+original_url: 'https://selfsaid.30tools.com/quotes-that-hit-different/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-hit-different.webp)

@@ -7,7 +7,7 @@ description: >-
   quote - Always keep a positive mindset.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Always-keep-a-positive-mindset.jpg'
-original_url: 'https://selfsaid.pages.dev/always-keep-a-positive-mindset/'
+original_url: 'https://selfsaid.30tools.com/always-keep-a-positive-mindset/'
 ---
 
 ![Always Keep A Positive Mindset](https://seffsaid.com/wp-content/uploads/Always-keep-a-positive-mindset.jpg)

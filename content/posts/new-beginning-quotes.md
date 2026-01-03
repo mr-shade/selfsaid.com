@@ -7,7 +7,7 @@ description: >-
   Quotes about starting over.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/new-beginning-quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/new-beginning-quotes/'
+original_url: 'https://selfsaid.30tools.com/new-beginning-quotes/'
 ---
 
 ![New Beginning Quotes About Starting Over](https://seffsaid.com/wp-content/uploads/new-beginning-quotes.jpg)

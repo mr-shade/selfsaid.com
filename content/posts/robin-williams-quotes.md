@@ -7,7 +7,7 @@ description: >-
   unforgettable quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/robin-williams-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/robin-williams-quotes/'
+original_url: 'https://selfsaid.30tools.com/robin-williams-quotes/'
 ---
 
 ![Robin Williams on stage](https://seffsaid.com/wp-content/uploads/robin-williams-quotes.webp)

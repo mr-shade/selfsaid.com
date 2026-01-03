@@ -7,7 +7,7 @@ description: >-
   quotes and sayings.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Maya-Angelou-Quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/maya-angelou-quotes/'
+original_url: 'https://selfsaid.30tools.com/maya-angelou-quotes/'
 ---
 
 ![Maya Angelou Quotes And Sayings](https://seffsaid.com/wp-content/uploads/Maya-Angelou-Quotes.jpg)

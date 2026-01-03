@@ -7,7 +7,7 @@ description: >-
   signs will help you recognize them.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Better-Care-Signs.webp'
-original_url: 'https://selfsaid.pages.dev/better-care-signs/'
+original_url: 'https://selfsaid.30tools.com/better-care-signs/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Better-Care-Signs.webp)

@@ -8,7 +8,7 @@ description: >-
   matters.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Live-A-Simple-Life.webp'
-original_url: 'https://selfsaid.pages.dev/simple-living-how-to-live-a-simple-life/'
+original_url: 'https://selfsaid.30tools.com/simple-living-how-to-live-a-simple-life/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Live-A-Simple-Life.webp)

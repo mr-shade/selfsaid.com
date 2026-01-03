@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/why-taking-breaks-is-part-of-the-work.webp
-original_url: 'https://selfsaid.pages.dev/why-taking-breaks-is-part-of-the-work/'
+original_url: 'https://selfsaid.30tools.com/why-taking-breaks-is-part-of-the-work/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/why-taking-breaks-is-part-of-the-work.webp)

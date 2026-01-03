@@ -7,7 +7,7 @@ description: >-
   grounded words to encourage quiet confidence and honest hope.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/dream-big-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/dream-big-quotes/'
+original_url: 'https://selfsaid.30tools.com/dream-big-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/dream-big-quotes.webp)

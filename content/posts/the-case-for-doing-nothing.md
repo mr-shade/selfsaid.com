@@ -8,7 +8,7 @@ description: >-
   I now protect it.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Case-for-Doing-Nothing.webp'
-original_url: 'https://selfsaid.pages.dev/the-case-for-doing-nothing/'
+original_url: 'https://selfsaid.30tools.com/the-case-for-doing-nothing/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Case-for-Doing-Nothing.webp)

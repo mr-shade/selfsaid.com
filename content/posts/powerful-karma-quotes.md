@@ -7,7 +7,7 @@ description: >-
   you to live your very best life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/karma-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/powerful-karma-quotes/'
+original_url: 'https://selfsaid.30tools.com/powerful-karma-quotes/'
 ---
 
 ![Statue of Buddha symbolizing Karma](https://seffsaid.com/wp-content/uploads/karma-quotes.webp)

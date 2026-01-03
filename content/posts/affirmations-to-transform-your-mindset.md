@@ -7,7 +7,7 @@ description: >-
   and empower your thinking.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/affirmations-mindset.webp'
-original_url: 'https://selfsaid.pages.dev/affirmations-to-transform-your-mindset/'
+original_url: 'https://selfsaid.30tools.com/affirmations-to-transform-your-mindset/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/affirmations-mindset.webp)

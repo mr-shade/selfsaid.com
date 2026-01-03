@@ -7,7 +7,7 @@ description: >-
   quotes on life, love and music.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Billie-Eilish-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/billie-eilish-quotes/'
+original_url: 'https://selfsaid.30tools.com/billie-eilish-quotes/'
 ---
 
 ![Billie Eilish live on stage](https://seffsaid.com/wp-content/uploads/Billie-Eilish-Quotes.webp)

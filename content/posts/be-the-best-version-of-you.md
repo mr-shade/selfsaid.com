@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/Be-The-Best-Version-Of-You-800x800-1.webp
-original_url: 'https://selfsaid.pages.dev/be-the-best-version-of-you/'
+original_url: 'https://selfsaid.30tools.com/be-the-best-version-of-you/'
 ---
 
 All [Printable Quotes](/printable-quotes)

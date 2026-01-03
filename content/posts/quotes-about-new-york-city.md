@@ -7,7 +7,7 @@ description: >-
   landmarks, and vibrant energy to life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/New-York-City-webp.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-about-new-york-city/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-new-york-city/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/New-York-City-webp.webp)

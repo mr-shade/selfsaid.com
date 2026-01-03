@@ -7,7 +7,7 @@ description: >-
   simple, effective strategies every day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/how-to-make-good-things-happen.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-make-good-things-happen/'
+original_url: 'https://selfsaid.30tools.com/how-to-make-good-things-happen/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-make-good-things-happen.webp)

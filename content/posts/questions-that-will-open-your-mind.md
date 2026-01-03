@@ -7,7 +7,7 @@ description: >-
   clarity.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Questions-Open-Mind.webp'
-original_url: 'https://selfsaid.pages.dev/questions-that-will-open-your-mind/'
+original_url: 'https://selfsaid.30tools.com/questions-that-will-open-your-mind/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Questions-Open-Mind.webp)

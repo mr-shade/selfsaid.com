@@ -7,7 +7,7 @@ description: >-
   50 best quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Elon-Musk-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/elon-musk-quotes/'
+original_url: 'https://selfsaid.30tools.com/elon-musk-quotes/'
 ---
 
 ![Elon Musk](https://seffsaid.com/wp-content/uploads/Elon-Musk-Quotes.webp)

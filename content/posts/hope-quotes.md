@@ -7,7 +7,7 @@ description: >-
   inspire you to look toward a brighter tomorrow with renewed optimism.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/hope-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/hope-quotes/'
+original_url: 'https://selfsaid.30tools.com/hope-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/hope-quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   through the roof!
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/self-motivation-techniques.webp'
-original_url: 'https://selfsaid.pages.dev/12-proven-self-motivation-techniques/'
+original_url: 'https://selfsaid.30tools.com/12-proven-self-motivation-techniques/'
 ---
 
 ![Runner using self-motivation techniques to run a race](https://seffsaid.com/wp-content/uploads/self-motivation-techniques.webp)

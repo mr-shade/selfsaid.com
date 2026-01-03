@@ -7,7 +7,7 @@ description: >-
   exploring and implementing these tailored morning routine ideas.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/morning-routine-ideas.jpg'
-original_url: 'https://selfsaid.pages.dev/morning-routine-ideas/'
+original_url: 'https://selfsaid.30tools.com/morning-routine-ideas/'
 ---
 
 ![Morning Routine Ideas for Productivity and Wellness](https://seffsaid.com/wp-content/uploads/morning-routine-ideas.jpg)

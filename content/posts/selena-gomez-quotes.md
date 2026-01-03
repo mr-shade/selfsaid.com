@@ -7,7 +7,7 @@ description: >-
   exclusive compilation of her most heartfelt and profound quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/selena-gomez-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/selena-gomez-quotes/'
+original_url: 'https://selfsaid.30tools.com/selena-gomez-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/selena-gomez-quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   and the moral complexities of technological advancement.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/J-Robert-Oppenheimer-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/j-robert-oppenheimer-quotes/'
+original_url: 'https://selfsaid.30tools.com/j-robert-oppenheimer-quotes/'
 ---
 
 ![J. Robert Oppenheimer](https://seffsaid.com/wp-content/uploads/J-Robert-Oppenheimer-Quotes.webp)

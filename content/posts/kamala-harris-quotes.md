@@ -7,7 +7,7 @@ description: >-
   leadership, justice, equality, and hope.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Kamala-Harris-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/kamala-harris-quotes/'
+original_url: 'https://selfsaid.30tools.com/kamala-harris-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Kamala-Harris-Quotes.webp)

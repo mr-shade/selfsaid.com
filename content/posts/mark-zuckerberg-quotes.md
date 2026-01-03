@@ -7,7 +7,7 @@ description: >-
   this collection of Mark Zuckerberg's best quotes.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Mark-Zuckerberg-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/mark-zuckerberg-quotes/'
+original_url: 'https://selfsaid.30tools.com/mark-zuckerberg-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Mark-Zuckerberg-Quotes.webp)

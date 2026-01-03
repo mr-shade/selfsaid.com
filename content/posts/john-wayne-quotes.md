@@ -7,7 +7,7 @@ description: >-
   symbol of American grit.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/john-wayne-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/john-wayne-quotes/'
+original_url: 'https://selfsaid.30tools.com/john-wayne-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/john-wayne-quotes.webp)

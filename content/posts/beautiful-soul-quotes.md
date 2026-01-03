@@ -8,7 +8,7 @@ description: >-
   and valued, just as they are.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/beautiful-soul-quotes-1.webp'
-original_url: 'https://selfsaid.pages.dev/beautiful-soul-quotes/'
+original_url: 'https://selfsaid.30tools.com/beautiful-soul-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/beautiful-soul-quotes-1.webp)

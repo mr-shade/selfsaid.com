@@ -7,7 +7,7 @@ description: >-
   times quotes that remind you of your strength and resilience.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/tough-times-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/tough-times-quotes/'
+original_url: 'https://selfsaid.30tools.com/tough-times-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/tough-times-quotes.webp)

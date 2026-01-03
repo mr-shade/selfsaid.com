@@ -7,7 +7,7 @@ description: >-
   anytime you need a burst of inspiration.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/two-word-quotes-600x338-1.jpg'
-original_url: 'https://selfsaid.pages.dev/two-word-quotes/'
+original_url: 'https://selfsaid.30tools.com/two-word-quotes/'
 ---
 
 ![Powerful Two Word Quotes](https://seffsaid.com/wp-content/uploads/two-word-quotes-600x338-1.jpg)

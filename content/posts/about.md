@@ -5,7 +5,7 @@ author: "Seff Said"
 description: "This page offers a glimpse into SEFFSAID, outlining its mission and introducing the founder, Seff Bray, along with the inspiring story behind his website."
 tags: []
 featured_image: ""
-original_url: "https://selfsaid.pages.dev/about/"
+original_url: "https://selfsaid.30tools.com/about/"
 ---
 
 ## About “Everyday Self-Care”

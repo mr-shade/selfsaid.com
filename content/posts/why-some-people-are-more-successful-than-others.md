@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: >-
   https://seffsaid.com/wp-content/uploads/why-some-people-are-more-successful.webp
-original_url: 'https://selfsaid.pages.dev/why-some-people-are-more-successful-than-others/'
+original_url: 'https://selfsaid.30tools.com/why-some-people-are-more-successful-than-others/'
 ---
 
 ![Successful man overlooking New York City from his penthouse apartment.](https://seffsaid.com/wp-content/uploads/why-some-people-are-more-successful.webp)

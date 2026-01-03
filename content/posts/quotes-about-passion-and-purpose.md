@@ -7,7 +7,7 @@ description: >-
   passion and purpose.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-about-passion-and-purpose.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-about-passion-and-purpose/'
+original_url: 'https://selfsaid.30tools.com/quotes-about-passion-and-purpose/'
 ---
 
 ![Classical guitarist playing his guitar with intense passion](https://seffsaid.com/wp-content/uploads/quotes-about-passion-and-purpose.webp)

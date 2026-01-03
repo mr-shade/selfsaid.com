@@ -7,7 +7,7 @@ description: >-
   curated 188 Love Quotes For Him.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Love-Quotes-For-Him-600x338-1.jpg'
-original_url: 'https://selfsaid.pages.dev/love-quotes-for-him/'
+original_url: 'https://selfsaid.30tools.com/love-quotes-for-him/'
 ---
 
 ![Love Quotes For Him](https://seffsaid.com/wp-content/uploads/Love-Quotes-For-Him-600x338-1.jpg)

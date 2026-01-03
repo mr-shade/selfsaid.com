@@ -8,7 +8,7 @@ description: >-
   yourself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/supportive-quotes-600x338-1.webp'
-original_url: 'https://selfsaid.pages.dev/supportive-quotes/'
+original_url: 'https://selfsaid.30tools.com/supportive-quotes/'
 ---
 
 ![Supportive Quotes](https://seffsaid.com/wp-content/uploads/supportive-quotes-600x338-1.webp)

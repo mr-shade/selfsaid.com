@@ -7,7 +7,7 @@ description: >-
   you can relax more, stress less, and enjoy life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/ways-to-save-30-minutes-a-day.webp'
-original_url: 'https://selfsaid.pages.dev/save-30-minutes-a-day/'
+original_url: 'https://selfsaid.30tools.com/save-30-minutes-a-day/'
 ---
 
 ![Woman relaxing in an armchair enjoying a hot drink](https://seffsaid.com/wp-content/uploads/ways-to-save-30-minutes-a-day.webp)

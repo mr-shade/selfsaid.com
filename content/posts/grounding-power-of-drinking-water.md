@@ -7,7 +7,7 @@ description: >-
   self-care ritual during my most anxious, disconnected days.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/power-of-drinking-water.webp'
-original_url: 'https://selfsaid.pages.dev/grounding-power-of-drinking-water/'
+original_url: 'https://selfsaid.30tools.com/grounding-power-of-drinking-water/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/power-of-drinking-water.webp)

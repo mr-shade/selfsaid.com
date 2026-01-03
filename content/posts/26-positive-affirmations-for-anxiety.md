@@ -7,7 +7,7 @@ description: >-
   your negative thoughts into positive ones.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Positive-Affirmations-For-Anxiety.webp'
-original_url: 'https://selfsaid.pages.dev/26-positive-affirmations-for-anxiety/'
+original_url: 'https://selfsaid.30tools.com/26-positive-affirmations-for-anxiety/'
 ---
 
 ![Anxious man using affirmations to control his anxiety](https://seffsaid.com/wp-content/uploads/Positive-Affirmations-For-Anxiety.webp)

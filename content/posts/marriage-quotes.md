@@ -7,7 +7,7 @@ description: >-
   celebrate the power of true partnership.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/marriage-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/marriage-quotes/'
+original_url: 'https://selfsaid.30tools.com/marriage-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/marriage-quotes.webp)

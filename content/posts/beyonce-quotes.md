@@ -7,7 +7,7 @@ description: >-
   wisdom.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Beyonce-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/beyonce-quotes/'
+original_url: 'https://selfsaid.30tools.com/beyonce-quotes/'
 ---
 
 ![Beyonce in concert](https://seffsaid.com/wp-content/uploads/Beyonce-Quotes.webp)

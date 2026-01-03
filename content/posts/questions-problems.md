@@ -7,7 +7,7 @@ description: >-
   that truly matter.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/questions-problems.webp'
-original_url: 'https://selfsaid.pages.dev/questions-problems/'
+original_url: 'https://selfsaid.30tools.com/questions-problems/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/questions-problems.webp)

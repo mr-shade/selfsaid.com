@@ -7,7 +7,7 @@ description: >-
   tribute to its unique beauty.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/sunset-quotes-1024x576-1.jpg'
-original_url: 'https://selfsaid.pages.dev/the-best-sunset-quotes-of-all-time/'
+original_url: 'https://selfsaid.30tools.com/the-best-sunset-quotes-of-all-time/'
 ---
 
 ![192 Quotes on the Beauty of Sunsets](https://seffsaid.com/wp-content/uploads/sunset-quotes-1024x576-1.jpg)

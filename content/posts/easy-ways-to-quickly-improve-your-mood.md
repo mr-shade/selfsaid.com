@@ -7,7 +7,7 @@ description: >-
   uplifting tips you can use anytime to ease stress and feel better quickly.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/ways-to-improve-your-mood.webp'
-original_url: 'https://selfsaid.pages.dev/easy-ways-to-quickly-improve-your-mood/'
+original_url: 'https://selfsaid.30tools.com/easy-ways-to-quickly-improve-your-mood/'
 ---
 
 ![Man in a great mood standing on a beach with outstretched arms.](https://seffsaid.com/wp-content/uploads/ways-to-improve-your-mood.webp)

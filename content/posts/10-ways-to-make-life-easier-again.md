@@ -5,7 +5,7 @@ author: Seff Bray
 description: 10 easy ways to simplify your life and make life easier again.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Simplify-Your-Life.webp'
-original_url: 'https://selfsaid.pages.dev/10-ways-to-make-life-easier-again/'
+original_url: 'https://selfsaid.30tools.com/10-ways-to-make-life-easier-again/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Simplify-Your-Life.webp)

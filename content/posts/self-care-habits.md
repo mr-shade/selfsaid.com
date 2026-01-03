@@ -7,7 +7,7 @@ description: >-
   simple self-care habits.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Care-Habits.webp'
-original_url: 'https://selfsaid.pages.dev/self-care-habits/'
+original_url: 'https://selfsaid.30tools.com/self-care-habits/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Habits.webp)

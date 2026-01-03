@@ -7,7 +7,7 @@ description: >-
   Be Home" printable quote from SEFFSAID.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/its-so-good-to-be-home-800x800-1.webp'
-original_url: 'https://selfsaid.pages.dev/its-so-good-to-be-home/'
+original_url: 'https://selfsaid.30tools.com/its-so-good-to-be-home/'
 ---
 
 All [Printable Quotes](/printable-quotes)

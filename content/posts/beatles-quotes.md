@@ -7,7 +7,7 @@ description: >-
   the thoughts and philosophies that shaped their music and lives.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/The-Beatles-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/beatles-quotes/'
+original_url: 'https://selfsaid.30tools.com/beatles-quotes/'
 ---
 
 ![The Beatles performing live on stage in 1964](https://seffsaid.com/wp-content/uploads/The-Beatles-Quotes.webp)

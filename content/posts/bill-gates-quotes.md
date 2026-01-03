@@ -7,7 +7,7 @@ description: >-
   world’s most successful entrepreneurs and philanthropists.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Bill-Gates-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/bill-gates-quotes/'
+original_url: 'https://selfsaid.30tools.com/bill-gates-quotes/'
 ---
 
 ![Bill Gates thinking up one of his inspirational quotes.](https://seffsaid.com/wp-content/uploads/Bill-Gates-Quotes.webp)

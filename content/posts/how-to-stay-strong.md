@@ -7,7 +7,7 @@ description: >-
   them
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/How-To-Stay-Strong.webp'
-original_url: 'https://selfsaid.pages.dev/how-to-stay-strong/'
+original_url: 'https://selfsaid.30tools.com/how-to-stay-strong/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Stay-Strong.webp)

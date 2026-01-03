@@ -7,7 +7,7 @@ description: >-
   reminders for slowing down, healing, and coming back to yourself.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Care-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/self-care-quotes/'
+original_url: 'https://selfsaid.30tools.com/self-care-quotes/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Quotes.webp)

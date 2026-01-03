@@ -7,7 +7,7 @@ description: >-
   laughter, and a bit of lighthearted joy to any moment.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/quotes-that-make-you-smile.webp'
-original_url: 'https://selfsaid.pages.dev/quotes-that-make-you-smile/'
+original_url: 'https://selfsaid.30tools.com/quotes-that-make-you-smile/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-smile.webp)

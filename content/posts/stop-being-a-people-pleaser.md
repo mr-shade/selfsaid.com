@@ -7,7 +7,7 @@ description: >-
   keeping you stuck in a cycle of self-sacrifice.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/stop-being-a-people-pleaser.webp'
-original_url: 'https://selfsaid.pages.dev/stop-being-a-people-pleaser/'
+original_url: 'https://selfsaid.30tools.com/stop-being-a-people-pleaser/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stop-being-a-people-pleaser.webp)

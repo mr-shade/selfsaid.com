@@ -8,7 +8,7 @@ description: >-
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/positive-affirmations.webp'
 original_url: >-
-  https://selfsaid.pages.dev/100-positive-affirmations-that-will-change-your-life/
+  https://selfsaid.30tools.com/100-positive-affirmations-that-will-change-your-life/
 ---
 
 ![Woman reciting positive affirmations.](https://seffsaid.com/wp-content/uploads/positive-affirmations.webp)

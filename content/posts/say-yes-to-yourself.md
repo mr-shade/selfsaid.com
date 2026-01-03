@@ -7,7 +7,7 @@ description: >-
   needs, protect your time, and create a life that feels more like your own.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/say-yes-to-yourself.webp'
-original_url: 'https://selfsaid.pages.dev/say-yes-to-yourself/'
+original_url: 'https://selfsaid.30tools.com/say-yes-to-yourself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/say-yes-to-yourself.webp)

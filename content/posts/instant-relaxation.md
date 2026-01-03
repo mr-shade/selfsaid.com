@@ -7,7 +7,7 @@ description: >-
   will ease stress, restore balance, and bring peace into your day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/instant-relaxation.webp'
-original_url: 'https://selfsaid.pages.dev/instant-relaxation/'
+original_url: 'https://selfsaid.30tools.com/instant-relaxation/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/instant-relaxation.webp)

@@ -7,7 +7,7 @@ description: >-
   transformative questions every Sunday.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/questions-ask-yourself.webp'
-original_url: 'https://selfsaid.pages.dev/questions-you-should-ask-yourself/'
+original_url: 'https://selfsaid.30tools.com/questions-you-should-ask-yourself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/questions-ask-yourself.webp)

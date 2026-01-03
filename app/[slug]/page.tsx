@@ -36,7 +36,7 @@ export async function generateMetadata(
     { params }: Props,
     parent: ResolvingMetadata
 ): Promise<Metadata> {
-    const { slug } = params;
+    const { slug } = await params;
 
     // Try to find post first, then page
     let content = getPostBySlug(slug);
@@ -71,7 +71,7 @@ export async function generateMetadata(
 }
 
 export default async function PostPage({ params }: Props) {
-    const { slug } = params;
+    const { slug } = await params;
 
     // Try to find post first, then page
     let post = getPostBySlug(slug);

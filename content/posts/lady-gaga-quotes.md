@@ -7,7 +7,7 @@ description: >-
   spirit.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Lady-Gaga-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/lady-gaga-quotes/'
+original_url: 'https://selfsaid.30tools.com/lady-gaga-quotes/'
 ---
 
 ![Lady Gaga standing in front of a huge audience](https://seffsaid.com/wp-content/uploads/Lady-Gaga-Quotes.webp)

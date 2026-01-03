@@ -8,7 +8,7 @@ description: >-
   stress or pressure.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Self-Care-Busy-People.webp'
-original_url: 'https://selfsaid.pages.dev/daily-self-care-routine-for-busy-people/'
+original_url: 'https://selfsaid.30tools.com/daily-self-care-routine-for-busy-people/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Busy-People.webp)

@@ -7,7 +7,7 @@ description: >-
   challenges and opportunities.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/beginners-mindset.webp'
-original_url: 'https://selfsaid.pages.dev/beginners-mindset/'
+original_url: 'https://selfsaid.30tools.com/beginners-mindset/'
 ---
 
 ![A man using the beginner's mindset to learn to sail a yacht.](https://seffsaid.com/wp-content/uploads/beginners-mindset.webp)

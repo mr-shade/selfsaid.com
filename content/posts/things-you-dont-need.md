@@ -7,7 +7,7 @@ description: >-
   will help you reclaim time, space, and peace of mind.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/things-you-dont-need.webp'
-original_url: 'https://selfsaid.pages.dev/things-you-dont-need/'
+original_url: 'https://selfsaid.30tools.com/things-you-dont-need/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/things-you-dont-need.webp)

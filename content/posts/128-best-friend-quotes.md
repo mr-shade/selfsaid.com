@@ -5,7 +5,7 @@ author: Seff Bray
 description: Discover 128 thought-provoking and heart-warming quotes about best friends
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/best-friend-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/128-best-friend-quotes/'
+original_url: 'https://selfsaid.30tools.com/128-best-friend-quotes/'
 ---
 
 ![Best friends hugging each other](https://seffsaid.com/wp-content/uploads/best-friend-quotes.webp)

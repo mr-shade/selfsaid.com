@@ -7,7 +7,7 @@ description: >-
   steady companion for grief, burnout, and inner struggles.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/emotional-healing-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/emotional-healing-quotes/'
+original_url: 'https://selfsaid.30tools.com/emotional-healing-quotes/'
 ---
 
 ![Emotional Healing Quotes](https://seffsaid.com/wp-content/uploads/emotional-healing-quotes.webp)

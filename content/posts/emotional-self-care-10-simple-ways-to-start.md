@@ -8,7 +8,7 @@ description: >-
   well-being.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/emotional-self-care-start.webp'
-original_url: 'https://selfsaid.pages.dev/emotional-self-care-10-simple-ways-to-start/'
+original_url: 'https://selfsaid.30tools.com/emotional-self-care-10-simple-ways-to-start/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/emotional-self-care-start.webp)

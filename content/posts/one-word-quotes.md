@@ -7,7 +7,7 @@ description: >-
   motivate, inspire, uplift, and guide you.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/one-word-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/one-word-quotes/'
+original_url: 'https://selfsaid.30tools.com/one-word-quotes/'
 ---
 
 ![One Word Quotes](https://seffsaid.com/wp-content/uploads/one-word-quotes.webp)

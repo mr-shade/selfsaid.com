@@ -7,7 +7,7 @@ description: >-
   joy from life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/stay-away-from-negative-people.webp'
-original_url: 'https://selfsaid.pages.dev/stay-away-from-negative-people/'
+original_url: 'https://selfsaid.30tools.com/stay-away-from-negative-people/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/stay-away-from-negative-people.webp)

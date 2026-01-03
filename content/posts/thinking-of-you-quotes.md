@@ -7,7 +7,7 @@ description: >-
   perfect way to express your deepest emotions to someone special.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Thinking-Of-You-Quotes.jpg'
-original_url: 'https://selfsaid.pages.dev/thinking-of-you-quotes/'
+original_url: 'https://selfsaid.30tools.com/thinking-of-you-quotes/'
 ---
 
 ![Thinking Of You Quotes](https://seffsaid.com/wp-content/uploads/Thinking-Of-You-Quotes.jpg)

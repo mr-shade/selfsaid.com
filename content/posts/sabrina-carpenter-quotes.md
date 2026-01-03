@@ -7,7 +7,7 @@ description: >-
   individuality, perseverance, and personal growth.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Sabrina-Carpenter-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/sabrina-carpenter-quotes/'
+original_url: 'https://selfsaid.30tools.com/sabrina-carpenter-quotes/'
 ---
 
 ![Sabrina Carpenter In Concert](https://seffsaid.com/wp-content/uploads/Sabrina-Carpenter-Quotes.webp)

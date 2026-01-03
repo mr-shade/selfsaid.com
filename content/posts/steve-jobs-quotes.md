@@ -7,7 +7,7 @@ description: >-
   who changed technology and the world.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Steve-Jobs-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/steve-jobs-quotes/'
+original_url: 'https://selfsaid.30tools.com/steve-jobs-quotes/'
 ---
 
 ![Steve Jobs giving an inspirational speech](https://seffsaid.com/wp-content/uploads/Steve-Jobs-Quotes.webp)

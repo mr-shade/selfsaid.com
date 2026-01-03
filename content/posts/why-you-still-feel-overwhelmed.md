@@ -7,7 +7,7 @@ description: >-
   lingering overwhelm is still with you, and what to do about it.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/why-you-still-feel-overwhelmed.webp'
-original_url: 'https://selfsaid.pages.dev/why-you-still-feel-overwhelmed/'
+original_url: 'https://selfsaid.30tools.com/why-you-still-feel-overwhelmed/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/why-you-still-feel-overwhelmed.webp)

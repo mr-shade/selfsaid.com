@@ -8,7 +8,7 @@ description: >-
   self.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Living-My-Life-As-An-Introvert.webp'
-original_url: 'https://selfsaid.pages.dev/how-i-cope-living-my-life-as-an-introvert/'
+original_url: 'https://selfsaid.30tools.com/how-i-cope-living-my-life-as-an-introvert/'
 ---
 
 ![An introverted woman on her own gazing out to sea.](https://seffsaid.com/wp-content/uploads/Living-My-Life-As-An-Introvert.webp)

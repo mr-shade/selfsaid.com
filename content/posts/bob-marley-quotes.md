@@ -7,7 +7,7 @@ description: >-
   happiness, love, meaning, and positivity every day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Bob-Marley-Quotes.webp'
-original_url: 'https://selfsaid.pages.dev/bob-marley-quotes/'
+original_url: 'https://selfsaid.30tools.com/bob-marley-quotes/'
 ---
 
 ![Bob Marley performing live](https://seffsaid.com/wp-content/uploads/Bob-Marley-Quotes.webp)

@@ -7,7 +7,7 @@ description: >-
   yourself every day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Rules-for-Being-YOU.webp'
-original_url: 'https://selfsaid.pages.dev/rules-for-being-you/'
+original_url: 'https://selfsaid.30tools.com/rules-for-being-you/'
 ---
 
 ![Confident woman walking down a NYC street](https://seffsaid.com/wp-content/uploads/Rules-for-Being-YOU.webp)

@@ -7,7 +7,7 @@ description: >-
   and personal growth in your daily life.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/madison-beer-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/madison-beer-quotes/'
+original_url: 'https://selfsaid.30tools.com/madison-beer-quotes/'
 ---
 
 ![Madison Beer in concert](https://seffsaid.com/wp-content/uploads/madison-beer-quotes.webp)

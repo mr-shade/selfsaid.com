@@ -7,7 +7,7 @@ description: >-
   lift your spirits and remind you of better days ahead.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/happiness-quotes.webp'
-original_url: 'https://selfsaid.pages.dev/happiness-quotes/'
+original_url: 'https://selfsaid.30tools.com/happiness-quotes/'
 ---
 
 ![A very happy couple laughing together at the beach](https://seffsaid.com/wp-content/uploads/happiness-quotes.webp)

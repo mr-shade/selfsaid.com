@@ -7,7 +7,7 @@ description: >-
   yourself, reduce overwhelm, and restore emotional balance.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/self-care-habits-600.webp'
-original_url: 'https://selfsaid.pages.dev/self-care-habits-feel-like-myself/'
+original_url: 'https://selfsaid.30tools.com/self-care-habits-feel-like-myself/'
 ---
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-habits-600.webp)

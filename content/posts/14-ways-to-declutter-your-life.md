@@ -7,7 +7,7 @@ description: >-
   life, clear space in your home and mind, and create more calm each day.
 tags: []
 featured_image: 'https://seffsaid.com/wp-content/uploads/Declutter-Your-Life.webp'
-original_url: 'https://selfsaid.pages.dev/14-ways-to-declutter-your-life/'
+original_url: 'https://selfsaid.30tools.com/14-ways-to-declutter-your-life/'
 ---
 
 ![Happy women enjoying life free of clutter](https://seffsaid.com/wp-content/uploads/Declutter-Your-Life.webp)
