@@ -1,5 +1,6 @@
 import Link from 'next/link';
 import { getAllPosts } from '@/lib/posts';
+import { siteConfig } from '@/config/site';
 
 export default function Home() {
     const allPosts = getAllPosts();
@@ -36,7 +37,7 @@ export default function Home() {
                             </div>
                             <Link href={`/${heroPost.slug}`} className="group-hover:text-primary-main transition-colors">
                                 <h1 className="text-5xl md:text-7xl font-bold mb-6 bg-gradient-to-r from-blue-600 to-violet-600 bg-clip-text text-transparent">
-                                    Self Said
+                                    {siteConfig.name}
                                 </h1>
                             </Link>
                             <p className="text-secondary-light dark:text-neutral-400 text-lg mb-6 line-clamp-3">

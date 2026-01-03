@@ -4,6 +4,7 @@ import './globals.css'; import Navbar from '@/components/Navbar'; import Footer 
 import Script from 'next/script';
 
 import { getAllPosts } from '@/lib/posts';
+import { siteConfig } from '@/config/site';
 
 const inter = Inter({ subsets: ['latin'], variable: '--font-inter' })
 const merriweather = Merriweather({ weight: ['300', '400', '700', '900'], subsets: ['latin'], variable: '--font-merriweather' })
@@ -11,39 +12,39 @@ const jetbrains = JetBrains_Mono({ subsets: ['latin'], variable: '--font-jetbrai
 
 export async function generateMetadata(): Promise<Metadata> {
     const posts = getAllPosts();
-    const latestImage = posts[0]?.featured_image || '/images/og-default.jpg';
+    const latestImage = posts[0]?.featured_image || siteConfig.ogImage;
 
     return {
         title: {
-            default: 'Self Said - Inspiration, Motivation, and Life Advice',
-            template: '%s | Self Said'
+            default: `${siteConfig.name} - Inspiration, Motivation, and Life Advice`,
+            template: `%s | ${siteConfig.name}`
         },
-        description: 'Your daily dose of inspiration, motivation, and practical life advice. Discover quotes, productivity tips, and personal development guides.',
+        description: siteConfig.description,
         keywords: ['motivation', 'inspiration', 'quotes', 'self-improvement', 'productivity', 'life advice'],
-        authors: [{ name: 'Self Said' }],
-        creator: 'Self Said',
-        metadataBase: new URL('https://selfsaid.30tools.com'),
+        authors: [{ name: siteConfig.name }],
+        creator: siteConfig.name,
+        metadataBase: new URL(siteConfig.url),
         openGraph: {
             type: 'website',
             locale: 'en_US',
-            url: 'https://selfsaid.30tools.com',
-            siteName: 'Self Said',
-            title: 'Self Said - Inspiration, Motivation, and Life Advice',
-            description: 'Your daily dose of inspiration, motivation, and practical life advice.',
+            url: siteConfig.url,
+            siteName: siteConfig.name,
+            title: `${siteConfig.name} - Inspiration, Motivation, and Life Advice`,
+            description: siteConfig.description,
             images: [
                 {
                     url: latestImage,
                     width: 1200,
                     height: 630,
-                    alt: 'Self Said',
+                    alt: siteConfig.name,
                 },
             ],
         },
         twitter: {
             card: 'summary_large_image',
-            title: 'Self Said',
-            description: 'Your daily dose of inspiration, motivation, and practical life advice.',
-            creator: '@SelfSaid',
+            title: siteConfig.name,
+            description: siteConfig.description,
+            creator: '@SeffSaid', // Could separate this into config if needed
             images: [latestImage],
         },
         robots: {

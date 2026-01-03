@@ -1,58 +1,58 @@
+import { siteConfig } from '@/config/site';
+import Link from 'next/link';
+
 export default function Footer() {
     return (
-        <footer className="bg-secondary-main text-white mt-24 border-t-8 border-primary-main">
-            <div className="container mx-auto px-4 py-16 max-w-9xl">
+        <footer className="bg-secondary-main dark:bg-black text-white pt-20 pb-10 border-t-8 border-primary-main">
+            <div className="container mx-auto px-4 max-w-9xl">
                 <div className="grid grid-cols-1 md:grid-cols-4 gap-12 mb-12">
                     <div className="col-span-1 md:col-span-1">
                         <h3 className="text-3xl font-black font-heading tracking-tighter mb-6">
-                            <span className="text-primary-main">SELF</span>SAID
+                            <span className="text-primary-main">{siteConfig.logoText.primary.toUpperCase()}</span>{siteConfig.logoText.secondary.toUpperCase()}
                         </h3>
                         <p className="text-neutral-400 text-sm leading-relaxed mb-6">
-                            Empowering your daily journey with curated inspiration, practical life advice, and the motivation to build a life you love.
+                            {siteConfig.description}
                         </p>
-                        <div className="flex gap-4">
-                            {/* Social placeholders */}
-                            <div className="w-8 h-8 bg-neutral-800 hover:bg-primary-main transition-colors flex items-center justify-center rounded-sm">X</div>
-                            <div className="w-8 h-8 bg-neutral-800 hover:bg-primary-main transition-colors flex items-center justify-center rounded-sm">IG</div>
-                            <div className="w-8 h-8 bg-neutral-800 hover:bg-primary-main transition-colors flex items-center justify-center rounded-sm">LI</div>
+                        <div className="flex space-x-4">
+                            {/* Social Icons Placeholder - Could map from siteConfig.social if needed */}
                         </div>
                     </div>
 
-                    <div className="col-span-1">
-                        <h4 className="font-bold text-lg mb-6 uppercase tracking-wider border-b border-neutral-800 pb-2">Explore</h4>
+                    <div className="col-span-1 md:col-span-1">
+                        <h4 className="text-lg font-bold uppercase tracking-widest mb-6 border-b border-neutral-700 pb-2">Explore</h4>
                         <ul className="space-y-3 text-sm text-neutral-400">
-                            <li><a href="#" className="hover:text-primary-main transition-colors">Motivation</a></li>
-                            <li><a href="#" className="hover:text-primary-main transition-colors">Productivity</a></li>
-                            <li><a href="#" className="hover:text-primary-main transition-colors">Wellness</a></li>
-                            <li><a href="#" className="hover:text-primary-main transition-colors">Relationships</a></li>
+                            {siteConfig.navLinks.map(link => (
+                                <li key={link.name}><Link href={link.href} className="hover:text-primary-main transition-colors">{link.name}</Link></li>
+                            ))}
                         </ul>
                     </div>
 
-                    <div className="col-span-1">
-                        <h4 className="font-bold text-lg mb-6 uppercase tracking-wider border-b border-neutral-800 pb-2">Company</h4>
+                    <div className="col-span-1 md:col-span-1">
+                        <h4 className="text-lg font-bold uppercase tracking-widest mb-6 border-b border-neutral-700 pb-2">Company</h4>
                         <ul className="space-y-3 text-sm text-neutral-400">
-                            <li><a href="/about" className="hover:text-primary-main transition-colors">About Us</a></li>
-                            <li><a href="#" className="hover:text-primary-main transition-colors">Advertise</a></li>
-                            <li><a href="#" className="hover:text-primary-main transition-colors">Privacy Policy</a></li>
-                            <li><a href="#" className="hover:text-primary-main transition-colors">Terms of Service</a></li>
+                            {siteConfig.footerLinks.map(link => (
+                                <li key={link.name}><Link href={link.href} className="hover:text-primary-main transition-colors">{link.name}</Link></li>
+                            ))}
                         </ul>
                     </div>
 
-                    <div className="col-span-1">
-                        <h4 className="font-bold text-lg mb-6 uppercase tracking-wider border-b border-neutral-800 pb-2">Stay Updated</h4>
-                        <p className="text-neutral-500 text-xs mb-4">Get the latest insights directly to your inbox.</p>
-                        <div className="flex">
-                            <input type="email" placeholder="Your email" className="bg-neutral-800 text-white px-4 py-2 w-full text-sm focus:outline-none focus:ring-1 focus:ring-primary-main" />
-                            <button className="bg-primary-main text-white px-4 py-2 text-sm font-bold">GO</button>
-                        </div>
+                    <div className="col-span-1 md:col-span-1">
+                        <h4 className="text-lg font-bold uppercase tracking-widest mb-6 border-b border-neutral-700 pb-2">Stay Inspired</h4>
+                        <p className="text-neutral-400 text-xs mb-4">Join our community for weekly updates.</p>
+                        <form className="flex flex-col gap-2">
+                            <input type="email" placeholder="Email Address" className="bg-neutral-900 border border-neutral-800 text-white px-4 py-3 text-sm focus:outline-none focus:border-primary-main rounded-sm" />
+                            <button className="bg-white text-black font-bold uppercase tracking-widest py-3 hover:bg-primary-main hover:text-white transition-colors rounded-sm text-xs">
+                                Subscribe
+                            </button>
+                        </form>
                     </div>
                 </div>
 
                 <div className="border-t border-neutral-800 pt-8 flex flex-col md:flex-row justify-between items-center text-xs text-neutral-500">
-                    <p>© {new Date().getFullYear()} Self Said Media. All rights reserved.</p>
+                    <p>© {new Date().getFullYear()} {siteConfig.name}. All rights reserved.</p>
                     <p>Designed for Impact.</p>
                 </div>
             </div>
         </footer>
-    );
+    )
 }
