@@ -1,9 +1,11 @@
 import type { Metadata } from 'next'
-import { Inter } from 'next/font/google'
+import { Inter, Merriweather, JetBrains_Mono } from 'next/font/google'
 import './globals.css'; import Navbar from '@/components/Navbar'; import Footer from '@/components/Footer';
 import Script from 'next/script';
 
-const inter = Inter({ subsets: ['latin'] })
+const inter = Inter({ subsets: ['latin'], variable: '--font-inter' })
+const merriweather = Merriweather({ weight: ['300', '400', '700', '900'], subsets: ['latin'], variable: '--font-merriweather' })
+const jetbrains = JetBrains_Mono({ subsets: ['latin'], variable: '--font-jetbrains' })
 
 export const metadata: Metadata = {
     title: {
@@ -57,9 +59,9 @@ export default function RootLayout({
 }) {
     return (
         <html lang="en">
-            <body className={`${inter.className} bg-gray-50 dark:bg-black text-gray-900 dark:text-gray-100 min-h-screen flex flex-col`}>
+            <body className={`${inter.variable} ${merriweather.variable} ${jetbrains.variable} font-body bg-neutral-50 dark:bg-black text-secondary-main dark:text-neutral-100 min-h-screen flex flex-col`}>
                 <Navbar />
-                <main className="flex-grow container mx-auto px-4 pt-24 pb-12">
+                <main className="flex-grow container mx-auto px-4 pt-24 pb-12 max-w-9xl">
                     {children}
                 </main>
                 <Footer />
