@@ -8,7 +8,8 @@
     "build": "next build",
     "start": "next start",
     "lint": "next lint",
-    "deploy": "next build && npx wrangler pages deploy out --project-name selfsaid --branch main --commit-dirty=true"
+    "deploy": "next build && npx wrangler pages deploy out --project-name selfsaid --branch main --commit-dirty=true",
+    "zip:content": "rm -f selfsaid_content.zip && zip -r selfsaid_content.zip content"
   },
   "keywords": [],
   "author": "",
