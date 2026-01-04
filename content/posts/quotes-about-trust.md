@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-trust/'
 
 ![](https://seffsaid.com/wp-content/uploads/trust-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Trust is one of the quietest forms of self-care. It’s tender and slow, often rebuilding itself after hurt, disappointment, or fear. Sometimes we’re learning to trust others again. Sometimes we’re just trying to trust ourselves.
 
@@ -69,7 +69,7 @@ These quotes won’t tell you to rush your healing. They won’t pretend it’s 
 
 “You don’t need to carry what you’ve already survived.” – Unknown
 
-Letting go is the act of caring for your [future self.”](/future-self) – Seff Bray
+Letting go is the act of caring for your [future self.”](https://selfsaid.30tools.com/future-self) – Seff Bray
 
 “You can’t force closure-but you can choose to create peace anyway.” – Unknown
 
@@ -142,3 +142,5 @@ Take what resonates. Leave what doesn’t. And return to these whenever you need
 [More](#)
 
 12 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-trust/

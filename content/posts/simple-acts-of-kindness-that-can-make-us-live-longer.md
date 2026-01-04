@@ -13,7 +13,7 @@ original_url: >-
 
 ![Man showing kindness helping a stranger](https://seffsaid.com/wp-content/uploads/Acts-Of-Kindness-Live-Longer.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Small acts of kindness have a way of changing more than just someone else’s day. They can also change how you feel inside. A kind word, a thoughtful gesture, or a few minutes of your time can ease stress, lift your mood, and remind you that connection still matters in a busy world.
 
@@ -41,7 +41,7 @@ Small moments of generosity release positive chemicals in the body such as oxyto
 
 Self-kindness often feels harder than kindness to others, but it’s just as important. When you speak to yourself with care, forgive mistakes, and make time for rest, you create space for healing and growth.
 
-Stress grows when you push yourself relentlessly. Taking a moment to pause, [breathe](/breath-a-bridge-to-conscious-and-mindful-living), or comfort yourself instead of criticising creates real change. Self-compassion has been shown to reduce anxiety, lower inflammation, and improve emotional resilience.
+Stress grows when you push yourself relentlessly. Taking a moment to pause, [breathe](https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-mindful-living), or comfort yourself instead of criticising creates real change. Self-compassion has been shown to reduce anxiety, lower inflammation, and improve emotional resilience.
 
 Kindness toward yourself doesn’t mean ignoring responsibility. It means recognising your limits and treating yourself with the same understanding you’d offer someone you love. When you care for yourself, it becomes easier to extend that same care outward.
 
@@ -72,3 +72,5 @@ The health benefits are real, but the deeper reward is the sense of peace that g
 [More](#)
 
 8 Shares
+
+Source: https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer/

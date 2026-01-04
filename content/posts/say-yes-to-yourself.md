@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/say-yes-to-yourself/'
 
 ![](https://seffsaid.com/wp-content/uploads/say-yes-to-yourself.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When your days feel full of everyone else’s needs, choosing yourself can feel brave. But it is not selfish. It is the first step toward a more balanced, intentional life.
 
-Saying yes to yourself means recognising what matters to you, honouring your needs, and creating space for your own growth and happiness. These choices do not have to be dramatic. They can start small, with daily habits and simple changes that gradually shift how you live. If you need ideas for where to begin, you might like [A Gentle Self-Care Routine for Real Life (That Actually Feels Good)](/self-care-routine)
+Saying yes to yourself means recognising what matters to you, honouring your needs, and creating space for your own growth and happiness. These choices do not have to be dramatic. They can start small, with daily habits and simple changes that gradually shift how you live. If you need ideas for where to begin, you might like [A Gentle Self-Care Routine for Real Life (That Actually Feels Good)](https://selfsaid.30tools.com/self-care-routine)
 
 Here are ten reasons to start saying yes to yourself and how it can make a difference in your everyday life.
 
@@ -38,7 +38,7 @@ Saying yes to yourself often means saying no to something else. It is not about 
 
 ## 5\. Creates Space for Growth
 
-When you allow yourself to try new things, you open the door to [personal growth](/ten-ways-to-accelerate-your-personal-growth-and-development). It might be joining a local class, learning a skill online, or exploring a hobby you set aside years ago. Growth does not have to be expensive or time-consuming, it is more about being open to opportunities when they arise. Each yes is a step forward.
+When you allow yourself to try new things, you open the door to [personal growth](https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development). It might be joining a local class, learning a skill online, or exploring a hobby you set aside years ago. Growth does not have to be expensive or time-consuming, it is more about being open to opportunities when they arise. Each yes is a step forward.
 
 ## 6\. Strengthens Boundaries
 
@@ -77,3 +77,5 @@ Saying yes to yourself is not about being selfish, it is about being fair and gi
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/say-yes-to-yourself/

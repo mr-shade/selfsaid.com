@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-say-no-without-guilt/'
 
 ![](https://seffsaid.com/wp-content/uploads/learned-to-say-no.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 For most of my life, “no” felt like a dirty word. I’d over-explain, over-apologize, and sometimes say yes when I already knew I didn’t have the capacity.
 
@@ -23,7 +23,7 @@ I didn’t realize it at the time, but learning to say “no” was a form of se
 
 ## The Turning Point
 
-I was already working on other self-care habits – [how to start a phone free hour](/phone-free-hour), [drinking more water](/grounding-power-of-drinking-water), [one-line journaling](/one-line-journaling). All tiny, manageable ways to reconnect with myself.
+I was already working on other self-care habits – [how to start a phone free hour](https://selfsaid.30tools.com/phone-free-hour), [drinking more water](https://selfsaid.30tools.com/grounding-power-of-drinking-water), [one-line journaling](https://selfsaid.30tools.com/one-line-journaling). All tiny, manageable ways to reconnect with myself.
 
 But they couldn’t compete with a schedule full of obligations I didn’t have the energy for. That’s when I realized: **self-care isn’t just what you add, it’s what you stop doing, too.**
 
@@ -54,9 +54,9 @@ Say it where it’s safe. Say it even when it’s shaky. You don’t have to be 
 
 Remember: “No” doesn’t make you selfish. It makes you honest. And honesty with yourself is one of the kindest forms of self-care there is.
 
-\> Want to dive deeper into this topic? I wrote a book that can help – [Learn How To Say No](/learn-how-to-say-no) is a practical, no-fluff guide to setting boundaries, protecting your energy, and saying no without guilt. It’s short, simple, and made for real life.
+\> Want to dive deeper into this topic? I wrote a book that can help – [Learn How To Say No](https://selfsaid.30tools.com/learn-how-to-say-no) is a practical, no-fluff guide to setting boundaries, protecting your energy, and saying no without guilt. It’s short, simple, and made for real life.
 
-\> This practice is part of my broader [Everyday Self-Care Routine](/everyday-self-care-routine), which is all about small, sustainable habits that help you come back to yourself.
+\> This practice is part of my broader [Everyday Self-Care Routine](https://selfsaid.30tools.com/everyday-self-care-routine), which is all about small, sustainable habits that help you come back to yourself.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-say-no-without-guilt%2F)
 
@@ -71,3 +71,5 @@ Remember: “No” doesn’t make you selfish. It makes you honest. And honesty 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/how-to-say-no-without-guilt/

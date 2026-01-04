@@ -12,29 +12,29 @@ original_url: 'https://selfsaid.30tools.com/the-greatest-quotes-of-all-time/'
 
 ![](https://seffsaid.com/wp-content/uploads/greatest-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Discover a hand-picked collection of the greatest quotes of all time from some of the greatest authors who have ever lived. Reading a few great quotes every day is a great way to motivate and inspire yourself. This comprehensive list contains some of the best motivational and inspirational quotes you’ll ever read. Have fun!
 
 *   “This is where it all begins. Everything starts here, today.” – David Nicholls  
     
-*   “Change will not come if we wait for some other person or some other time. We are the ones we’ve been waiting for. We are the change that we seek.” – [Barack Obama](/barack-obama-quotes)  
+*   “Change will not come if we wait for some other person or some other time. We are the ones we’ve been waiting for. We are the change that we seek.” – [Barack Obama](https://selfsaid.30tools.com/barack-obama-quotes)  
     
 *   “No matter how poor you think you are, if you have family, you have everything.” – Anonymous  
     
-*   “I have a dream that my four little children will one day live in a nation where they will not be judged by the color of their skin, but by the content of their character.” – [Martin Luther King Jr.](/martin-luther-king-quotes)  
+*   “I have a dream that my four little children will one day live in a nation where they will not be judged by the color of their skin, but by the content of their character.” – [Martin Luther King Jr.](https://selfsaid.30tools.com/martin-luther-king-quotes)  
     
 *   “The greatest glory in living lies not in never falling, but in rising every time we fall.” – Nelson Mandela  
     
-*   “Carry out a random [act of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer), with no expectation of reward, safe in the knowledge that one day someone might do the same for you.” – [Princess Diana](/princess-diana-quotes)  
+*   “Carry out a random [act of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer), with no expectation of reward, safe in the knowledge that one day someone might do the same for you.” – [Princess Diana](https://selfsaid.30tools.com/princess-diana-quotes)  
     
 *   “Forget mistakes. Forget failure. Forget everything except what you’re going to do now and do it. Today is your lucky day.” – Will Durant  
     
 *   “In the end, we only regret the chances we didn’t take.” – Lewis Carroll  
     
-*   “Success is not final, failure is not fatal: it is the courage to continue that counts.” – [Winston Churchill](/winston-churchill-quotes)  
+*   “Success is not final, failure is not fatal: it is the courage to continue that counts.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)  
     
-*   “One day you will wake up and there won’t be any more time to do the things you’ve always wanted. Do it now.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)  
+*   “One day you will wake up and there won’t be any more time to do the things you’ve always wanted. Do it now.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)  
     
 *   “Be happy for this moment, for this moment is your life.” – Omar Khayyam  
     
@@ -42,7 +42,7 @@ Discover a hand-picked collection of the greatest quotes of all time from some o
     
 *   When you arise in the morning, think of what a precious privilege it is to be alive, to breathe, to think, to enjoy, to love.” – Marcus Aurelius  
     
-*   “Give every day the chance to become the most beautiful day of your life.” – [Mark Twain](/25-inspirational-mark-twain-quotes)  
+*   “Give every day the chance to become the most beautiful day of your life.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)  
     
 *   “The one who falls and gets up is so much stronger than the one who never fell.” – Roy T. Bennett  
     
@@ -70,7 +70,7 @@ Discover a hand-picked collection of the greatest quotes of all time from some o
     
 *   “Everyone smiles in the same language.” – Anonymous  
     
-*   “If it is not right do not do it; if it is not true do not say it.” – [Marcus Aurelius](/marcus-aurelius-quotes)  
+*   “If it is not right do not do it; if it is not true do not say it.” – [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)  
     
 *   “Don’t judge each day by the harvest you reap but by the seeds you plant.” – Robert Louis Stevenson  
     
@@ -80,7 +80,7 @@ Discover a hand-picked collection of the greatest quotes of all time from some o
     
 *   “Sometimes you win, sometimes you learn.” – Anonymous  
     
-*   “[Follow your heart](/follow-your-heart-quotes), listen to your inner voice, stop caring about what others think.” – Roy T. Bennett  
+*   “[Follow your heart](https://selfsaid.30tools.com/follow-your-heart-quotes), listen to your inner voice, stop caring about what others think.” – Roy T. Bennett  
     
 *   “The biggest adventure you can take is to live the life of your dreams.” – Oprah Winfrey  
     
@@ -117,3 +117,5 @@ Discover a hand-picked collection of the greatest quotes of all time from some o
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/the-greatest-quotes-of-all-time/

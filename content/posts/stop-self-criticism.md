@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/stop-self-criticism/'
 
 ![Woman gazing out of a window on a grey rainy day.](https://seffsaid.com/wp-content/uploads/Overcome-Self-Criticism.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Most of us speak to ourselves more harshly than we ever would to someone we love. Self-criticism often creeps in quietly, through the way we judge our mistakes, compare ourselves to others, or tell ourselves we are not enough. Over time this constant inner pressure chips away at confidence, makes it harder to enjoy success, and leaves us feeling drained.
 
@@ -52,13 +52,13 @@ When you catch yourself comparing, pause and redirect your focus. Ask, “What i
 
 ## 6\. Replace the inner critic with curiosity
 
-When something goes wrong, the [inner critic](/how-i-silenced-my-inner-critic) jumps in with, “Why did I fail?” Curiosity offers a kinder path. Ask instead, “What can I learn from this?”
+When something goes wrong, the [inner critic](https://selfsaid.30tools.com/how-i-silenced-my-inner-critic) jumps in with, “Why did I fail?” Curiosity offers a kinder path. Ask instead, “What can I learn from this?”
 
-Curiosity allows mistakes to become teachers rather than punishments. It [opens the door to growth](/questions-that-will-open-your-mind) without shame. Every challenge carries information about what you need, what works for you, and how you can adjust. Approaching difficulties with curiosity helps you move forward without the heavy weight of judgment.
+Curiosity allows mistakes to become teachers rather than punishments. It [opens the door to growth](https://selfsaid.30tools.com/questions-that-will-open-your-mind) without shame. Every challenge carries information about what you need, what works for you, and how you can adjust. Approaching difficulties with curiosity helps you move forward without the heavy weight of judgment.
 
 ## 7\. Practice small acts of self-kindness
 
-Self-criticism drains energy. Self-kindness restores it. Build small acts of kindness into your [daily routine](/ways-to-sneak-self-care-into-your-daily-routine). Rest when you are tired, take a short walk, prepare a meal you enjoy, or allow yourself to pause without guilt.
+Self-criticism drains energy. Self-kindness restores it. Build small acts of kindness into your [daily routine](https://selfsaid.30tools.com/ways-to-sneak-self-care-into-your-daily-routine). Rest when you are tired, take a short walk, prepare a meal you enjoy, or allow yourself to pause without guilt.
 
 These acts may feel simple, but they are powerful reminders that you are worthy of care. Over time, they replace the voice of criticism with one of compassion, showing you that you can be both imperfect and deserving of kindness at the same time.
 
@@ -66,7 +66,7 @@ These acts may feel simple, but they are powerful reminders that you are worthy 
 
 Overcoming self-criticism is not about silencing your inner voice overnight. It is about slowly changing the way you speak to yourself, one moment at a time. Each choice to respond with kindness instead of harshness builds a new pattern.
 
-You will not get it right [every day](/slay-the-day), and that is okay. Progress comes from practice, not perfection. Start small by replacing one critical thought with a kinder one, forgiving one mistake, or celebrating one win. These choices add up. Over time, you will create a gentler, calmer relationship with yourself.
+You will not get it right [every day](https://selfsaid.30tools.com/slay-the-day), and that is okay. Progress comes from practice, not perfection. Start small by replacing one critical thought with a kinder one, forgiving one mistake, or celebrating one win. These choices add up. Over time, you will create a gentler, calmer relationship with yourself.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-self-criticism%2F)
 
@@ -81,3 +81,5 @@ You will not get it right [every day](/slay-the-day), and that is okay. Progress
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/stop-self-criticism/

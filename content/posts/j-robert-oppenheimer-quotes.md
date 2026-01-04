@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/j-robert-oppenheimer-quotes/'
 
 ![J. Robert Oppenheimer](https://seffsaid.com/wp-content/uploads/J-Robert-Oppenheimer-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
   
 Exploring the mind of J. Robert Oppenheimer offers a glimpse into the thoughts of a man who played a pivotal role in science and history. This collection of 50 quotes by Oppenheimer uncovers insights into his perspective on life, science, and the moral complexities of technological advancement.
@@ -39,7 +39,7 @@ Exploring the mind of J. Robert Oppenheimer offers a glimpse into the thoughts o
 20.  “The atomic bomb made the prospect of future war unendurable.” – J. Robert Oppenheimer
 21.  “It is a profound and necessary truth that the deep things in science are not found because they are useful; they are found because it was possible to find them.” – J. Robert Oppenheimer
 22.  “The open society, the unrestricted access to knowledge, the unplanned and uninhibited association of men for its furtherance—these are what may make a vast, complex, ever growing, ever changing, ever more specialized and expert technological world, nevertheless a world of human community.” – J. Robert Oppenheimer
-23.  “An expert is someone who knows some of the worst [life mistakes](/5-common-life-mistakes-to-avoid) that can be made in his subject, and how to avoid them.” – J. Robert Oppenheimer
+23.  “An expert is someone who knows some of the worst [life mistakes](https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid) that can be made in his subject, and how to avoid them.” – J. Robert Oppenheimer
 24.  “We may be drifting into a situation where we would be mortally afraid to use our strength and equally afraid to give it up.” – J. Robert Oppenheimer
 25.  “I think it is a grave danger to the American community to have a subject that is understood by very few and feared by many.” – J. Robert Oppenheimer
 26.  “A scientist cannot hold back innovation because some people are not ready for it.” – J. Robert Oppenheimer
@@ -81,3 +81,5 @@ Exploring the mind of J. Robert Oppenheimer offers a glimpse into the thoughts o
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/j-robert-oppenheimer-quotes/

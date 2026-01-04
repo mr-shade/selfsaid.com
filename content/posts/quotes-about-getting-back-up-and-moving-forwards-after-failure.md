@@ -14,13 +14,13 @@ original_url: >-
 
 ![Mountain climber not allowing himself to be defeated by failure.](https://seffsaid.com/wp-content/uploads/Getting-Back-Up-And-Moving-Forwards-After-Failure.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 This collection of over 200 Quotes about getting back up and moving forwards after failure offers inspiration for anyone who has faced setbacks. It’s common to experience failure at some stage in our lives, and it can be tough to find the drive to stand up and keep going.
 
 Often, failure is perceived negatively, as if it marks the end of trying. However, it’s important to see failure not as a stopping point but as a part of the process. It doesn’t mean everything is over; it simply means this attempt didn’t work out.
 
-There are [benefits of failure](/benefits-of-failure). It teaches valuable lessons, making you one step closer to success each time. Experiencing failure helps you learn emotional resilience and strengthens your mental toughness. It’s an opportunity to develop a skill set in dealing with setbacks.
+There are [benefits of failure](https://selfsaid.30tools.com/benefits-of-failure). It teaches valuable lessons, making you one step closer to success each time. Experiencing failure helps you learn emotional resilience and strengthens your mental toughness. It’s an opportunity to develop a skill set in dealing with setbacks.
 
 If you’re feeling down after a setback and struggling to get back up, don’t lose hope. This extensive selection of quotes is here to rekindle your motivation and by reading them you’ll find the encouragement needed to rise again, stronger and more prepared than ever.
 
@@ -32,7 +32,7 @@ If you’re feeling down after a setback and struggling to get back up, don’t 
 6.  “You rise up to the feats of the unstoppable, every time you lift yourself back up after being thunderously knocked down.” – Hiral Nagda
 7.  “Get up and face life, because life is a gift and it is a short trip, my friend. We never know what day will be our last. It sounds like such a cliché, but it is one of the truest statements in life.” – Jennifer Storm
 8.  “Do not judge me by my successes, judge me by how many times I fell down and got back up again.” – Nelson Mandela
-9.  “Success is not final, failure is not fatal: it is the courage to continue that counts.” – [Winston Churchill](/winston-churchill-quotes)
+9.  “Success is not final, failure is not fatal: it is the courage to continue that counts.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 10.  “It is hard to fail, but it is worse never to have tried to succeed.” – Theodore Roosevelt
 11.  “It’s not the failures in our life that define us, it’s the moments when we decide that getting back up is all that matters.” – Joel Brown
 12.  “The most successful people in the world are those who have had many failures in life, but have also had the courage to get back up and fight for what they believe in.” – Angela Underwood
@@ -40,7 +40,7 @@ If you’re feeling down after a setback and struggling to get back up, don’t 
 14.  “Long ago we mastered the ability to create and harness fire, but we still don’t know how to light and maintain the fire that inspires us and keeps us moving forward.” – Heidi Grant Halvorson
 15.  “The only thing a person can ever really do is keep moving forward. Take that big leap forward without hesitation, without once looking back. Simply forget the past and forge toward the future.” – Alyson Noel
 16.  “If you can look up, you can get up.” – Eric Thomas
-17.  “Get knocked down. Get back up. Always [be a fighter](/unleashing-your-inner-warrior). Don’t be afraid of the punch. Don’t be afraid of getting back up. Be afraid of giving up.” – Maria Kanellis
+17.  “Get knocked down. Get back up. Always [be a fighter](https://selfsaid.30tools.com/unleashing-your-inner-warrior). Don’t be afraid of the punch. Don’t be afraid of getting back up. Be afraid of giving up.” – Maria Kanellis
 18.  “It’s not whether you get knocked down, it’s whether you get up.” – Vince Lombardi
 19.  “We’re none of us quite so sure of our place in the world that we can’t be rocked off our feet by bad times. It’s the getting back up again that counts. Not that you fall, but getting back up again counts for more in the long run.” – Mercedes Lackey
 20.  “You have to get up! You have to believe! Get up! Believe!” – Charlotte Herzele
@@ -71,7 +71,7 @@ If you’re feeling down after a setback and struggling to get back up, don’t 
 45.  “If you’re willing to get back up and fight for what you want in life at all costs, there is promise in your faith.” – Anthony Reyes
 46.  “A bad break is no excuse for staying stuck where you are.” – Germany Kent
 47.  “No one will do for you what you should be doing for yourself. Get up, start walking, and never look back.” – Duke Jordan
-48.  “Do not be embarrassed by your failures, learn from them and start again.” – [Richard Branson](/richard-branson-quotes)
+48.  “Do not be embarrassed by your failures, learn from them and start again.” – [Richard Branson](https://selfsaid.30tools.com/richard-branson-quotes)
 49.  “Things don’t always work out the way we hope. You just have to pick yourself up and find a new direction to go in.” – Joelle Charbonneau
 50.  “Wallowing in self-pity hurts no one except you. Boss up and find a way to get going again.” – Germany Kent
 51.  “The question is not whether you are down. The question is whether you will get back up.” – David O. Bullock
@@ -101,7 +101,7 @@ If you’re feeling down after a setback and struggling to get back up, don’t 
 75.  “Be Brave and Take Risks: You need to have faith in yourself. Be brave and take risks. You don’t have to have it all figured out to move forward.” – Roy T. Bennett
 76.  “Sometimes good things fall apart so better things could fall together.” – Marilyn Monroe
 77.  “No matter how many times you get knocked down, keep getting back up. God sees your resolve. He sees your determination. And when you do everything you can do, that’s when God will step in and do what you can’t do.” – Joel Osteen
-78.  “I can accept failure, everyone fails at something. But I can’t accept not trying.” – [Michael Jordan](/michael-jordan-quotes)
+78.  “I can accept failure, everyone fails at something. But I can’t accept not trying.” – [Michael Jordan](https://selfsaid.30tools.com/michael-jordan-quotes)
 79.  “Get up and get going! Take your reluctance by the throat and throw it overboard. Just do what needs to be done!” – Oswald Chambers
 80.  “You were not made for failure, you were made for victory. Go forward with a joyful confidence.” – George Eliot
 81.  “Sometimes it takes a good fall to really know where you stand.” – Hayley Williams
@@ -133,10 +133,10 @@ If you’re feeling down after a setback and struggling to get back up, don’t 
 107.  “Rekindling hope, engaging in inner work, and venturing into the world amount to a complete plan for picking yourself up when you’re down.” – Eric Maisel
 108.  “Our greatest glory is not in never failing, but in rising every time we fail.” – Confucius
 109.  “Failures and disappointments may come; you may feel down, but never allow yourself to stay down. Don’t give up; get up and move on.” – George Foreman
-110.  “You have to remember that the hard times are what shape you.” – [Arnold Schwarzenegger](/arnold-schwarzenegger-quotes)
+110.  “You have to remember that the hard times are what shape you.” – [Arnold Schwarzenegger](https://selfsaid.30tools.com/arnold-schwarzenegger-quotes)
 111.  “If you don’t quit, you win.” No matter how many times you have fallen, I encourage you to get back up.” – Jennifer A. Miskov
 112.  “When life knocks you down get back up and fight harder.” – Anonymous
-113.  “I believe that the most important single thing, beyond discipline and creativity is daring to dare.” – [Maya Angelou](/maya-angelou-quotes)
+113.  “I believe that the most important single thing, beyond discipline and creativity is daring to dare.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 114.  “Just keep moving forwards and don’t give a damn about what anybody thinks. Do what you have to do, for you.” – Johnny Depp
 115.  “When the going gets tough, put one foot in front of the other and just keep going. Don’t give up.” – Roy T. Bennett
 116.  “The whole point about moving forwards is not that it connects what is already known, but that it continually opens a path into the unknown.” – Heather M. Morgan
@@ -146,7 +146,7 @@ If you’re feeling down after a setback and struggling to get back up, don’t 
 120.  “You can’t expect to move forward if your emergency break is on.” – Angela Cecilia
 121.  “You just have to keep moving forward. You just have to keep doing something, seizing the next opportunity, staying open to trying something new.” – Shonda Rhimes
 122.  “If we find the strength to get back up and fight one more round, then we learn and we get stronger. Stronger with the knowledge we have the ability to lead more fulfilling lives.” – Maria Hocking
-123.  “Be gentle with yourself, you’re doing the best you can.” – [Wilferd Peterson](/40-inspirational-quotes-wilferd-peterson)
+123.  “Be gentle with yourself, you’re doing the best you can.” – [Wilferd Peterson](https://selfsaid.30tools.com/40-inspirational-quotes-wilferd-peterson)
 124.  “If we make the decision ahead of time to get back up when were knocked down, getting up will be easier.” – Dave Burchett
 125.  “Winners never quit. And quitters never win.” – Vince Lombardi
 126.  “Fail, pick yourself up, and fail again. Because what’s success without struggles?” – Anonymous
@@ -238,3 +238,5 @@ If you’re feeling down after a setback and struggling to get back up, don’t 
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure/

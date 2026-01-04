@@ -10,7 +10,7 @@ original_url: 'https://selfsaid.30tools.com/elvis-presley-quotes/'
 
 ![Elvis Presley in concert](https://seffsaid.com/wp-content/uploads/Elvis-Presley-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Elvis Presley, the King of Rock ‘n’ Roll, left behind a legacy filled with incredible music and some memorable quotes that still resonate today. His words offer a glimpse into the mind of a music legend. and the era he helped define. Below you’ll find 50 of his best quotes.
 
@@ -58,14 +58,14 @@ Elvis Presley, the King of Rock ‘n’ Roll, left behind a legacy filled with i
 42.  “I don’t know why people hate me. I’ve never hurt anyone.” — Elvis Presley
 43.  “It’s always been my dream to come to Madison Square Garden and be the first person to sell it out two nights in a row.” — Elvis Presley
 44.  “I knew by heart all the dialogue of James Dean’s films; I could watch Rebel Without a Cause a hundred times over.” — Elvis Presley
-45.  I think most people have the illusion that a great many entertainers have a [happy life](/how-to-live-a-happy-life) and a great many do.” — Elvis Presley
+45.  I think most people have the illusion that a great many entertainers have a [happy life](https://selfsaid.30tools.com/how-to-live-a-happy-life) and a great many do.” — Elvis Presley
 46.  “I’m not interested in being a movie star. I’m interested in making good movies.” — Elvis Presley
 47.  “From the time I was a kid, I always knew something was going to happen to me. Didn’t know exactly what.” — Elvis Presley
 48.  “I don’t know anything about music. In my line you don’t have to.” — Elvis Presley
 49.  “I’m no hillbilly singer.” — Elvis Presley
 50.  “I’d like to be known as a good man who was dedicated to music and to his fans.” — Elvis Presley
 
-Read more quotes from [famous people](/quotes-by-famous-people) here.
+Read more quotes from [famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Felvis-presley-quotes%2F)
 
@@ -80,3 +80,5 @@ Read more quotes from [famous people](/quotes-by-famous-people) here.
 [More](#)
 
 67 Shares
+
+Source: https://selfsaid.30tools.com/elvis-presley-quotes/

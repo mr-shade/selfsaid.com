@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/the-20-greatest-time-passing-quotes/
 
 ![](https://seffsaid.com/wp-content/uploads/Time-Passing-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Here’s a list of the 20 [greatest quotes](/the-greatest-quotes-of-all-time) (well according to me anyway!) about time passing too quickly.
+Here’s a list of the 20 [greatest quotes](https://selfsaid.30tools.com/the-greatest-quotes-of-all-time) (well according to me anyway!) about time passing too quickly.
 
 1.  “Time does not pass, it continues” – Marty Rubin
 2.  “Our life is made up of time. Our days are measured in hours, our pay measured by those hours, our knowledge is measured by years. And yet time eventually runs out and you wonder in your heart of hearts if those seconds, minutes, hours, days, weeks, months, years and decades were being spent the best way they possibly could.” – Cecelia Ahern
@@ -50,3 +50,5 @@ Here’s a list of the 20 [greatest quotes](/the-greatest-quotes-of-all-time) (w
 [More](#)
 
 20 Shares
+
+Source: https://selfsaid.30tools.com/the-20-greatest-time-passing-quotes/

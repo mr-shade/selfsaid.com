@@ -10,17 +10,17 @@ original_url: 'https://selfsaid.30tools.com/cultivate-more-gratitude/'
 
 ![](https://seffsaid.com/wp-content/uploads/Cultivate-More-Gratitude.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Gratitude is a powerful way to shift focus from what is lacking to what is already present. Developing a habit of appreciation can bring a sense of peace and contentment. Asking thoughtful questions can encourage a deeper awareness of what is good and meaningful in life. Here are ten questions that can help strengthen this perspective.
 
 ### 1\. What made you smile today?
 
-Small moments of [happiness](/unlock-the-secrets-to-true-happiness) often go unnoticed. Reflecting on what brought a smile can highlight the positive aspects of daily life. It could be a kind gesture, a funny moment, or a beautiful sight.
+Small moments of [happiness](https://selfsaid.30tools.com/unlock-the-secrets-to-true-happiness) often go unnoticed. Reflecting on what brought a smile can highlight the positive aspects of daily life. It could be a kind gesture, a funny moment, or a beautiful sight.
 
 ### 2\. Who has made a difference in your life?
 
-Thinking about people who have offered kindness, support, or [wisdom](/discover-your-inner-wisdom) can inspire appreciation for relationships and meaningful connections. Expressing gratitude to these individuals can strengthen bonds and create lasting positivity.
+Thinking about people who have offered kindness, support, or [wisdom](https://selfsaid.30tools.com/discover-your-inner-wisdom) can inspire appreciation for relationships and meaningful connections. Expressing gratitude to these individuals can strengthen bonds and create lasting positivity.
 
 ### 3\. What is something you take for granted that others may not have?
 
@@ -28,7 +28,7 @@ Many comforts, conveniences, and opportunities are easy to overlook. Recognizing
 
 ### 4\. How has a past challenge shaped you for the better?
 
-Difficult experiences often bring [inspirational lessons](/inspirational-lessons) and growth. Considering how obstacles have led to personal strength can shift the perspective on struggles. Reflecting on how challenges have contributed to resilience can turn hardships into sources of gratitude.
+Difficult experiences often bring [inspirational lessons](https://selfsaid.30tools.com/inspirational-lessons) and growth. Considering how obstacles have led to personal strength can shift the perspective on struggles. Reflecting on how challenges have contributed to resilience can turn hardships into sources of gratitude.
 
 ### 5\. What is one thing you appreciate about yourself?
 
@@ -48,7 +48,7 @@ Revisiting meaningful memories can create feelings of gratitude for the people a
 
 ### 9\. Who has shown you kindness recently?
 
-Recognizing [acts of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer), no matter how small, can encourage gratitude and inspire a desire to spread kindness in return. A simple smile, a thoughtful message, or an unexpected favor can [brighten a day](/happiness-quotes) and remind us of the goodness in others.
+Recognizing [acts of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer), no matter how small, can encourage gratitude and inspire a desire to spread kindness in return. A simple smile, a thoughtful message, or an unexpected favor can [brighten a day](https://selfsaid.30tools.com/happiness-quotes) and remind us of the goodness in others.
 
 ### 10\. What is one thing you can appreciate about today?
 
@@ -71,3 +71,5 @@ It is important to pause and recognize the moments, people, and experiences that
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/cultivate-more-gratitude/

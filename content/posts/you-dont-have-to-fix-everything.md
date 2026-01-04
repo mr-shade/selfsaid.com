@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/you-dont-have-to-fix-everything/'
 
 ![](https://seffsaid.com/wp-content/uploads/you-dont-have-to-fix-everything.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 If you’re carrying too much right now, this is your reminder – you don’t have to fix everything today.
 
@@ -31,7 +31,7 @@ Take care,
   
 Seff
 
-This was originally shared in the Everyday Self-Care newsletter. [Subscribe here](/newsletter) to receive self-care tips and doable habits that support your well-being.
+This was originally shared in the Everyday Self-Care newsletter. [Subscribe here](https://selfsaid.30tools.com/newsletter) to receive self-care tips and doable habits that support your well-being.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-dont-have-to-fix-everything%2F)
 
@@ -46,3 +46,5 @@ This was originally shared in the Everyday Self-Care newsletter. [Subscribe here
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/you-dont-have-to-fix-everything/

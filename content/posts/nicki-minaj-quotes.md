@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/nicki-minaj-quotes/'
 
 ![Nicki Minaj performing live on stage](https://seffsaid.com/wp-content/uploads/Nicki-Minaj-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Nicki Minaj has shared many powerful and memorable quotes over the years, making her a source of inspiration for fans around the world. In this article, you’ll find some of her best quotes that capture her unique perspective and wisdom. Read more [quotes from celebrities](/quotes-by-famous-people), authors, famous entrepreneurs, and musicians here.
+Nicki Minaj has shared many powerful and memorable quotes over the years, making her a source of inspiration for fans around the world. In this article, you’ll find some of her best quotes that capture her unique perspective and wisdom. Read more [quotes from celebrities](https://selfsaid.30tools.com/quotes-by-famous-people), authors, famous entrepreneurs, and musicians here.
 
 1.  “You don’t have to feel the need to put somebody down to make yourself feel better.” — Nicki Minaj
 2.  “You should never feel afraid to become a piece of art. It’s exhilarating.” — Nicki Minaj
@@ -58,7 +58,7 @@ Nicki Minaj has shared many powerful and memorable quotes over the years, making
 40.  “If you don’t take control of your career, guess what? You’ll be stuck in the sunset watching the sunrise of another person’s success.” — Nicki Minaj
 41.  “I believe that life is a prize, but to live doesn’t mean you’re alive.” — Nicki Minaj
 42.  “I’m not a girl that can ever be defined.” — Nicki Minaj
-43.  I will always remember this [moment in my life](/three-word-quotes) as one of the happiest moments.” — Nicki Minaj
+43.  I will always remember this [moment in my life](https://selfsaid.30tools.com/three-word-quotes) as one of the happiest moments.” — Nicki Minaj
 44.  “When I am assertive, I’m a bitch. When a man is assertive, he’s a boss.” — Nicki Minaj
 45.  “The more we can break the rules, the better off we’re going to be.” — Nicki Minaj
 46.  “I think as long as you have something to believe in, it sort of keeps you grounded.” — Nicki Minaj
@@ -80,3 +80,5 @@ Nicki Minaj has shared many powerful and memorable quotes over the years, making
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/nicki-minaj-quotes/

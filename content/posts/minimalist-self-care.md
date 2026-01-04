@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/minimalist-self-care/'
 
 ![](https://seffsaid.com/wp-content/uploads/minimalist-self-care.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Self-care doesn’t have to be another thing on your to-do list. It doesn’t have to be perfect, expensive, or Instagram-worthy. In fact, the more I’ve simplified my self-care, the more meaningful it has become.
 
@@ -24,13 +24,13 @@ Here’s why less can sometimes feel like more, and how minimalist self-care can
 
 When you limit your options, you save energy. You don’t need ten different wellness routines. You need one that fits your life. One that feels possible on an ordinary day. Fewer choices can mean more ease, more clarity, and less second-guessing.
 
-Try choosing one small practice you can return to each day without overthinking. A morning stretch. A quiet walk. [Drinking water](/grounding-power-of-drinking-water) slowly before checking your phone.
+Try choosing one small practice you can return to each day without overthinking. A morning stretch. A quiet walk. [Drinking water](https://selfsaid.30tools.com/grounding-power-of-drinking-water) slowly before checking your phone.
 
 ## It brings you closer to your real needs
 
 Minimalist self-care invites you to ask: What actually helps me feel better? Not what looks good, or what works for someone else, but what feels grounding and right for you.
 
-Strip away the trends, the comparison, the pressure to do more. When you pause long enough to listen, you’ll hear what your [body and mind](/56-self-care-ideas-for-a-healthy-mind-and-body) really need. And often, it’s something simple.
+Strip away the trends, the comparison, the pressure to do more. When you pause long enough to listen, you’ll hear what your [body and mind](https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-mind-and-body) really need. And often, it’s something simple.
 
 ## It makes space for presence
 
@@ -46,7 +46,7 @@ Sustainable care is care that fits into your life as it is, not as you wish it w
 
 ## It focuses on how it feels, not how it looks
 
-Minimalist [self-care reminds you that care](/self-care-activities-that-you-can-do-in-10-minutes-or-less) doesn’t have to be flashy. It can be quiet. It can be invisible. It can be yours alone.
+Minimalist [self-care reminds you that care](https://selfsaid.30tools.com/self-care-activities-that-you-can-do-in-10-minutes-or-less) doesn’t have to be flashy. It can be quiet. It can be invisible. It can be yours alone.
 
 You don’t have to document it. You don’t have to perform it. You only have to feel the shift it creates inside you. That’s what matters.
 
@@ -79,3 +79,5 @@ Start with less, stay with what feels right, and let that be enough.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/minimalist-self-care/

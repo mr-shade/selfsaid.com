@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/quotes-that-make-you-smile/'
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-smile.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A good quote has a way of instantly brightening your day, bringing a smile to your face, or giving you a new perspective. Some quotes make you laugh, others help you see the lighter side of life, and a few can even lift your spirits when you least expect it. Here’s a collection of quotes that do just that—adding a bit of joy and warmth whenever you need it most.
 
@@ -21,16 +21,16 @@ A good quote has a way of instantly brightening your day, bringing a smile to yo
 1.  “Don’t cry because it’s over, smile because it happened.” — Dr. Seuss
 2.  “Life is short. Smile while you still have teeth.” — Unknown
 3.  “Always remember that you are absolutely unique. Just like everyone else.” — Margaret Mead
-4.  If you want to [tell people the truth](/8-remarkable-benefits-of-always-telling-the-truth), make them laugh; otherwise, they’ll kill you.” — George Bernard Shaw
+4.  If you want to [tell people the truth](https://selfsaid.30tools.com/8-remarkable-benefits-of-always-telling-the-truth), make them laugh; otherwise, they’ll kill you.” — George Bernard Shaw
 5.  “A day without sunshine is like, you know, night.” — Steve Martin
-6.  People say [nothing is impossible](/nothing-is-impossible-quotes), but I do nothing every day.” — A.A. Milne
+6.  People say [nothing is impossible](https://selfsaid.30tools.com/nothing-is-impossible-quotes), but I do nothing every day.” — A.A. Milne
 7.  “Behind every great man is a woman rolling her eyes.” — Jim Carrey
 8.  “I’m not arguing, I’m just explaining why I’m right.” — Unknown
 9.  “Life is too important to be taken seriously.” — Oscar Wilde
 10.  “Wine is constant proof that God loves us and loves to see us happy.” — Benjamin Franklin
 11.  “Age is merely the number of years the world has been enjoying you. Cheers to you!” — Unknown
 12.  “A smile is a curve that sets everything straight.” — Phyllis Diller
-13.  The best way to cheer yourself is to try to cheer someone else up.” — [Mark Twain](/25-inspirational-mark-twain-quotes)
+13.  The best way to cheer yourself is to try to cheer someone else up.” — [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 14.  “Always borrow money from a pessimist. He won’t expect it back.” — Oscar Wilde
 15.  “My bed is a magical place where I suddenly remember everything I forgot to do.” — Unknown
 16.  “Common sense is like deodorant. The people who need it most never use it.” — Unknown
@@ -52,14 +52,14 @@ A good quote has a way of instantly brightening your day, bringing a smile to yo
 32.  “Happiness is having a large, loving, caring, close-knit family in another city.” — George Burns
 33.  “All you need in this life is ignorance and confidence, and then success is sure.” — Mark Twain
 34.  “Insanity is hereditary; you get it from your children.” — Sam Levenson
-35.  “[Doing nothing](/reasons-to-do-nothing) is hard; you never know when you’re done.” — Unknown
+35.  “[Doing nothing](https://selfsaid.30tools.com/reasons-to-do-nothing) is hard; you never know when you’re done.” — Unknown
 36.  “A smile is the shortest distance between two people.” — Victor Borge
 37.  “It is impossible to live without failing at something, unless you live so cautiously that you might as well not have lived at all.” — J.K. Rowling
 38.  “If life gives you lemons, squirt someone in the eye.” — Cathy Guisewite
 39.  “An optimist laughs to forget; a pessimist forgets to laugh.” — Tom Nansbury
 40.  “Don’t take life too seriously. You’ll never get out of it alive.” — Elbert Hubbard
 41.  “The world is full of magical things patiently waiting for our wits to grow sharper.” — Bertrand Russell
-42.  “Everyone you meet is fighting a battle you know nothing about. Be kind. Always.” — [Robin Williams](/robin-williams-quotes)
+42.  “Everyone you meet is fighting a battle you know nothing about. Be kind. Always.” — [Robin Williams](https://selfsaid.30tools.com/robin-williams-quotes)
 43.  “When life gives you lemons, make lemonade…then find someone whose life has given them vodka, and have a party.” — Ron White
 44.  “If you don’t know where you are going, any road will get you there.” — Lewis Carroll
 45.  “Life isn’t about waiting for the storm to pass. It’s about learning to dance in the rain.” — Vivian Greene
@@ -82,3 +82,5 @@ A good quote has a way of instantly brightening your day, bringing a smile to yo
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/quotes-that-make-you-smile/

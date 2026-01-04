@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/stop-being-a-people-pleaser/'
 
 ![](https://seffsaid.com/wp-content/uploads/stop-being-a-people-pleaser.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Trying to keep everyone happy may seem like a good idea, but it often leads to stress, exhaustion, and resentment. Always putting others first can be harmful in ways that are not immediately obvious. Here are ten reasons why it is important to stop being a people-pleaser.
 
 ## 1\. Your Needs Are Always Ignored
 
-Constantly [saying yes](/say-yes-to-yourself) to others leaves little room for personal wants and needs. Over time, this creates frustration and dissatisfaction. It is impossible to take care of everything for others while neglecting personal well-being.
+Constantly [saying yes](https://selfsaid.30tools.com/say-yes-to-yourself) to others leaves little room for personal wants and needs. Over time, this creates frustration and dissatisfaction. It is impossible to take care of everything for others while neglecting personal well-being.
 
 ## 2\. People Take Advantage of You
 
@@ -42,7 +42,7 @@ True friendships and meaningful relationships require honesty and balance. If so
 
 ## 7\. You Feel Guilty for Saying No
 
-People-pleasers often struggle with guilt when declining requests, even when they are unreasonable. However, setting boundaries is necessary for self-respect and emotional health. The right people will understand and appreciate honesty rather than expecting constant accommodation. [Learn how to say no](/learn-how-to-say-no) here.
+People-pleasers often struggle with guilt when declining requests, even when they are unreasonable. However, setting boundaries is necessary for self-respect and emotional health. The right people will understand and appreciate honesty rather than expecting constant accommodation. [Learn how to say no](https://selfsaid.30tools.com/learn-how-to-say-no) here.
 
 ## 8\. It Lowers Confidence
 
@@ -64,7 +64,7 @@ Another reason is the belief that being helpful is the same as being kind. While
 
 ### **How to Start Setting Boundaries**
 
-The first step is recognizing personal limits and understanding that saying no does not make someone selfish. [Setting boundaries](/boundaries-strengthening) does not mean shutting people out; it simply means protecting time, energy, and emotional well-being.
+The first step is recognizing personal limits and understanding that saying no does not make someone selfish. [Setting boundaries](https://selfsaid.30tools.com/boundaries-strengthening) does not mean shutting people out; it simply means protecting time, energy, and emotional well-being.
 
 Here are a few ways to practice this:
 
@@ -75,9 +75,9 @@ Here are a few ways to practice this:
 
 ### **Choosing Self-Respect Over Approval**
 
-Letting go of people-pleasing does not mean caring less about others. It means respecting personal needs just as much as anyone else’s. [True happiness](/unlock-the-secrets-to-true-happiness) comes from living a life that aligns with personal values, not from seeking constant validation.
+Letting go of people-pleasing does not mean caring less about others. It means respecting personal needs just as much as anyone else’s. [True happiness](https://selfsaid.30tools.com/unlock-the-secrets-to-true-happiness) comes from living a life that aligns with personal values, not from seeking constant validation.
 
-There is nothing wrong with helping others, but it should never come at the cost of self-worth. Prioritizing well-being leads to stronger relationships, better [mental health](/mental-health-quotes), and a greater sense of fulfillment.
+There is nothing wrong with helping others, but it should never come at the cost of self-worth. Prioritizing well-being leads to stronger relationships, better [mental health](https://selfsaid.30tools.com/mental-health-quotes), and a greater sense of fulfillment.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstop-being-a-people-pleaser%2F)
 
@@ -92,3 +92,5 @@ There is nothing wrong with helping others, but it should never come at the cost
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/stop-being-a-people-pleaser/

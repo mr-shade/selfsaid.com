@@ -12,10 +12,10 @@ original_url: 'https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes/'
 
 ![Paulo Coelho](https://seffsaid.com/wp-content/uploads/Paulo-Coelho-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
   
-Discover 20 incredibly inspiring Paulo Coelho [quotes about life](/best-inspirational-life-quotes-of-all-time) that actually have the power to [change your life](/5-simple-daily-habits-that-can-actually-change-your-life). Well, maybe they won’t change your life, but these inspirational quotes can [help motivate you](/self-motivation-motivate-yourself-today) to work harder and smarter and achieve the success you’ve always wanted. I hope you enjoy them. And don’t forget you’ll find more [quotes by famous authors](/quotes-by-famous-people) here.
+Discover 20 incredibly inspiring Paulo Coelho [quotes about life](https://selfsaid.30tools.com/best-inspirational-life-quotes-of-all-time) that actually have the power to [change your life](https://selfsaid.30tools.com/5-simple-daily-habits-that-can-actually-change-your-life). Well, maybe they won’t change your life, but these inspirational quotes can [help motivate you](https://selfsaid.30tools.com/self-motivation-motivate-yourself-today) to work harder and smarter and achieve the success you’ve always wanted. I hope you enjoy them. And don’t forget you’ll find more [quotes by famous authors](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 1.  “Be brave. Take risks. Nothing can substitute experience.” – Paulo Coelho
 2.  “And when you want something, all the universe conspires in helping you to achieve it.” – Paulo Coelho
@@ -51,3 +51,5 @@ Discover 20 incredibly inspiring Paulo Coelho [quotes about life](/best-inspirat
 [More](#)
 
 20.52K Shares
+
+Source: https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes/

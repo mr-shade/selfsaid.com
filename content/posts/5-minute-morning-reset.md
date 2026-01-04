@@ -13,13 +13,13 @@ original_url: 'https://selfsaid.30tools.com/5-minute-morning-reset/'
 
 ![](https://seffsaid.com/wp-content/uploads/5-Minute-Morning-Reset.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I’ve had a complicated relationship with mornings. For a long time, they felt like the start of a daily race I never signed up for. I’d open my eyes and feel anxiety already humming in my chest, heart beating faster, mind jumping ahead to the dozen things I hadn’t even started yet.
 
 I tried to fix it the usual way: elaborate morning routines. I downloaded habit trackers, followed influencer schedules, and tried to squeeze meditation, yoga, lemon water, journaling, and goal-setting into the first 30 minutes of my day. It was exhausting.
 
-Eventually, I gave up the performance and asked myself one question: _What actually helps me feel better, right now, in real life?_ That question led me to build an [everyday self-care routine](/everyday-self-care-routine) based on a few simple habits, including this five-minute reset.
+Eventually, I gave up the performance and asked myself one question: _What actually helps me feel better, right now, in real life?_ That question led me to build an [everyday self-care routine](https://selfsaid.30tools.com/everyday-self-care-routine) based on a few simple habits, including this five-minute reset.
 
 The answer surprised me. It wasn’t a ritual or a program. It was a tiny, quiet shift. A five-minute reset that’s now the one part of my morning I never skip.
 
@@ -33,11 +33,11 @@ I don’t rush out of bed. I sit up. I breathe. Five slow breaths. I notice how 
 
 ### 2\. Put one hand on my chest, one on my belly (30 seconds)
 
-This sounds weird, but it helps. The touch grounds me. It slows my breathing. It reconnects me with my body before my brain takes over. (When I need a moment like this later in the day, I often reach for [a glass of water](/grounding-power-of-drinking-water) – it’s another way I ground myself.)
+This sounds weird, but it helps. The touch grounds me. It slows my breathing. It reconnects me with my body before my brain takes over. (When I need a moment like this later in the day, I often reach for [a glass of water](https://selfsaid.30tools.com/grounding-power-of-drinking-water) – it’s another way I ground myself.)
 
 ### 3\. Ask myself: “What do I need right now?” (1 minute)
 
-Sometimes the answer is water. Sometimes it’s courage. Sometimes it’s rest, even if I can’t have it yet. Naming the need helps me move through the day with more awareness. I sometimes write it down as [one line in my journal](/one-line-journaling), which has become a quiet practice I actually keep.
+Sometimes the answer is water. Sometimes it’s courage. Sometimes it’s rest, even if I can’t have it yet. Naming the need helps me move through the day with more awareness. I sometimes write it down as [one line in my journal](https://selfsaid.30tools.com/one-line-journaling), which has become a quiet practice I actually keep.
 
 ### 4\. Drink a glass of water (1 minute)
 
@@ -51,7 +51,7 @@ That’s it. Five minutes. No pressure. No perfection.
 
 ## Why This Works (For Me)
 
-It’s not that this reset [solves my anxiety](/anxiety-quotes). It doesn’t. But it gives me something anxiety usually steals: a sense of **choice**.
+It’s not that this reset [solves my anxiety](https://selfsaid.30tools.com/anxiety-quotes). It doesn’t. But it gives me something anxiety usually steals: a sense of **choice**.
 
 Instead of being dragged into the day, I step into it. Slowly. On purpose.
 
@@ -68,7 +68,7 @@ This reset doesn’t care if you’re perfect. It just wants to remind you that 
 
 If you’re struggling with anxious mornings or just tired of waking up already behind, this tiny practice might help. You don’t need a perfect routine. Just a moment of pause, a breath, and a little space to come home to yourself.
 
-\> Want more low-pressure self-care habits that actually stick? [Check out The Everyday Self-Care Routine: 7 Habits That Actually Stick](/everyday-self-care-routine).
+\> Want more low-pressure self-care habits that actually stick? [Check out The Everyday Self-Care Routine: 7 Habits That Actually Stick](https://selfsaid.30tools.com/everyday-self-care-routine).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F5-minute-morning-reset%2F)
 
@@ -83,3 +83,5 @@ If you’re struggling with anxious mornings or just tired of waking up already 
 [More](#)
 
 9 Shares
+
+Source: https://selfsaid.30tools.com/5-minute-morning-reset/

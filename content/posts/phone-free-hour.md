@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/phone-free-hour/'
 
 ![](https://seffsaid.com/wp-content/uploads/phone-free-hour.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 My phone is the first thing I reach for in the morning and the last thing I put down at night – at least, that’s how it used to be. I’d tell myself I was just checking the time or replying to a message, but somehow, 30 seconds turned into 30 minutes.
 
@@ -20,7 +20,7 @@ It wasn’t just the time I was losing. It was my focus, my calm, my presence.
 
 I didn’t want to quit my phone entirely. I just wanted to feel like I was in charge of it, not the other way around. So I tried something small: one phone-free hour a day.
 
-It felt impossible at first. But eventually, it became one of the most grounding parts of my [self-care routine](/create-a-self-care-routine-that-works).
+It felt impossible at first. But eventually, it became one of the most grounding parts of my [self-care routine](https://selfsaid.30tools.com/create-a-self-care-routine-that-works).
 
 ## Why I Needed a Phone-Free Hour
 
@@ -35,7 +35,7 @@ This wasn’t about punishment. It was about peace.
 
 1.  **I picked a consistent time.** For me, it was the hour after dinner. I was already winding down, and it felt like a natural break.
 2.  **I set my phone in another room.** Out of sight, out of mind. If I left it nearby, I’d reach for it without thinking.
-3.  **I gave myself something to do instead.** Not a to-do list, just a gentle activity. Reading. Journaling. Washing dishes. Sitting in silence. [Doing one thing slowly](/doing-one-thing-slowly) made the hour feel like a gift, not a punishment.
+3.  **I gave myself something to do instead.** Not a to-do list, just a gentle activity. Reading. Journaling. Washing dishes. Sitting in silence. [Doing one thing slowly](https://selfsaid.30tools.com/doing-one-thing-slowly) made the hour feel like a gift, not a punishment.
 4.  **I didn’t expect it to feel amazing right away.** It was uncomfortable at first. I felt restless and twitchy. But that discomfort passed, and what came after was calm.
 
 ## What Changed (And What Didn’t)
@@ -49,11 +49,11 @@ I won’t pretend I never break the rule. I do. But this one small habit, one ph
 
 ## If You Want to Try This Too
 
-Start with 20 minutes if an hour feels like too much. Pair it with a grounding habit like [drinking water with intention](/grounding-power-of-drinking-water) or [writing one line in a journal](/one-line-journaling).
+Start with 20 minutes if an hour feels like too much. Pair it with a grounding habit like [drinking water with intention](https://selfsaid.30tools.com/grounding-power-of-drinking-water) or [writing one line in a journal](https://selfsaid.30tools.com/one-line-journaling).
 
 You don’t have to do it every day. Just enough to remember what it feels like to be _with yourself_, without a screen in the way.
 
-\> This is one of several habits in my [Everyday Self-Care Routine](/everyday-self-care-routine), alongside other gentle practices like a [five-minute morning reset](/5-minute-morning-reset) and [the case for doing nothing](/the-case-for-doing-nothing).
+\> This is one of several habits in my [Everyday Self-Care Routine](https://selfsaid.30tools.com/everyday-self-care-routine), alongside other gentle practices like a [five-minute morning reset](https://selfsaid.30tools.com/5-minute-morning-reset) and [the case for doing nothing](https://selfsaid.30tools.com/the-case-for-doing-nothing).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fphone-free-hour%2F)
 
@@ -68,3 +68,5 @@ You don’t have to do it every day. Just enough to remember what it feels like 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/phone-free-hour/

@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/40-simple-ways-to-pay-it-forward-eve
 
 ![Hands reaching out to help each other in kindness](https://seffsaid.com/wp-content/uploads/pay-it-forward.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I love the concept of ‘paying it forward’ and practice it regularly. I figured most people knew of the idea but was surprised to learn recently that although quite a few of my friends had heard of the film ‘Pay It Forward’, they had never heard of the principle… so fast forward to this article where I explain the concept and a few suggestions on how you can put it into practice.
 
 The idea behind ‘pay it forward’ is that when someone does something kind to you, instead of reciprocating the deed back directly, you pass it on to somebody else, hence the phrase, pay it forward. The theory is that not only will you make another person happy, you will also set in motion a chain reaction that can make a positive difference in the world.
 
-Of course, you don’t have to wait until someone does you a good deed. You can be the one who sets it all in motion by performing the first [act of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer). Need some inspiration? Below you will find 40 simple selfless ways you can pay it forward starting today.
+Of course, you don’t have to wait until someone does you a good deed. You can be the one who sets it all in motion by performing the first [act of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer). Need some inspiration? Below you will find 40 simple selfless ways you can pay it forward starting today.
 
 1.  **Buy Coffee for the Next Person in Line**: Next time you’re at a coffee shop, surprise someone behind you by paying for their order. This small act of kindness can uplift their mood and inspire them to do something kind for another.
 2.  **Leave a Generous Tip**: Show appreciation for service workers by leaving a generous tip. It’s a direct way to acknowledge their effort and hard work, making their day a bit brighter.
@@ -30,7 +30,7 @@ Of course, you don’t have to wait until someone does you a good deed. You can 
 8.  **Give Up Your Seat**: If you’re on public transport and see someone who might need a seat more than you, offer yours. It’s an act of kindness that respects others’ comfort and needs.
 9.  **Help a Neighbor**: Whether it’s carrying groceries or helping with yard work, offering a hand to a neighbor fosters community and goodwill.
 10.  **Cook a Meal for a Friend**: Cooking a meal for someone can be a heartwarming gesture, especially if they’re going through a challenging time. It shows care and provides comfort.
-11.  **Write a Thank-You Note**: [Expressing gratitude](/how-to-cultivate-an-attitude-of-gratitude) with a handwritten note can make someone feel deeply appreciated. It’s a personal touch that shows you truly value their kindness.
+11.  **Write a Thank-You Note**: [Expressing gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) with a handwritten note can make someone feel deeply appreciated. It’s a personal touch that shows you truly value their kindness.
 12.  **Donate Blood**: Donating blood is a powerful way to give back, potentially saving lives. It’s a gesture of profound kindness to those in need.
 13.  **Share Expertise for Free**: If you have knowledge or skills in a particular area, consider helping someone who could benefit from it. Sharing your expertise can empower others and foster a sense of community.
 14.  **Plant a Tree**: Planting a tree benefits the environment and future generations. It’s a gesture that shows care for the planet and its long-term health.
@@ -80,3 +80,5 @@ Pin3.61K
 [More](#)
 
 3.61K Shares
+
+Source: https://selfsaid.30tools.com/40-simple-ways-to-pay-it-forward-every-day/

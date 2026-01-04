@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/kamala-harris-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Kamala-Harris-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 These quotes reflect a range of Kamala Harris’s thoughts and perspectives on leadership, justice, equality, and hope.
 
@@ -118,7 +118,7 @@ These quotes reflect a range of Kamala Harris’s thoughts and perspectives on l
 
 “You may be the first to do many things, but make sure you’re not the last.” – Kamala Harris
 
-Read more [quotes by politicians](/quotes-by-famous-people) here.
+Read more [quotes by politicians](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fkamala-harris-quotes%2F)
 
@@ -133,3 +133,5 @@ Read more [quotes by politicians](/quotes-by-famous-people) here.
 [More](#)
 
 26 Shares
+
+Source: https://selfsaid.30tools.com/kamala-harris-quotes/

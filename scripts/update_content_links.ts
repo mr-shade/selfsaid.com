@@ -22,7 +22,8 @@ function updateFiles() {
         let hasChanges = false;
 
         // 1. Fix relative links: [text](/slug) -> [text](https://base/slug)
-        const linkRegex = /\[([^\]]+)\]\((/[^)]+)\)/g;
+        // Capture group 1: Text, Capture group 2: URL starting with /
+        const linkRegex = /\[([^\]]+)\]\((\/[^)]+)\)/g;
         if (linkRegex.test(content)) {
             content = content.replace(linkRegex, (match, text, url) => {
                 return `[${text}](${BASE_URL}${url})`;
@@ -33,7 +34,7 @@ function updateFiles() {
         // 2. Add Source link at end if not present
         // Matches "Source: https://selfsaid.30tools.com/slug/"
         const sourceLine = `Source: ${BASE_URL}/${slug}/`;
-        
+
         // Check if ANY source link exists to avoid duplicates or piling up
         if (!content.includes(`Source: ${BASE_URL}`)) {
             // Ensure there's a newline before appending

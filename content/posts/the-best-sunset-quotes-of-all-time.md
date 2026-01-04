@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/the-best-sunset-quotes-of-all-time/'
 
 ![192 Quotes on the Beauty of Sunsets](https://seffsaid.com/wp-content/uploads/sunset-quotes-1024x576-1.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 What comes to mind when you watch a spectacular sunset? Maybe romantic feelings, a deep-felt love for life, or maybe a connection to the universe?
 
@@ -99,7 +99,7 @@ While no words, photos, or videos can truly capture the beauty of watching a glo
 77.  “Life is all about enjoying every sunset and looking forward to the next sunrise.” – Anonymous
 78.  “A day spent with dreaming and sunsets and refreshing breezes cannot be bettered.” – Nicholas Sparks
 79.  “Life does not come with instructions on how to live, but it does come with trees, sunsets, smiles and laughter, so enjoy your day.” – Debbie Shapiro
-80.  “Don’t forget: beautiful sunsets need cloudy skies.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+80.  “Don’t forget: beautiful sunsets need cloudy skies.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 81.  “Feelings aroused by the touch of someone’s hand, the sound of music, the smell of a flower, a beautiful sunset, a work of art, love, laughter, hope and faith – all work on both the unconscious and the conscious aspects of the self, and they have physiological consequences as well.” – Bernie Siegel
 82.  “I can count on my fingers the number of sunsets I have left, and I don’t want to miss any of them.” – Suzanne Collins
 83.  “Even the most beautiful days eventually have their sunsets.” – Anonymous
@@ -226,3 +226,5 @@ While no words, photos, or videos can truly capture the beauty of watching a glo
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/the-best-sunset-quotes-of-all-time/

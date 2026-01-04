@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/ways-to-be-kinder-to-yourself/'
 
 ![Man sitting on a beautiful beach relaxing.](https://seffsaid.com/wp-content/uploads/kind-to-self.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When life feels busy or heavy, kindness toward yourself often falls to the bottom of the list. You give your best to work, family, and responsibilities, but rarely pause to notice your own needs. Over time, this lack of self-kindness can leave you drained, critical of yourself, and less able to enjoy life.
 
@@ -22,11 +22,11 @@ Here are nine simple ways to begin.
 
 ## 1\. Speak kindly to yourself
 
-Your inner voice shapes how you feel about yourself. If you constantly criticise, you reinforce a sense of failure and pressure. Imagine how you would speak to a close friend or a child—then try offering yourself the same compassion. When you catch harsh self-talk, pause and reframe it. Instead of “I always mess up,” try “I am still learning.” Over time, these changes soften the [inner critic](/how-i-silenced-my-inner-critic) and replace it with an inner coach.
+Your inner voice shapes how you feel about yourself. If you constantly criticise, you reinforce a sense of failure and pressure. Imagine how you would speak to a close friend or a child—then try offering yourself the same compassion. When you catch harsh self-talk, pause and reframe it. Instead of “I always mess up,” try “I am still learning.” Over time, these changes soften the [inner critic](https://selfsaid.30tools.com/how-i-silenced-my-inner-critic) and replace it with an inner coach.
 
 ## 2\. Acknowledge your achievements
 
-We often focus on what we have not done and overlook what we have managed. Take a few minutes each day to notice your small victories. It might be finishing a task at work, cooking a meal, or simply getting through a [tough day](/emotional-healing-quotes). Write them down in a journal or say them out loud. This habit reminds you that progress is happening and that your effort counts, even if the results are not perfect.
+We often focus on what we have not done and overlook what we have managed. Take a few minutes each day to notice your small victories. It might be finishing a task at work, cooking a meal, or simply getting through a [tough day](https://selfsaid.30tools.com/emotional-healing-quotes). Write them down in a journal or say them out loud. This habit reminds you that progress is happening and that your effort counts, even if the results are not perfect.
 
 ## 3\. Give yourself permission to rest
 
@@ -42,7 +42,7 @@ Being kind to yourself includes protecting your energy. If you say yes to everyt
 
 ## 6\. Allow yourself to make mistakes
 
-No one lives without mistakes. They are not proof of failure, they are evidence that you are trying, learning, and growing. Instead of punishing yourself, see mistakes as information. Ask, “What can this teach me?” and then [move forward](/quotes-about-getting-back-up-and-moving-forwards-after-failure). Remember, the people you admire most are not perfect, they are resilient. Being kind to yourself means giving yourself permission to get it wrong and keep going.
+No one lives without mistakes. They are not proof of failure, they are evidence that you are trying, learning, and growing. Instead of punishing yourself, see mistakes as information. Ask, “What can this teach me?” and then [move forward](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure). Remember, the people you admire most are not perfect, they are resilient. Being kind to yourself means giving yourself permission to get it wrong and keep going.
 
 ## 7\. Spend time doing what you enjoy
 
@@ -75,3 +75,5 @@ Kindness toward yourself will not erase every challenge, but it will give you th
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/ways-to-be-kinder-to-yourself/

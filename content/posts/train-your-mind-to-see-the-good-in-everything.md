@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/train-your-mind-to-see-the-good-in-e
 
 ![Train Your Mind To See The Good In Everything](https://seffsaid.com/wp-content/uploads/Train-your-mind-to-see-the-good-in-everything.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## Train Your Mind To See The Good In Everything
 
@@ -37,3 +37,5 @@ The underlying message of the quote is that our perception of the world is great
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/train-your-mind-to-see-the-good-in-everything/

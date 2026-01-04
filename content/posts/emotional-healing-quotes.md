@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/emotional-healing-quotes/'
 
 ![Emotional Healing Quotes](https://seffsaid.com/wp-content/uploads/emotional-healing-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Some days hurt more than others. Whether it’s grief, burnout, heartache, or just quiet exhaustion, healing doesn’t happen all at once. It unfolds slowly – in pauses, in breaths, in words that help you feel a little less alone.
 
@@ -47,7 +47,7 @@ These 60 quotes are steady reminders that emotional healing is possible, even on
 ## When You Need to Let Go
 
 21.  “Let go of what’s no longer yours to carry.” – Seff Bray
-22.  “[You don’t have to fix everything](/you-dont-have-to-fix-everything) to move forward.” – Unknown
+22.  “[You don’t have to fix everything](https://selfsaid.30tools.com/you-dont-have-to-fix-everything) to move forward.” – Unknown
 23.  “Not everything deserves space in your heart forever.” – Seff Bray
 24.  “It’s okay to walk away from what hurt you.” – Unknown
 25.  “Holding on too long is a form of self-abandonment.” – Seff Bray
@@ -74,7 +74,7 @@ These 60 quotes are steady reminders that emotional healing is possible, even on
 
 41.  “Be gentle with yourself. You’re doing the best you can.” – Unknown
 42.  “Talk to yourself like you would to someone you love.” – Brené Brown
-43.  “[You can’t pour from an empty cup](/you-cant-pour-from-an-empty-cup).” – Unknown
+43.  “[You can’t pour from an empty cup](https://selfsaid.30tools.com/you-cant-pour-from-an-empty-cup).” – Unknown
 44.  “Give yourself the same kindness you offer others.” – Seff Bray
 45.  “Your inner voice deserves to be soft, not sharp.” – Seff Bray
 46.  “You don’t need to be anyone else to be enough.” – Unknown
@@ -109,3 +109,5 @@ These 60 quotes are steady reminders that emotional healing is possible, even on
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/emotional-healing-quotes/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/anxiety-quotes/'
 
 ![Anxious woman](https://seffsaid.com/wp-content/uploads/anxiety-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Anxiety can feel like noise in the mind – thoughts racing, heart pounding, peace slipping out of reach. But even in the middle of it, calm is possible.
 
@@ -24,7 +24,7 @@ Each section offers a different kind of calm, whether you’re looking for reass
 
 1.  “This feeling is uncomfortable, not dangerous.” – Unknown
 2.  “Anxiety tells stories that aren’t always true.” – Seff Bray
-3.  “You’re not broken. [You’re just overwhelmed](/gentle-reminder-overwhelmed).” – Seff Bray
+3.  “You’re not broken. [You’re just overwhelmed](https://selfsaid.30tools.com/gentle-reminder-overwhelmed).” – Seff Bray
 4.  “You are not your thoughts. You are the one listening to them.” – Unknown
 5.  “Right now, your only job is to breathe.” – Seff Bray
 6.  “You don’t have to believe every anxious thought.” – Unknown
@@ -77,7 +77,7 @@ Each section offers a different kind of calm, whether you’re looking for reass
 41.  “You don’t have to hold it all together.” – Unknown
 42.  “Let go of being perfect. Be present instead.” – Seff Bray
 43.  “You’re allowed to lower the bar today.” – Seff Bray
-44.  “[There’s nothing wrong with slowing dow](/the-case-for-doing-nothing)n.” – Unknown
+44.  “[There’s nothing wrong with slowing dow](https://selfsaid.30tools.com/the-case-for-doing-nothing)n.” – Unknown
 45.  “The more you soften, the easier things become.” – Seff Bray
 46.  “It’s okay to take breaks, even from your thoughts.” – Seff Bray
 47.  “Let go of the need to be unshakable. Be real instead.” – Unknown
@@ -111,3 +111,5 @@ Each section offers a different kind of calm, whether you’re looking for reass
 [More](#)
 
 9 Shares
+
+Source: https://selfsaid.30tools.com/anxiety-quotes/

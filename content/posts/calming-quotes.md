@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/calming-quotes/'
 
 ![Calming Quotes](https://seffsaid.com/wp-content/uploads/calming-quotes-600x300-1.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Overwhelm doesn’t always come from something big. Sometimes it’s just too many small things, all asking for your attention at once. When life starts to feel heavy, a few quiet words can help bring you back to center.
 
@@ -66,7 +66,7 @@ Let these words be a soft place to land when the day gets too loud.
 33.  “Quiet is a kind of strength.” – Seff Bray
 34.  “One breath at a time is still a way forward.” – Unknown
 35.  “It’s okay to log off, turn away, or say no.” – Seff Bray
-36.  “[Feeling overwhelmed](/gentle-reminder-overwhelmed) doesn’t mean you’re weak. It means you’re human.” – Unknown
+36.  “[Feeling overwhelmed](https://selfsaid.30tools.com/gentle-reminder-overwhelmed) doesn’t mean you’re weak. It means you’re human.” – Unknown
 37.  “You are more than this moment.” – Seff Bray
 38.  “Come back to your breath. Let that be enough.” – Seff Bray
 39.  “You don’t have to push through everything.” – Unknown
@@ -89,7 +89,7 @@ Let these words be a soft place to land when the day gets too loud.
 
 If today feels loud, tangled, or just a little too full, pause here. Reread one or two quotes slowly. Let them settle.
 
-[There’s no need to fix everything right now](/you-dont-have-to-fix-everything). Sometimes, it’s enough to just soften the noise inside your head and remind yourself: you are allowed to take care of your peace.
+[There’s no need to fix everything right now](https://selfsaid.30tools.com/you-dont-have-to-fix-everything). Sometimes, it’s enough to just soften the noise inside your head and remind yourself: you are allowed to take care of your peace.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcalming-quotes%2F)
 
@@ -104,3 +104,5 @@ If today feels loud, tangled, or just a little too full, pause here. Reread one 
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/calming-quotes/

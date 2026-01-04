@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/the-case-for-doing-nothing/'
 
 ![](https://seffsaid.com/wp-content/uploads/Case-for-Doing-Nothing.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There are days when I feel like I’ve done everything, and nothing at all. I’ve ticked off boxes, replied to emails, kept up with people, kept things moving… but inside, I feel strangely absent. Unseen. Tired in a way that sleep doesn’t touch.
 
@@ -58,9 +58,9 @@ Stillness is not a reward. It’s a need. My worth isn’t measured by productiv
 
 To be clear: doing nothing isn’t the same as shutting down or checking out. It’s not avoidance. It’s an _intentional_ pause. A way to come home to yourself in the quiet.
 
-For me, it works best alongside other small, grounding habits like [drinking water](/grounding-power-of-drinking-water), [one-line journaling](/one-line-journaling), or [doing one thing slowly](/doing-one-thing-slowly). These are all ways I remind myself that being is enough.
+For me, it works best alongside other small, grounding habits like [drinking water](https://selfsaid.30tools.com/grounding-power-of-drinking-water), [one-line journaling](https://selfsaid.30tools.com/one-line-journaling), or [doing one thing slowly](https://selfsaid.30tools.com/doing-one-thing-slowly). These are all ways I remind myself that being is enough.
 
-\> If you’re interested in how small practices like this can shape a more grounded life, explore my [Everyday Self-Care Routine](/everyday-self-care-routine).
+\> If you’re interested in how small practices like this can shape a more grounded life, explore my [Everyday Self-Care Routine](https://selfsaid.30tools.com/everyday-self-care-routine).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fthe-case-for-doing-nothing%2F)
 
@@ -75,3 +75,5 @@ For me, it works best alongside other small, grounding habits like [drinking wat
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/the-case-for-doing-nothing/

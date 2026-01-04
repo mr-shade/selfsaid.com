@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/planner-ideas/'
 
 ![](https://seffsaid.com/wp-content/uploads/planner-ideas.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Have you just bought a planner or are interested in starting planning? Perhaps you have been using a personal organizer for a while and would like to expand your range of inserts? Discover what are the ‘must-have’ planner pages for your personal planner. The pages you must have but didn’t know you needed!
 
@@ -42,20 +42,20 @@ Another great planner idea and an important insert to include in your planner ar
 
 ## 6\. Goal Planner
 
-Do you have life goals you’d like to accomplish? Maybe you have work-related goals or projects you’d like to undertake at home? You need to get yourself a Goal Planner. It will make setting goals a breeze and will boost your motivation and [increase productivity](/easy-ways-to-increase-productivity-today) tenfold.
+Do you have life goals you’d like to accomplish? Maybe you have work-related goals or projects you’d like to undertake at home? You need to get yourself a Goal Planner. It will make setting goals a breeze and will boost your motivation and [increase productivity](https://selfsaid.30tools.com/easy-ways-to-increase-productivity-today) tenfold.
 
-[Breaking the goal into small steps](/how-to-break-a-big-task-into-small-steps) will make planning, tracking your success, and finally achieving your goals so much easier. Start enabling yourself for success today.
+[Breaking the goal into small steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps) will make planning, tracking your success, and finally achieving your goals so much easier. Start enabling yourself for success today.
 
 ## 7\. Habit Tracker
 
 Another great addition to your personal planner is a habit tracker. As you’ve probably deduced, a habit tracker is a way to record whether you performed a habit.
 
-And why do you need one? Because it’s a great way to help you start new [daily habits](/daily-habits-that-keep-holding-us-back) that are chosen by yourself to improve certain aspects of your life. These could include habits to improve your health such as cardio or yoga, or habits to improve your home such as DIY projects.
+And why do you need one? Because it’s a great way to help you start new [daily habits](https://selfsaid.30tools.com/daily-habits-that-keep-holding-us-back) that are chosen by yourself to improve certain aspects of your life. These could include habits to improve your health such as cardio or yoga, or habits to improve your home such as DIY projects.
 
 A habit tracker works so effectively for three main reasons:  
 • You have a visual cue that reminds you of what you want to achieve.  
 • Having a chart of your progress keeps you motivated.  
-• You’ll have a record of your success at the [end of the month](/end-of-the-month-quotes).
+• You’ll have a record of your success at the [end of the month](https://selfsaid.30tools.com/end-of-the-month-quotes).
 
 ## 8\. Birthday Tracker
 
@@ -124,3 +124,5 @@ Pin40
 [More](#)
 
 40 Shares
+
+Source: https://selfsaid.30tools.com/planner-ideas/

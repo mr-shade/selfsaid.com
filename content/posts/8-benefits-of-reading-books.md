@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/8-benefits-of-reading-books/'
 
 ![](https://seffsaid.com/wp-content/uploads/benefits-of-reading-books.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Reading books is one of the easiest, cheapest, and most satisfying hobbies. It is a pastime enjoyed by millions of people each and every day. But why do we enjoy it so much? And why is it so good for us?
 
@@ -28,13 +28,13 @@ In reading books, both fiction and non-fiction, you will often encounter unknown
 
 ## 3\. It lowers stress
 
-In immersing yourself in a story, you will [leave your stresses and worries behind](/12-natural-ways-to-reduce-your-stress-levels). An absorbing book can effectively take you into another world. It can help you to stop worrying about problems and dilemmas in your life, allowing you to rest and relax.
+In immersing yourself in a story, you will [leave your stresses and worries behind](https://selfsaid.30tools.com/12-natural-ways-to-reduce-your-stress-levels). An absorbing book can effectively take you into another world. It can help you to stop worrying about problems and dilemmas in your life, allowing you to rest and relax.
 
 Whilst we can’t escape our problems in everyday life (neither should we – we need to face them and solve them), it is very healthy to have a break from these stresses and strains.
 
 A good book can be like a holiday for your mind. Reading is the perfect escapism, allowing you to travel into other people’s lives. To visit other places, cultures, planets, and planes of existence.
 
-If you practice reading regularly, you will find that you are easily transported into the pages of the books. You will live and breathe the lives of the people in these stories and your [stress levels](/stress-levels-out-of-control) will lower substantially.
+If you practice reading regularly, you will find that you are easily transported into the pages of the books. You will live and breathe the lives of the people in these stories and your [stress levels](https://selfsaid.30tools.com/stress-levels-out-of-control) will lower substantially.
 
 ## 4\. It eases depression
 
@@ -58,7 +58,7 @@ This is wonderful as it stimulates the part of the brain that deals with imagina
 
 ## 8\. It improves the quality of your sleep
 
-All kinds of reading, but fiction especially, can [boost the quality of your sleep](/how-to-fall-asleep-fast). Absorbing yourself in a story can de-stress and relax you and, in so doing, allow you to achieve restful sleep more quickly and for a more extended period of time.
+All kinds of reading, but fiction especially, can [boost the quality of your sleep](https://selfsaid.30tools.com/how-to-fall-asleep-fast). Absorbing yourself in a story can de-stress and relax you and, in so doing, allow you to achieve restful sleep more quickly and for a more extended period of time.
 
 Regularly dedicating time to reading before bedtime can help build the habit of unwinding and readying the body and mind for sleep. You don’t have to do a lot, just a few chapters, to feel the benefit of the peacefulness of reading.
 
@@ -79,3 +79,5 @@ So go crack open a great book and you’ll start feeling the benefits of reading
 [More](#)
 
 19 Shares
+
+Source: https://selfsaid.30tools.com/8-benefits-of-reading-books/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/flow-state-of-mind/'
 
 ![Woman running while in a flow state of mind.](https://seffsaid.com/wp-content/uploads/flow-state-of-mind.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## Introduction
 
@@ -26,7 +26,7 @@ Stress had been building, work had been taking precedence over most things and I
   
 But here’s the thing, I found that I just couldn’t access that elusive state of flow. I’d sit down and start playing and something else would pop into my head; a chore I hadn’t completed, a light I’d left on or a window that needed opening or closing, a conversation I’d had earlier in the day, work or chores that I hadn’t finished. My mind would wander constantly and I found it almost impossible to do what I had intended, to play and be in a little world of complete relaxation. So what had changed?  
   
-I believe the answer is that I had changed. Not in my core, not the person I truly am, but my habits had changed hugely compared to when I was younger. I’m not talking about my physical habits so much as my mental ones. I had simply not been in the habit of accessing a [focused state of mind](/how-i-cultivated-a-focused-state-of-mind). It is, after all, a habit like anything else and when we become stressed over time, our minds can adopt the habit of finding things to worry about.   
+I believe the answer is that I had changed. Not in my core, not the person I truly am, but my habits had changed hugely compared to when I was younger. I’m not talking about my physical habits so much as my mental ones. I had simply not been in the habit of accessing a [focused state of mind](https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind). It is, after all, a habit like anything else and when we become stressed over time, our minds can adopt the habit of finding things to worry about.   
   
 The solution was very simple: keep trying. And that’s exactly what I did. Slowly but surely I found that I would get more absorbed into the actual action of playing, of reading the music, of finding the right touch and the right dynamics for the piece I was playing, and, above all, simply enjoying music again.
 
@@ -46,7 +46,7 @@ Experimenting with different activities can help you find something that not onl
 
 ### 2\. Meditation
 
-Many people use meditation as the ultimate way to find a flow state, plus the [benefits of meditation](/benefits-of-meditation) are numerous. It can be a deeply relaxing and rewarding habit to adopt and, as a keen meditator myself, I recommend it. Like with my experience with the guitar, it does take patience, but setting small goals and working up from shorter to longer sessions will bear fruit, bringing you into a blissful state of flow over time.
+Many people use meditation as the ultimate way to find a flow state, plus the [benefits of meditation](https://selfsaid.30tools.com/benefits-of-meditation) are numerous. It can be a deeply relaxing and rewarding habit to adopt and, as a keen meditator myself, I recommend it. Like with my experience with the guitar, it does take patience, but setting small goals and working up from shorter to longer sessions will bear fruit, bringing you into a blissful state of flow over time.
 
 Guided meditations can be a great way to start and may even become your go-to method as you gain experience, as many of them bring a wealth of experience and information from experienced meditators along with each session. Finding a quiet place with few distractions will help at the beginning, although some people report that they can slip into flow even in a crowded and noisy situation if they have become accustomed to it and find the session engrossing enough.
 
@@ -96,7 +96,7 @@ The consumption of caffeine is contentious and some people should avoid it for h
 
 ## Final thoughts
 
-Once you are in a flow state, you can stay there for as long as you hold your relaxed concentration. Be sure to look after your eyes and body by [taking breaks](/why-taking-breaks-is-part-of-the-work) from close-up work, stretching, and getting exercise if your activity is seated.   
+Once you are in a flow state, you can stay there for as long as you hold your relaxed concentration. Be sure to look after your eyes and body by [taking breaks](https://selfsaid.30tools.com/why-taking-breaks-is-part-of-the-work) from close-up work, stretching, and getting exercise if your activity is seated.   
   
 I hope these nine tips and my own experience will help you find your relaxed flow state. If it doesn’t happen quickly or easily for you then please don’t give up. Try the tips with the adjustments suggested and be sure to practice regularly for a few weeks. I’m sure you can succeed with just a little time and patience!
 
@@ -113,3 +113,5 @@ I hope these nine tips and my own experience will help you find your relaxed flo
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/flow-state-of-mind/

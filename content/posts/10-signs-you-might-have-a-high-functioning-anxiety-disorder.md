@@ -13,7 +13,7 @@ original_url: >-
 
 ![Man with High-Functioning Anxiety Disorder looking out of a window into his garden](https://seffsaid.com/wp-content/uploads/High-Functioning-Anxiety-Disorder.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Anxiety is a word that we encounter more and more in this modern, high-paced world. We all feel tense at times and we all have to be able to deal with stress and pressure, no matter our lifestyle and life choices. High-functioning anxiety is when a person is seemingly able to lead a normal life, despite high levels of anxiety. They suffer just as much, but they are high-achievers and their anxiety is, to most people in their lives, a hidden disability. This level of anxiety is incredibly common although it manifests in different ways in different people. Here are some of the warning signs that you may be suffering from high-functioning anxiety:
 
@@ -47,7 +47,7 @@ This level of distraction significantly undermines productivity and the ability 
 
 ## 6\. You suffer from constant negative self-talk
 
-Many of us can indeed be critical of ourselves, but for those experiencing high levels of anxiety, this self-criticism intensifies into a relentless stream of negative self-talk. This internal monologue, often referred to as our “[inner critic](/how-i-silenced-my-inner-critic),” can be harsh and unforgiving, constantly highlighting flaws, mistakes, and inadequacies. This pervasive negative self-talk is a common symptom of high-functioning anxiety, particularly among those who strive for perfection in all aspects of life.
+Many of us can indeed be critical of ourselves, but for those experiencing high levels of anxiety, this self-criticism intensifies into a relentless stream of negative self-talk. This internal monologue, often referred to as our “[inner critic](https://selfsaid.30tools.com/how-i-silenced-my-inner-critic),” can be harsh and unforgiving, constantly highlighting flaws, mistakes, and inadequacies. This pervasive negative self-talk is a common symptom of high-functioning anxiety, particularly among those who strive for perfection in all aspects of life.
 
 ## 7\. You have physical pain
 
@@ -88,3 +88,5 @@ Remember that most of us worry from time to time and some of us worry a lot of t
 [More](#)
 
 10 Shares
+
+Source: https://selfsaid.30tools.com/10-signs-you-might-have-a-high-functioning-anxiety-disorder/

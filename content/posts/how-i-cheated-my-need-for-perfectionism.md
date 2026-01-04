@@ -11,7 +11,7 @@ original_url: 'https://selfsaid.30tools.com/how-i-cheated-my-need-for-perfection
 
 ![](https://seffsaid.com/wp-content/uploads/How-I-Cheated-My-Need-For-Perfectionism.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I’ve been trimming and tidying my lavender bed today. It’s a small area near the end of my property, a beautiful row of lavender bushes that my husband helped me plant shortly after my father’s death a few years ago. It’s a special little place for me and I go there often, enjoying the scented tranquillity, the contented hum of bees and the circling of passionate butterflies.
 
@@ -29,7 +29,7 @@ But in the garden I have found a way to cheat this over-active conscience and my
 
 I focus on just one small area. And in my case, it’s my lavender hedge.
 
-I let my perfectionist streak loose on that one smaller area of the garden. I spend time trimming, weeding and mulching, creating the perfect edging to the bed and generally being an anally-retentive PITA. And when I step back, I can look at a perfection that I craved, that I promised myself, and I can triumphantly say to that [inner critic](/how-i-silenced-my-inner-critic) _hah, see, I did it!_
+I let my perfectionist streak loose on that one smaller area of the garden. I spend time trimming, weeding and mulching, creating the perfect edging to the bed and generally being an anally-retentive PITA. And when I step back, I can look at a perfection that I craved, that I promised myself, and I can triumphantly say to that [inner critic](https://selfsaid.30tools.com/how-i-silenced-my-inner-critic) _hah, see, I did it!_
 
 In an ideal world I would be able to quieten my inner critic internally rather than having to resort to external actions, but for me this system is a rewarding compromise. I have the satisfaction of a beautiful, albeit small, area in my garden, and I can enjoy the feeling of satisfaction of having created it and maintained it.
 
@@ -48,3 +48,5 @@ And the rest of the garden? Well, that can wait for another day…
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/how-i-cheated-my-need-for-perfectionism/

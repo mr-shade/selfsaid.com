@@ -12,27 +12,27 @@ original_url: 'https://selfsaid.30tools.com/best-inspirational-life-quotes-of-al
 
 ![Woman sitting by a lake thinking about life](https://seffsaid.com/wp-content/uploads/inspirational-quotes-about-life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Everyone goes through tough times where it’s hard to stay positive. Life’s challenges can knock down your motivation and leave you feeling low, wondering about the purpose of everything.
 
 If you often focus on the negatives rather than the positives, it’s a good idea to start reading inspirational quotes about life right away! Here’s a collection of my favorites.
 
-1.  The purpose of our lives is to be happy.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
-2.  Life is what happens when you’re busy making other plans.” – [John Lennon](/john-lennon-quotes)
+1.  The purpose of our lives is to be happy.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
+2.  Life is what happens when you’re busy making other plans.” – [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes)
 3.  “Get busy living or get busy dying.” – Stephen King
-4.  “[You only live once](/you-only-live-once-quotes), but if you do it right, once is enough.” – Mae West
+4.  “[You only live once](https://selfsaid.30tools.com/you-only-live-once-quotes), but if you do it right, once is enough.” – Mae West
 5.  “Many of life’s failures are people who did not realize how close they were to success when they gave up.” – Thomas A. Edison
-6.  If you want to [live a happy life](/how-to-live-a-happy-life), tie it to a goal, not to people or things.” – Albert Einstein
+6.  If you want to [live a happy life](https://selfsaid.30tools.com/how-to-live-a-happy-life), tie it to a goal, not to people or things.” – Albert Einstein
 7.  “Never let the fear of striking out keep you from playing the game.” – Babe Ruth
 8.  “Money and success don’t change people; they merely amplify what is already there.” – Will Smith
-9.  Your time is limited, don’t waste it living someone else’s life.” – [Steve Jobs](/steve-jobs-quotes)
+9.  Your time is limited, don’t waste it living someone else’s life.” – [Steve Jobs](https://selfsaid.30tools.com/steve-jobs-quotes)
 10.  “Not how long, but how well you have lived is the main thing.” – Seneca
 11.  “If life were predictable it would cease to be life, and be without flavor.” – Eleanor Roosevelt
 12.  “The whole secret of a successful life is to find out what is one’s destiny to do, and then do it.” – Henry Ford
 13.  “In order to write about life first you must live it.” – Ernest Hemingway
 14.  “The big lesson in life, baby, is never be scared of anyone or anything.” – Frank Sinatra
-15.  Sing like no one’s listening, love like you’ve never been hurt, dance like nobody’s watching, and live like it’s heaven on earth.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+15.  Sing like no one’s listening, love like you’ve never been hurt, dance like nobody’s watching, and live like it’s heaven on earth.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 16.  “Curiosity about life in all of its aspects, I think, is still the secret of great creative people.” – Leo Burnett
 17.  “Life is not a problem to be solved, but a reality to be experienced.” – Søren Kierkegaard
 18.  “The unexamined life is not worth living.” – Socrates
@@ -65,7 +65,7 @@ If you often focus on the negatives rather than the positives, it’s a good ide
 45.  “May you live all the days of your life.” – Jonathan Swift
 46.  “Life is short, and it is here to be lived.” – Kate Winslet
 47.  “The healthiest response to life is joy.” – Deepak Chopra
-48.  “I never want to look back and think, ‘I wish I had done this or that.'” – [Kim Kardashian](/kim-kardashian-quotes)
+48.  “I never want to look back and think, ‘I wish I had done this or that.'” – [Kim Kardashian](https://selfsaid.30tools.com/kim-kardashian-quotes)
 49.  “Live for each second without hesitation.” – Elton John
 50.  “Life is a flower of which love is the honey.” – Victor Hugo
 51.  “Keep smiling, because life is a beautiful thing and there’s so much to smile about.” – Marilyn Monroe
@@ -78,7 +78,7 @@ If you often focus on the negatives rather than the positives, it’s a good ide
 58.  “Only life lived for others is a life worthwhile.” – Albert Einstein
 59.  “Change your life today. Don’t gamble on the future, act now, without delay.” – Simone de Beauvoir
 60.  “Life is a series of natural and spontaneous changes. Don’t resist them; that only creates sorrow. Let reality be reality. Let things flow naturally forward in whatever way they like.” – Lao Tzu
-61.  “Life’s most persistent and urgent question is, ‘What are you doing for others?'” – [Martin Luther King Jr.](/martin-luther-king-quotes)
+61.  “Life’s most persistent and urgent question is, ‘What are you doing for others?'” – [Martin Luther King Jr.](https://selfsaid.30tools.com/martin-luther-king-quotes)
 62.  “What we think, we become.” – Buddha
 63.  “Life is about making an impact, not making an income.” – Kevin Kruse
 64.  “Every moment is a fresh beginning.” – T.S. Eliot
@@ -87,7 +87,7 @@ If you often focus on the negatives rather than the positives, it’s a good ide
 67.  “Life is a dream for the wise, a game for the fool, a comedy for the rich, a tragedy for the poor.” – Sholom Aleichem
 68.  “Our lives are defined by opportunities, even the ones we miss.” – F. Scott Fitzgerald
 69.  “Life is a mirror and will reflect back to the thinker what he thinks into it.” – Ernest Holmes
-70.  Life is really generous to those who pursue their personal legend.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+70.  Life is really generous to those who pursue their personal legend.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 71.  “The best way to predict your future is to create it.” – Abraham Lincoln
 72.  “You change your life by changing your heart.” – Max Lucado
 73.  “Life shrinks or expands in proportion to one’s courage.” – Anaïs Nin
@@ -96,7 +96,7 @@ If you often focus on the negatives rather than the positives, it’s a good ide
 76.  “The two most important days in your life are the day you are born and the day you find out why.” – Mark Twain
 77.  “Life isn’t about finding yourself. Life is about creating yourself.” – George Bernard Shaw
 78.  “To live is the rarest thing in the world. Most people exist, that is all.” – Oscar Wilde
-79.  Life is not measured by the number of breaths we take, but by the moments that take our breath away.” – [Maya Angelou](/maya-angelou-quotes)
+79.  Life is not measured by the number of breaths we take, but by the moments that take our breath away.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 80.  “Life is a series of baby steps.” – Hoda Kotb
 81.  “Life itself is the most wonderful fairy tale.” – Hans Christian Andersen
 82.  “Life is about learning; when you stop learning, you die.” – Tom Clancy
@@ -107,7 +107,7 @@ If you often focus on the negatives rather than the positives, it’s a good ide
 87.  “Life is ten percent what happens to you and ninety percent how you respond to it.” – Charles Swindoll
 88.  “In three words I can sum up everything I’ve learned about life: it goes on.” – Robert Frost
 89.  “Life is a journey. Enjoy the ride.” – Anonymous
-90.  “You have every right to a beautiful life.” – [Selena Gomez](/selena-gomez-quotes)
+90.  “You have every right to a beautiful life.” – [Selena Gomez](https://selfsaid.30tools.com/selena-gomez-quotes)
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbest-inspirational-life-quotes-of-all-time%2F)
 
@@ -122,3 +122,5 @@ If you often focus on the negatives rather than the positives, it’s a good ide
 [More](#)
 
 208 Shares
+
+Source: https://selfsaid.30tools.com/best-inspirational-life-quotes-of-all-time/

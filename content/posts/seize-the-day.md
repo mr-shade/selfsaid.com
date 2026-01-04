@@ -11,7 +11,7 @@ featured_image: >-
 original_url: 'https://selfsaid.30tools.com/seize-the-day/'
 ---
 
-All [Printable Quotes](/printable-quotes)
+All [Printable Quotes](https://selfsaid.30tools.com/printable-quotes)
 
 # Seize The Day Printable Quote
 
@@ -80,3 +80,5 @@ $4.99 – Instant Download
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/seize-the-day/

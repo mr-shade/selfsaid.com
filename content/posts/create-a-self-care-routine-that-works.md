@@ -12,15 +12,15 @@ original_url: 'https://selfsaid.30tools.com/create-a-self-care-routine-that-work
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-routine.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-When life feels busy, self-care can be the first thing to slip away. You may tell yourself you will rest later, eat better tomorrow, or slow down once things settle. But the truth is, there is never a perfect time. That is why creating a simple [self-care routine that fits into your real life](/self-care-routine) matters.
+When life feels busy, self-care can be the first thing to slip away. You may tell yourself you will rest later, eat better tomorrow, or slow down once things settle. But the truth is, there is never a perfect time. That is why creating a simple [self-care routine that fits into your real life](https://selfsaid.30tools.com/self-care-routine) matters.
 
 A self-care routine does not need to be complicated. It is not about doing everything at once, it is about choosing a few habits that support your energy, your mind, and your well-being each day. Small steps, repeated often, can have a bigger impact than a long list you only manage once in a while.
 
 ## Start with the Basics
 
-The best way to begin is by focusing on [simple habits](/7-ways-to-be-a-happier-person) that support well-being. These include:
+The best way to begin is by focusing on [simple habits](https://selfsaid.30tools.com/7-ways-to-be-a-happier-person) that support well-being. These include:
 
 *   **Getting Enough Sleep** – A good night’s rest helps with focus, mood, and energy levels. Try to stick to a regular bedtime and create a relaxing nighttime routine.
 *   **Eating Nutritious Meals** – What you eat affects your energy and mood. Try to include a variety of fruits, vegetables, proteins, and whole grains in daily meals.
@@ -31,7 +31,7 @@ The best way to begin is by focusing on [simple habits](/7-ways-to-be-a-happier-
 
 Caring for your mind is just as important as taking care of your body. Simple habits can make a difference in reducing stress and improving emotional balance.
 
-*   **Practice Mindfulness** – Paying attention to the present moment can help [reduce stress](/proven-ways-to-reduce-stress). This can be done by taking deep breaths, enjoying a quiet moment, or focusing on your surroundings.
+*   **Practice Mindfulness** – Paying attention to the present moment can help [reduce stress](https://selfsaid.30tools.com/proven-ways-to-reduce-stress). This can be done by taking deep breaths, enjoying a quiet moment, or focusing on your surroundings.
 *   **Limit Screen Time** – Too much time on devices can lead to mental fatigue. Setting boundaries around social media and online browsing allows space for more meaningful activities.
 *   **Write Down Thoughts** – Keeping a journal can help clear the mind. Writing about feelings, gratitude, or daily experiences can bring clarity and relief.
 *   **Engage in Activities You Enjoy** – Whether it’s reading, drawing, playing music, or spending time outdoors, making space for enjoyable activities adds balance to life.
@@ -58,9 +58,9 @@ Building a habit takes time. Some days may feel easier than others, but that’s
 
 *   **Celebrate Small Wins** – Acknowledge progress, no matter how small. Every effort counts.
 *   **Adjust as Needed** – A routine should work for you, not against you. If something doesn’t feel right, change it.
-*   **Stay Consistent** – The more often you [practice self-care](/self-care-on-a-budget), the more natural it becomes.
+*   **Stay Consistent** – The more often you [practice self-care](https://selfsaid.30tools.com/self-care-on-a-budget), the more natural it becomes.
 
-Remember, a [self-care routine](/daily-self-care-routine-for-busy-people) is not about doing everything perfectly. It is about giving yourself steady points in the day where you can pause, recharge, and feel more like yourself. Start with one small habit that feels possible, then build from there. Over time, those small choices will add up to a routine that truly supports you.
+Remember, a [self-care routine](https://selfsaid.30tools.com/daily-self-care-routine-for-busy-people) is not about doing everything perfectly. It is about giving yourself steady points in the day where you can pause, recharge, and feel more like yourself. Start with one small habit that feels possible, then build from there. Over time, those small choices will add up to a routine that truly supports you.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcreate-a-self-care-routine-that-works%2F)
 
@@ -75,3 +75,5 @@ Remember, a [self-care routine](/daily-self-care-routine-for-busy-people) is not
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/create-a-self-care-routine-that-works/

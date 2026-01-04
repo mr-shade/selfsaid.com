@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/taylor-swift-quotes/'
 
 ![Taylor Swift in concert](https://seffsaid.com/wp-content/uploads/Taylor-Swift-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 These quotes reflect Taylor Swift’s insights on life, love, perseverance, and self-expression.
 
@@ -36,10 +36,10 @@ These quotes reflect Taylor Swift’s insights on life, love, perseverance, and 
 18.  “Words can break someone into a million pieces, but they can also put them back together.” – Taylor Swift
 19.  “To me, Fearless is living in spite of those things that scare you to death.” – Taylor Swift
 20.  “We should love, not fall in love, because everything that falls gets broken.” – Taylor Swift
-21.  “I’ve always strived to [be successful](/why-some-people-are-more-successful-than-others), not famous.” – Taylor Swift
-22.  “I believe in [karma](/powerful-karma-quotes), and I believe if you put out positive vibes to everybody, that’s all you’re going to get back.” – Taylor Swift
+21.  “I’ve always strived to [be successful](https://selfsaid.30tools.com/why-some-people-are-more-successful-than-others), not famous.” – Taylor Swift
+22.  “I believe in [karma](https://selfsaid.30tools.com/powerful-karma-quotes), and I believe if you put out positive vibes to everybody, that’s all you’re going to get back.” – Taylor Swift
 23.  “Your feelings are so important to write down, to capture, and to remember because today you’re heartbroken, but tomorrow you’ll be in love again.” – Taylor Swift
-24.  “In a [relationship](/how-to-make-long-distance-relationships-work), each person should support the other; they should lift each other up.” – Taylor Swift
+24.  “In a [relationship](https://selfsaid.30tools.com/how-to-make-long-distance-relationships-work), each person should support the other; they should lift each other up.” – Taylor Swift
 25.  “You can’t have a better tomorrow if you’re always thinking about yesterday.” – Taylor Swift
 26.  “Anytime someone tells me that I can’t do something, I want to do it more.” – Taylor Swift
 27.  “There are two ways you can go with pain. You can let it destroy you, or you can use it as fuel to drive you.” – Taylor Swift
@@ -67,7 +67,7 @@ These quotes reflect Taylor Swift’s insights on life, love, perseverance, and 
 49.  “You can make history or be reduced to a footnote. It’s your choice.” – Taylor Swift
 50.  “The best people in life are free.” – Taylor Swift
 
-Read more [quotes by celebrities](/quotes-by-famous-people) here.
+Read more [quotes by celebrities](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftaylor-swift-quotes%2F)
 
@@ -82,3 +82,5 @@ Read more [quotes by celebrities](/quotes-by-famous-people) here.
 [More](#)
 
 16 Shares
+
+Source: https://selfsaid.30tools.com/taylor-swift-quotes/

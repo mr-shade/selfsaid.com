@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/discover-your-hidden-talents/'
 
 ![](https://seffsaid.com/wp-content/uploads/discover-your-hidden-talents.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Everyone has skills and abilities that may not yet be fully recognized or developed. These often lie beneath the surface, waiting to be brought into awareness. Exploring what you’re good at can lead to personal satisfaction and new opportunities. Below are ten thought-provoking questions to help identify the abilities you may not yet realize you possess.
 
@@ -34,7 +34,7 @@ The hobbies and interests you enjoyed as a child often reveal innate talents tha
 
 ## 5\. What Tasks Do You Pick Up Quickly?
 
-Some activities seem to come naturally without much effort or training. Pay attention to situations where you learn faster than others or feel a [strong sense of confidence](/ways-to-become-more-confident) while working on something new.
+Some activities seem to come naturally without much effort or training. Pay attention to situations where you learn faster than others or feel a [strong sense of confidence](https://selfsaid.30tools.com/ways-to-become-more-confident) while working on something new.
 
 ## 6\. What Problems Do You Often Volunteer to Solve?
 
@@ -69,3 +69,5 @@ Answering these questions thoughtfully can illuminate abilities that have been o
 [More](#)
 
 7 Shares
+
+Source: https://selfsaid.30tools.com/discover-your-hidden-talents/

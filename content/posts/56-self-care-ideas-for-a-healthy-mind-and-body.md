@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-min
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-ideas-1.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Self-care isn’t about doing more, it’s about doing what matters. Not everything on this list will be for you, and that’s okay. Pick what feels kind. Leave what doesn’t. These small acts aren’t about fixing yourself. They’re about returning to yourself, softly, without pressure.
 
@@ -20,10 +20,10 @@ Some of these ideas take five minutes. Some take a little longer. None require y
 
 ## Mindful Morning Ideas
 
-1.  [Drink a glass of water](/grounding-power-of-drinking-water) before coffee.
+1.  [Drink a glass of water](https://selfsaid.30tools.com/grounding-power-of-drinking-water) before coffee.
 2.  Stretch while the kettle boils.
 3.  Step outside for 5 minutes of fresh air.
-4.  Write a [one-line journal](/one-line-journaling) entry.
+4.  Write a [one-line journal](https://selfsaid.30tools.com/one-line-journaling) entry.
 5.  Make your bed slowly and intentionally.
 6.  Light a candle while you get ready.
 7.  Play calming music while you dress.
@@ -43,8 +43,8 @@ Some of these ideas take five minutes. Some take a little longer. None require y
 ## Slow Evening Ideas
 
 17.  Light a lamp instead of an overhead light.
-18.  Put your [phone away an hour](/phone-free-hour) before bed.
-19.  [Read a few pages of a calming book](/8-benefits-of-reading-books).
+18.  Put your [phone away an hour](https://selfsaid.30tools.com/phone-free-hour) before bed.
+19.  [Read a few pages of a calming book](https://selfsaid.30tools.com/8-benefits-of-reading-books).
 20.  Tidy one small surface.
 21.  Do a slow skincare ritual.
 22.  Reflect on what you’re grateful for.
@@ -65,7 +65,7 @@ Some of these ideas take five minutes. Some take a little longer. None require y
 ## Mental & Emotional Support
 
 33.  Say no to something that drains you.
-34.  [Say yes](/say-yes-to-yourself) to something small that excites you.
+34.  [Say yes](https://selfsaid.30tools.com/say-yes-to-yourself) to something small that excites you.
 35.  Allow yourself to do nothing for a little while.
 36.  Write a kind note to your past self.
 37.  Talk kindly to your body.
@@ -110,3 +110,5 @@ Pin20
 [More](#)
 
 20 Shares
+
+Source: https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-mind-and-body/

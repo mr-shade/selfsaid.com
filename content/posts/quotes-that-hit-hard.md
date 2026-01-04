@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/quotes-that-hit-hard/'
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-hit-hard.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Sometimes, a few powerful words can cut through the noise and speak directly to what matters most. These quotes offer hard-hitting truths that challenge your perspective and make you think deeply about life, love, and resilience.
 
@@ -38,13 +38,13 @@ Sometimes, a few powerful words can cut through the noise and speak directly to 
 
 “The wound is the place where the Light enters you.” — Rumi
 
-Success is not final, failure is not fatal: It is the courage to continue that counts.” — [Winston Churchill](/winston-churchill-quotes)
+Success is not final, failure is not fatal: It is the courage to continue that counts.” — [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 
-There is no greater agony than bearing an untold story inside you.” — [Maya Angelou](/maya-angelou-quotes)
+There is no greater agony than bearing an untold story inside you.” — [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 
 “The unexamined life is not worth living.” — Socrates
 
-When you want something, all the universe conspires in helping you to achieve it.” — [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+When you want something, all the universe conspires in helping you to achieve it.” — [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 
 “Life shrinks or expands in proportion to one’s courage.” — Anaïs Nin
 
@@ -54,7 +54,7 @@ When you want something, all the universe conspires in helping you to achieve it
 
 “The most common way people give up their power is by thinking they don’t have any.” — Alice Walker
 
-“Happiness is not something ready made. It comes from your own actions.” — [Dalai Lama](/inspirational-quotes-dalai-lama)
+“Happiness is not something ready made. It comes from your own actions.” — [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 
 “Not all those who wander are lost.” — J.R.R. Tolkien
 
@@ -74,9 +74,9 @@ When you want something, all the universe conspires in helping you to achieve it
 
 “Everything you can imagine is real.” — Pablo Picasso
 
-It is our choices that show what we truly are, far more than our abilities.” — [J.K. Rowling](/j-k-rowling-quotes)
+It is our choices that show what we truly are, far more than our abilities.” — [J.K. Rowling](https://selfsaid.30tools.com/j-k-rowling-quotes)
 
-Do not pray for an easy life, pray for the strength to endure a difficult one.” — [Bruce Lee](/bruce-lee-quotes)
+Do not pray for an easy life, pray for the strength to endure a difficult one.” — [Bruce Lee](https://selfsaid.30tools.com/bruce-lee-quotes)
 
 “All we have to decide is what to do with the time that is given us.” — J.R.R. Tolkien
 
@@ -84,7 +84,7 @@ Do not pray for an easy life, pray for the strength to endure a difficult one.�
 
 “There is no way to happiness — happiness is the way.” — Thich Nhat Hanh
 
-“Life is what happens when you’re busy making other plans.” — [John Lennon](/john-lennon-quotes)
+“Life is what happens when you’re busy making other plans.” — [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes)
 
 “It is not the length of life, but the depth.” — Ralph Waldo Emerson
 
@@ -96,7 +96,7 @@ Do not pray for an easy life, pray for the strength to endure a difficult one.�
 
 “He who has a why to live can bear almost any how.” — Friedrich Nietzsche
 
-In the end, we will remember not the words of our enemies, but the silence of our friends.” — [Martin Luther King](/martin-luther-king-quotes) Jr.
+In the end, we will remember not the words of our enemies, but the silence of our friends.” — [Martin Luther King](https://selfsaid.30tools.com/martin-luther-king-quotes) Jr.
 
 “It is during our darkest moments that we must focus to see the light.” — Aristotle
 
@@ -131,3 +131,5 @@ In the end, we will remember not the words of our enemies, but the silence of ou
 [More](#)
 
 43 Shares
+
+Source: https://selfsaid.30tools.com/quotes-that-hit-hard/

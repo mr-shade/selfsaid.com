@@ -12,10 +12,10 @@ original_url: 'https://selfsaid.30tools.com/elon-musk-quotes/'
 
 ![Elon Musk](https://seffsaid.com/wp-content/uploads/Elon-Musk-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
   
-If you’re curious about what drives one of the most influential tech leaders of our time, you’ll enjoy reading this collection of Elon Musk’s 50 best quotes. From reflections on innovation to [thoughts on perseverance](/quotes-about-perseverance), these quotes offer a glimpse into the [successful mindset](/mindsets-for-success) of a man who continues to shape our future with every venture. If you enjoy this page, you can find more [quotes by famous people](/quotes-by-famous-people) here.
+If you’re curious about what drives one of the most influential tech leaders of our time, you’ll enjoy reading this collection of Elon Musk’s 50 best quotes. From reflections on innovation to [thoughts on perseverance](https://selfsaid.30tools.com/quotes-about-perseverance), these quotes offer a glimpse into the [successful mindset](https://selfsaid.30tools.com/mindsets-for-success) of a man who continues to shape our future with every venture. If you enjoy this page, you can find more [quotes by famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 1.  “When something is important enough, you do it even if the odds are not in your favor.” – Elon Musk
 2.  “Persistence is very important. You should not give up unless you are forced to give up.” – Elon Musk
@@ -81,3 +81,5 @@ If you’re curious about what drives one of the most influential tech leaders o
 [More](#)
 
 159 Shares
+
+Source: https://selfsaid.30tools.com/elon-musk-quotes/

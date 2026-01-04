@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/how-to-stay-calm-under-pressure/'
 
 ![Man staying calm in a hectic environment](https://seffsaid.com/wp-content/uploads/how-to-stay-calm-under-pressure.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-[Staying calm](/calming-quotes) under pressure isn’t about ignoring stress or pretending you’re fine. It’s about learning to stay connected to yourself, even when everything around you feels overwhelming.
+[Staying calm](https://selfsaid.30tools.com/calming-quotes) under pressure isn’t about ignoring stress or pretending you’re fine. It’s about learning to stay connected to yourself, even when everything around you feels overwhelming.
 
 You don’t have to be perfect. You don’t have to have it all figured out. You just have to stay with yourself in the moment, even if that moment feels messy or uncertain.
 
@@ -107,3 +107,5 @@ Pin6
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/how-to-stay-calm-under-pressure/

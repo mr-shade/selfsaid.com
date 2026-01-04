@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/no-guts-no-glory-no-legend-no-story/
 
 ![No guts. No glory. No legend. No story.](https://seffsaid.com/wp-content/uploads/No-guts-No-glory-No-legend-No-story.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## No Guts. No Glory. No Legend. No Story.
 
@@ -39,3 +39,5 @@ Overall, the quote conveys the message that to achieve extraordinary success, ea
 [More](#)
 
 9 Shares
+
+Source: https://selfsaid.30tools.com/no-guts-no-glory-no-legend-no-story/

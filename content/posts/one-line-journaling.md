@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/one-line-journaling/'
 
 ![](https://seffsaid.com/wp-content/uploads/one-line-journaling.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I’ve always wanted to be the kind of person who journals. You know the type – leather-bound notebook, morning coffee, pages of deep reflections and clarity.
 
@@ -41,7 +41,7 @@ No structure, no word count, no pressure to be profound. Just one line. It’s d
 
 ### 2\. It creates a rhythm.
 
-Because it’s so small, I actually do it. Every day. It’s become part of my [everyday self-care routine](/everyday-self-care-routine), just like drinking water or pausing to breathe.
+Because it’s so small, I actually do it. Every day. It’s become part of my [everyday self-care routine](https://selfsaid.30tools.com/everyday-self-care-routine), just like drinking water or pausing to breathe.
 
 ### 3\. It gives my mind a place to land.
 
@@ -49,7 +49,7 @@ Sometimes writing one line unlocks more. But even if it doesn’t, it’s enough
 
 ### 4\. It builds self-trust.
 
-Keeping promises to ourselves, especially small ones, rebuilds trust. [This morning reset](/5-minute-morning-reset) and this journaling habit are two things I’ve actually kept.
+Keeping promises to ourselves, especially small ones, rebuilds trust. [This morning reset](https://selfsaid.30tools.com/5-minute-morning-reset) and this journaling habit are two things I’ve actually kept.
 
 ## How I Make It Stick
 
@@ -66,7 +66,7 @@ Write something true. It doesn’t have to be big. It just has to be yours.
 
 You might find that one sentence is all it takes to show up for yourself.
 
-\> This habit is part of my larger [Everyday Self-Care Routine](/everyday-self-care-routine).
+\> This habit is part of my larger [Everyday Self-Care Routine](https://selfsaid.30tools.com/everyday-self-care-routine).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fone-line-journaling%2F)
 
@@ -81,3 +81,5 @@ You might find that one sentence is all it takes to show up for yourself.
 [More](#)
 
 16 Shares
+
+Source: https://selfsaid.30tools.com/one-line-journaling/

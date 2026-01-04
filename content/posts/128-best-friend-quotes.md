@@ -10,9 +10,9 @@ original_url: 'https://selfsaid.30tools.com/128-best-friend-quotes/'
 
 ![Best friends hugging each other](https://seffsaid.com/wp-content/uploads/best-friend-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-I can’t think of anything that can make such a difference to one’s happiness and contentment as a [close friendship](/how-to-build-your-tribe). Friends can provide encouragement and inspiration, prevent loneliness, help you cope with trauma, reduce stress, improve your self-confidence, help you celebrate good times, and support you during bad times.
+I can’t think of anything that can make such a difference to one’s happiness and contentment as a [close friendship](https://selfsaid.30tools.com/how-to-build-your-tribe). Friends can provide encouragement and inspiration, prevent loneliness, help you cope with trauma, reduce stress, improve your self-confidence, help you celebrate good times, and support you during bad times.
 
 Here are 128 thought-provoking, heartwarming, and inspirational best friend quotes about real friendship almost guaranteed to get you searching for your new best friend.
 
@@ -47,7 +47,7 @@ Here are 128 thought-provoking, heartwarming, and inspirational best friend quot
 29.  “A best friend is someone who makes you laugh even when you think you’ll never smile again.” – Unknown
 30.  “Don’t walk behind me; I may not lead. Don’t walk in front of me; I may not follow. Just walk beside me and be my friend.” – Albert Camus
 31.  “A loyal friend laughs at your jokes when they’re not so good, and sympathizes with your problems when they’re not so bad.” – Arnold H. Glasgow
-32.  “It is not a lack of love, but a lack of friendship that makes [unhappy people](/6-common-habits-of-unhappy-people).” – Friedrich Nietzsche
+32.  “It is not a lack of love, but a lack of friendship that makes [unhappy people](https://selfsaid.30tools.com/6-common-habits-of-unhappy-people).” – Friedrich Nietzsche
 33.  “Friendship is the hardest thing in the world to explain. It’s not something you learn in school. But if you haven’t learned the meaning of friendship, you really haven’t learned anything.” – Muhammad Ali
 34.  “F.R.I.E.N.D.S. Fight for you. Respect you. Include you. Encourage you. Need you. Deserve you. Stand by you.” – Unknown
 35.  “If ever there is tomorrow when we’re not together… there is something you must always remember. You are braver than you believe, stronger than you seem, and smarter than you think. But the most important thing is, even if we’re apart… I’ll always be with you.” – Winnie the Pooh
@@ -60,12 +60,12 @@ Here are 128 thought-provoking, heartwarming, and inspirational best friend quot
 42.  “For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone.” – Audrey Hepburn
 43.  “Be slow to fall into friendship; but when thou art in, continue firm and constant.” – Socrates
 44.  “One measure of friendship consists not in the number of things friends can discuss, but in the number of things they need no longer mention.” – Clifton Fadiman
-45.  “Never idealize others. They will never live up to your expectations. Don’t over-analyze your relationships. Stop playing games. A successful [long-distance relationship](/how-to-make-long-distance-relationships-work) can only be nurtured by genuineness”. – Leo F. Buscaglia
+45.  “Never idealize others. They will never live up to your expectations. Don’t over-analyze your relationships. Stop playing games. A successful [long-distance relationship](https://selfsaid.30tools.com/how-to-make-long-distance-relationships-work) can only be nurtured by genuineness”. – Leo F. Buscaglia
 46.  “Tis the privilege of friendship to talk nonsense, and to have her nonsense respected.” – Charles Lamb
 47.  “Let us be grateful to the people who make us happy; they are the charming gardeners who make our souls blossom.” – Marcel Proust
 48.  “If you go looking for a friend, you’re going to find they’re very scarce. If you go out to be a friend, you’ll find them everywhere.” – Zig Ziglar
 49.  “A man’s friendships are one of the best measures of his worth.” – Charles Darwin
-50.  “In the end, we will remember not the words of our enemies, but the silence of our friends.” – [Martin Luther King Jr](/martin-luther-king-quotes).
+50.  “In the end, we will remember not the words of our enemies, but the silence of our friends.” – [Martin Luther King Jr](https://selfsaid.30tools.com/martin-luther-king-quotes).
 51.  “You can always tell a real friend: when you’ve made a fool of yourself he doesn’t feel you’ve done a permanent job.” – Unknown
 52.  “A friend is one who knows you and loves you just the same.” – Elbert Hubbard
 53.  “Wishing to be friends is quick work, but friendship is a slow ripening fruit.” – Aristotle
@@ -91,7 +91,7 @@ Here are 128 thought-provoking, heartwarming, and inspirational best friend quot
 73.  “Friendship is a pretty full-time occupation if you really are friendly with somebody. You can’t have too many friends because then you’re just not really friends.” – Truman Capote
 74.  “Best friends. Because if anyone else heard our conversations we’d end up in the mental hospital.” – Unknown
 75.  “True friends aren’t the ones who make your problems disappear. They are the ones who won’t disappear when your facing problems.” – Unknown
-76.  “When you [stop expecting people to be perfect](/5-things-you-should-stop-expecting-from-other-people), you can like them for who they are.” – Donald Miller
+76.  “When you [stop expecting people to be perfect](https://selfsaid.30tools.com/5-things-you-should-stop-expecting-from-other-people), you can like them for who they are.” – Donald Miller
 77.  “Each friend represents a world in us, a world possibly not born until they arrive, and it is only by this meeting that a new world is born.” – Anais Nin
 78.  “Real friendship is when your friend comes over to your house and then you both just take a nap.” – Unknown
 79.  “If you have one true friend you have more than your share.” – Thomas Fuller
@@ -158,3 +158,5 @@ Pin101
 [More](#)
 
 101 Shares
+
+Source: https://selfsaid.30tools.com/128-best-friend-quotes/

@@ -10,7 +10,7 @@ original_url: 'https://selfsaid.30tools.com/10-ways-to-make-life-easier-again/'
 
 ![](https://seffsaid.com/wp-content/uploads/Simplify-Your-Life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Life doesn’t need to be complicated but most of us have a tendency to make it more difficult than it needs to be. But before we can start making life easier, we need to decide what ‘living a simple life’ actually means.
 
@@ -34,7 +34,7 @@ Whatever the task, not overcomplicating the process will certainly help to simpl
 
 ## 4\. Tell the truth
 
-Telling lies, even white lies can seriously over complicate your world. Once you tell a lie you often have to cover up that lie with more lies. When you always [tell the truth](/8-remarkable-benefits-of-always-telling-the-truth) you never have to remember what you said and to whom and life will become so much simpler and easier.
+Telling lies, even white lies can seriously over complicate your world. Once you tell a lie you often have to cover up that lie with more lies. When you always [tell the truth](https://selfsaid.30tools.com/8-remarkable-benefits-of-always-telling-the-truth) you never have to remember what you said and to whom and life will become so much simpler and easier.
 
 ## 5\. Prioritise your tasks
 
@@ -42,7 +42,7 @@ Prioritise your job list by importance and then work on the important tasks that
 
 ## 6\. Perfectionism
 
-[Perfectionism](/how-i-cheated-my-need-for-perfectionism) and setting unreachable goals for yourself that you won’t be able to accomplish can cause you frustration, depression, and high levels of stress. Setting the bar lower to a level you can easily achieve will make life easier.
+[Perfectionism](https://selfsaid.30tools.com/how-i-cheated-my-need-for-perfectionism) and setting unreachable goals for yourself that you won’t be able to accomplish can cause you frustration, depression, and high levels of stress. Setting the bar lower to a level you can easily achieve will make life easier.
 
 ## 7\. Outsource
 
@@ -50,11 +50,11 @@ Do you have to complete every task yourself? If possible, pass on unimportant ta
 
 ## 8\. Disconnect The Internet
 
-The internet is probably one of our biggest distractions and can interrupt our work, ruin productivity, enable procrastination and leave us feeling stressed. Want to make your work life easier? I know this is scary, but if you don’t need to be online to work, [disconnect the internet](/quotes-about-unplugging)!
+The internet is probably one of our biggest distractions and can interrupt our work, ruin productivity, enable procrastination and leave us feeling stressed. Want to make your work life easier? I know this is scary, but if you don’t need to be online to work, [disconnect the internet](https://selfsaid.30tools.com/quotes-about-unplugging)!
 
 ## 9\. Get enough sleep
 
-Having a [good night’s sleep](/how-to-fall-asleep-fast) means you’ll [feel refreshed](/ways-to-feel-refreshed) and alert and able to face the day’s challenges with a calmer attitude and less stress.
+Having a [good night’s sleep](https://selfsaid.30tools.com/how-to-fall-asleep-fast) means you’ll [feel refreshed](https://selfsaid.30tools.com/ways-to-feel-refreshed) and alert and able to face the day’s challenges with a calmer attitude and less stress.
 
 ## 10\. Stop multi-tasking
 
@@ -62,7 +62,7 @@ Multi-tasking can increase efficiency but it can also increase stress and make l
 
 ## Final thoughts
 
-Simplifying your life can bring clarity and peace to your daily routine. By making small changes, you can [reduce stress](/how-to-reduce-stress) and create more time for what truly matters.
+Simplifying your life can bring clarity and peace to your daily routine. By making small changes, you can [reduce stress](https://selfsaid.30tools.com/how-to-reduce-stress) and create more time for what truly matters.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F10-ways-to-make-life-easier-again%2F)
 
@@ -77,3 +77,5 @@ Pin103
 [More](#)
 
 103 Shares
+
+Source: https://selfsaid.30tools.com/10-ways-to-make-life-easier-again/

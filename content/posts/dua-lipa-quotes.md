@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/dua-lipa-quotes/'
 
 ![Dua Lipa In Concert](https://seffsaid.com/wp-content/uploads/Dua-Lipa-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Dua Lipa is known not just for her music but for her inspiring quotes. These words offer a glimpse into her mindset and provide motivation and positivity for anyone who reads them. Read more [quotes from famous singers](/quotes-by-famous-people) here.
+Dua Lipa is known not just for her music but for her inspiring quotes. These words offer a glimpse into her mindset and provide motivation and positivity for anyone who reads them. Read more [quotes from famous singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 *   “You have to be quite fearless and willing to make mistakes.” — Dua Lipa
 *   “I think it’s important to have ambition.” — Dua Lipa
@@ -27,7 +27,7 @@ Dua Lipa is known not just for her music but for her inspiring quotes. These wor
 *   “The power of women is something that is still being underestimated.” — Dua Lipa
 *   “It’s okay to ask for help, and it’s okay to admit when you don’t know something.” — Dua Lipa
 *   “When you’re happy and healthy, it shows.” — Dua Lipa
-*   It’s important to [break out of your comfort zone](/10-ways-to-step-out-of-your-comfort-zone).” — Dua Lipa
+*   It’s important to [break out of your comfort zone](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone).” — Dua Lipa
 *   “You’re stronger than you think you are.” — Dua Lipa
 *   “It’s okay to make mistakes as long as you learn from them.” — Dua Lipa
 *   “Don’t let anyone tell you that you can’t do something.” — Dua Lipa
@@ -46,7 +46,7 @@ Dua Lipa is known not just for her music but for her inspiring quotes. These wor
 *   “Dream big, work hard, stay focused.” — Dua Lipa
 *   “It’s okay to be vulnerable; that’s what makes us human.” — Dua Lipa
 *   “Your happiness is the most important thing.” — Dua Lipa
-*   “[Be patient with yourself](/how-to-be-patient-with-your-dreams); progress takes time.” — Dua Lipa
+*   “[Be patient with yourself](https://selfsaid.30tools.com/how-to-be-patient-with-your-dreams); progress takes time.” — Dua Lipa
 *   “Believe in your vision and don’t let anyone sway you.” — Dua Lipa
 *   “You have to take things one step at a time.” — Dua Lipa
 *   “Don’t compare yourself to others; everyone’s journey is different.” — Dua Lipa
@@ -80,3 +80,5 @@ Dua Lipa is known not just for her music but for her inspiring quotes. These wor
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/dua-lipa-quotes/

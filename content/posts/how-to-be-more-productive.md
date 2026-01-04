@@ -10,17 +10,17 @@ original_url: 'https://selfsaid.30tools.com/how-to-be-more-productive/'
 
 ![Man sitting at his office desk working productively](https://seffsaid.com/wp-content/uploads/how-to-be-more-productive.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Being more productive in both our personal and professional lives can sometimes seem like an impossible goal. There always seems to be too much to do and not enough energy or hours in the day to achieve it all. Increasing the number of hours you work a day or week is often believed to increase productivity, but this is not the case.
 
-One study from [Stanford University](http://ftp.iza.org/dp8129.pdf) by economics professor John Pencavel found that productivity per hour actually declines when a person works more than 50 hours a week. So how can we [live more productively](/tips-for-productive-living)? [Increasing productivity](/29-tips-to-increase-productivity-at-work) can be as simple as making a few small tweaks to our daily habits and psychology. Here are eight ideas that are sure to improve your efficiency, well-being, happiness, and make you the most productive person you know.
+One study from [Stanford University](http://ftp.iza.org/dp8129.pdf) by economics professor John Pencavel found that productivity per hour actually declines when a person works more than 50 hours a week. So how can we [live more productively](https://selfsaid.30tools.com/tips-for-productive-living)? [Increasing productivity](https://selfsaid.30tools.com/29-tips-to-increase-productivity-at-work) can be as simple as making a few small tweaks to our daily habits and psychology. Here are eight ideas that are sure to improve your efficiency, well-being, happiness, and make you the most productive person you know.
 
 ## 1\. Look for any advantages
 
 Studies have shown that low levels of productivity don’t always come from laziness, as was often thought, but more often are related to an inability to manage emotions effectively. So the fear of failure can make someone procrastinate to the point of not even starting a project that they would otherwise succeed in. Worrying about failure often leads to postponement which is, of course, a great temporary solution. The problem is when this continues, we fall further and further behind schedule to the point where there seems to be no hope of recovery.
 
-The solution is, at the beginning of a new venture, to look for every possible advantage, not limited to the end result. For instance, getting started on a new project can be exhilarating, the process can be relaxing (while writing or performing repetitive actions, for instance, when you get into a [state of flow](/flow-state-of-mind). The feeling of achievement and negating of guilt in simply taking the first few steps can be rewarding without actually finishing the whole project and meeting any set goals.
+The solution is, at the beginning of a new venture, to look for every possible advantage, not limited to the end result. For instance, getting started on a new project can be exhilarating, the process can be relaxing (while writing or performing repetitive actions, for instance, when you get into a [state of flow](https://selfsaid.30tools.com/flow-state-of-mind). The feeling of achievement and negating of guilt in simply taking the first few steps can be rewarding without actually finishing the whole project and meeting any set goals.
 
 ## 2\. Don’t rely on willpower to increase productivity
 
@@ -30,13 +30,13 @@ Instead, we should try to reframe the problem, seeing the difficulties as actual
 
 ## 3\. Motivate with rewards
 
-Rewards are a great way to [motivate yourself](/how-to-motivate-yourself) and studies show that immediate rewards are the best! If you’re working on a project, professional or personal, that will take time to bear fruit then be sure to build in rewards along the way that will keep you happy and eager to continue. Small things such as a great book, your favorite cappuccino or a night out at the cinema all help to show yourself that your efforts have value, even before the bigger goals are met.
+Rewards are a great way to [motivate yourself](https://selfsaid.30tools.com/how-to-motivate-yourself) and studies show that immediate rewards are the best! If you’re working on a project, professional or personal, that will take time to bear fruit then be sure to build in rewards along the way that will keep you happy and eager to continue. Small things such as a great book, your favorite cappuccino or a night out at the cinema all help to show yourself that your efforts have value, even before the bigger goals are met.
 
 For example, in one study, audiobooks were given to a group of people at a gym to listen to while working out. The stories were addictive and the participants were only allowed to listen while exercising. The result was that those given the audiobooks were eager to return and exercise more regularly than those who didn’t receive the reward of the exciting stories.
 
 ## 4\. Have a strategy ready for anticipated distractions
 
-A really powerful way of [becoming more productive](/tips-for-productive-living) is to pre-empt and deal with distractions before they even happen. It has been shown to make you two to three times more likely to stick to your goals. The trick is to devise a tactic for common events in your life that you already know are most likely to distract you and prevent you from fulfilling your objectives.
+A really powerful way of [becoming more productive](https://selfsaid.30tools.com/tips-for-productive-living) is to pre-empt and deal with distractions before they even happen. It has been shown to make you two to three times more likely to stick to your goals. The trick is to devise a tactic for common events in your life that you already know are most likely to distract you and prevent you from fulfilling your objectives.
 
 If you know that every time you leave your desk to go to the bathroom, you stop and look at your phone for half an hour, browsing email, social media and watching funny videos of cats, develop a strategy to avoid this. Switch your phone off, log out and hide the passwords to your social media accounts or put the phone in another room and only allow yourself the reward of using it at lunchtime or for just five minutes for absolute essentials. If a favorite, tempting café is en route to the gym and you often end up stopping there instead of doing your workout, take a different route to the gym.
 
@@ -54,13 +54,13 @@ We often put too much pressure on ourselves by being unrealistic. Assuming that 
 
 We all often make the mistake of believing we will magically have more energy, more motivation, and more time in the future. You trick yourself into thinking that things are hectic right now but they will return to ‘normal’ once you have overcome the current crisis or glut of work and chores.
 
-The truth is that there are always unforeseen events that take over our time and energy and we have to always allow for those. If we set our expectations and goals too high for the future, we risk continually failing which leads to more procrastination, [disguised procrastination](/eliminate-disguised-procrastination), less productivity, and, most importantly, lower levels of well-being. Setting realistic goals will allow you to take back control of your life.
+The truth is that there are always unforeseen events that take over our time and energy and we have to always allow for those. If we set our expectations and goals too high for the future, we risk continually failing which leads to more procrastination, [disguised procrastination](https://selfsaid.30tools.com/eliminate-disguised-procrastination), less productivity, and, most importantly, lower levels of well-being. Setting realistic goals will allow you to take back control of your life.
 
 ## 7\. Reduce the effort you use
 
 Being your own best friend and making things easier for yourself can make all the difference in raising your productivity. For instance, if you know that you want to go running in the morning, put out your clothes the night before, put your keys and running shoes by the door. Do any other preparation that will help you out in the morning, thus needing less motivation to actually get out the door first thing.
 
-If you want to work a long, [productive day](/productive-day) at the office and eat healthily, then take the time to buy the ingredients and prepare yourself a healthy lunch to take with you. Thinking ahead can make your goals a whole lot easier and reduce the effort needed in being your best self each and every day.
+If you want to work a long, [productive day](https://selfsaid.30tools.com/productive-day) at the office and eat healthily, then take the time to buy the ingredients and prepare yourself a healthy lunch to take with you. Thinking ahead can make your goals a whole lot easier and reduce the effort needed in being your best self each and every day.
 
 ## 8\. Define yourself and your identity
 
@@ -85,3 +85,5 @@ Our productivity can ebb and flow but we can see that there are so many small ch
 [More](#)
 
 20 Shares
+
+Source: https://selfsaid.30tools.com/how-to-be-more-productive/

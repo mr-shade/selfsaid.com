@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/bts-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/BTS-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Discover the wisdom and inspiration behind BTS with this list of 50 of their best quotes.
 
@@ -69,7 +69,7 @@ Discover the wisdom and inspiration behind BTS with this list of 50 of their bes
 *   “We must all face the choice between what is right and what is easy.” – RM
 *   “You were born to be real, not to be perfect.” – Suga
 
-Read more [quotes from famous bands](/quotes-by-famous-people) here.
+Read more [quotes from famous bands](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbts-quotes%2F)
 
@@ -84,3 +84,5 @@ Read more [quotes from famous bands](/quotes-by-famous-people) here.
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/bts-quotes/

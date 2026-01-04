@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/serena-williams-quotes/'
 
 ![Serena Williams](https://seffsaid.com/wp-content/uploads/Serena-Williams-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 These Serena Williams quotes highlight Serena’s resilience, humility, and unwavering determination throughout her career.
 
@@ -118,7 +118,7 @@ These Serena Williams quotes highlight Serena’s resilience, humility, and unwa
 
 “I don’t know what the future holds, but I do know that I’m going to be positive and not wake up feeling desperate.” – Serena Williams  
   
-Read more [quotes from famous athletes](/quotes-by-famous-people).
+Read more [quotes from famous athletes](https://selfsaid.30tools.com/quotes-by-famous-people).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fserena-williams-quotes%2F)
 
@@ -133,3 +133,5 @@ Read more [quotes from famous athletes](/quotes-by-famous-people).
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/serena-williams-quotes/

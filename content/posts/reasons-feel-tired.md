@@ -15,7 +15,7 @@ original_url: 'https://selfsaid.30tools.com/reasons-feel-tired/'
 
 ![](https://seffsaid.com/wp-content/uploads/Reasons-You-Might-Feel-Tired.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I used to think feeling tired all the time meant I just needed more sleep. And sometimes, that’s true. A good night’s rest can work wonders. But what I’ve learned, through burnout, through stress, through endlessly dragging myself through the day, is that tiredness isn’t always about rest. Sometimes it’s about everything else.
 
@@ -31,7 +31,7 @@ Holding it together all the time takes energy. Even if your body is still, your 
 
 This kind of tiredness is subtle but heavy. It shows up as signs you didn’t notice. Tension in your chest. Feeling fine one minute, then suddenly weepy or numb. It’s not weakness, it’s emotional depletion.
 
-**Try this:** Write one sentence in a journal each night. Not to fix anything, just to let something out. Give your inner world somewhere safe to land. Even if you don’t think it’s “deep,” it still matters. Over time, this simple habit can become a quiet release valve. [Here’s how I made that habit stick](/one-line-journaling).
+**Try this:** Write one sentence in a journal each night. Not to fix anything, just to let something out. Give your inner world somewhere safe to land. Even if you don’t think it’s “deep,” it still matters. Over time, this simple habit can become a quiet release valve. [Here’s how I made that habit stick](https://selfsaid.30tools.com/one-line-journaling).
 
 ## 2\. You never fully unplug
 
@@ -39,7 +39,7 @@ Even when you’re resting, your brain is still “on.” Scrolling. Checking. R
 
 This constant low-level stimulation tricks your body into thinking it’s still in motion. You’re not physically doing much, but you’re mentally never alone, never quiet. And that’s draining.
 
-**Try this:** Start with one phone-free hour a day. Choose a time when you normally scroll and replace it with something quieter, reading, sitting outside, or doing nothing. It might feel uncomfortable at first. That’s okay. You’re rebuilding your ability to rest without input. I wrote about how this habit changed everything for me [here](/phone-free-hour).
+**Try this:** Start with one phone-free hour a day. Choose a time when you normally scroll and replace it with something quieter, reading, sitting outside, or doing nothing. It might feel uncomfortable at first. That’s okay. You’re rebuilding your ability to rest without input. I wrote about how this habit changed everything for me [here](https://selfsaid.30tools.com/phone-free-hour).
 
 ## 3\. You say yes when you mean no
 
@@ -47,7 +47,7 @@ People-pleasing is exhausting. Every time you override your own needs to avoid g
 
 You might not even realize it’s happening. You say yes to be kind, to be helpful, to avoid conflict. But inside, you’re keeping track. And eventually, your body says: “Enough.”
 
-**Try this:** Practice saying “no” to something small, an extra task, a favor you don’t have the energy for, a social event you’re dreading. Even if your voice shakes. Even if it’s uncomfortable. It matters. Saying no is a muscle, and it gets stronger with use. If you need help with that, I wrote a book about it: [Learn How to Say No](/learn-how-to-say-no).
+**Try this:** Practice saying “no” to something small, an extra task, a favor you don’t have the energy for, a social event you’re dreading. Even if your voice shakes. Even if it’s uncomfortable. It matters. Saying no is a muscle, and it gets stronger with use. If you need help with that, I wrote a book about it: [Learn How to Say No](https://selfsaid.30tools.com/learn-how-to-say-no).
 
 ## 4\. You’re always “on”
 
@@ -55,7 +55,7 @@ Trying to be productive, helpful, upbeat, and responsive. Performing competence 
 
 You might not even notice you’re doing it. You respond quickly to texts, smile when you’re tired, show up even when your tank is empty. But underneath the surface, you’re fraying.
 
-**Try this:** Pick one thing to do slowly today, on purpose. Something ordinary. Brush your teeth. Make tea. Wash your hands. Let yourself exist without rushing or achieving. Doing one thing slowly reminds your body it’s safe to pause. It might feel strange at first, but it can be deeply grounding. [Like this](/doing-one-thing-slowly).
+**Try this:** Pick one thing to do slowly today, on purpose. Something ordinary. Brush your teeth. Make tea. Wash your hands. Let yourself exist without rushing or achieving. Doing one thing slowly reminds your body it’s safe to pause. It might feel strange at first, but it can be deeply grounding. [Like this](https://selfsaid.30tools.com/doing-one-thing-slowly).
 
 ## 5\. You ignore low-level stress signals
 
@@ -90,7 +90,7 @@ Sometimes exhaustion is your body’s way of whispering, _I need something diffe
 
 You don’t have to fix everything overnight. Just notice. Start gently. Offer yourself the same care you give to everyone else.
 
-If you’re looking for small, real-life ways to care for yourself, start with [my Everyday Self-Care Routine](/everyday-self-care-routine). You deserve to feel better.
+If you’re looking for small, real-life ways to care for yourself, start with [my Everyday Self-Care Routine](https://selfsaid.30tools.com/everyday-self-care-routine). You deserve to feel better.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Freasons-feel-tired%2F)
 
@@ -105,3 +105,5 @@ Pin2
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/reasons-feel-tired/

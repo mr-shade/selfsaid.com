@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-live-in-the-moment/'
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Live-In-The-Moment.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Now. Such a simple word, such a powerful moment where there is no stress, no expectation, only endless possibilities. And yet ‘now’ is gone before you even finish uttering the word.
 
@@ -44,7 +44,7 @@ You do not need to do this constantly, of course, but develop the habit intermit
 
 ## 4\. Simplify your mornings
 
-Start the day with the simplest routine and avoid information overload. Preferably on awakening, perform a mindfulness meditation. The [benefits of meditation](/benefits-of-meditation) are numerous, but for learning how to live in the present moment, meditation is second to none. Other suggestions are starting a yoga routine or maybe just spending 10 minutes drinking a coffee while looking at the sky.
+Start the day with the simplest routine and avoid information overload. Preferably on awakening, perform a mindfulness meditation. The [benefits of meditation](https://selfsaid.30tools.com/benefits-of-meditation) are numerous, but for learning how to live in the present moment, meditation is second to none. Other suggestions are starting a yoga routine or maybe just spending 10 minutes drinking a coffee while looking at the sky.
 
 Keep your morning calm and simple and this will set the tone for the rest of your day. If you wake up and plow straight into multiple tabs on your phone, social media, television programs, newspaper articles, and numerous emails, you will overload your mind and find the day will follow in that vein. This simple technique really helped me to learn how to live in the moment.
 
@@ -54,7 +54,7 @@ Find a personal word that you say to yourself when you notice you are overloaded
 
 ## **Final Thoughts**
 
-The real secret to living in the moment is practice – you have probably spent your life up to this present moment allowing your mind to wander wherever it wants. Changing this habit and replacing it with a new way of thinking will take some time. But even the smallest effort will quickly be repaid with a new sense of calm and fulfillment. Take [small steps](/how-to-break-a-big-task-into-small-steps), make small changes and the rewards will be enormous.
+The real secret to living in the moment is practice – you have probably spent your life up to this present moment allowing your mind to wander wherever it wants. Changing this habit and replacing it with a new way of thinking will take some time. But even the smallest effort will quickly be repaid with a new sense of calm and fulfillment. Take [small steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps), make small changes and the rewards will be enormous.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-live-in-the-moment%2F)
 
@@ -69,3 +69,5 @@ The real secret to living in the moment is practice – you have probably spent 
 [More](#)
 
 101 Shares
+
+Source: https://selfsaid.30tools.com/how-to-live-in-the-moment/

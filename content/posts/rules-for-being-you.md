@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/rules-for-being-you/'
 
 ![Confident woman walking down a NYC street](https://seffsaid.com/wp-content/uploads/Rules-for-Being-YOU.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Finding your true self in today’s fast-paced world can be challenging. With so many external influences and societal pressures, it’s easy to lose sight of who you truly are. However, there are practical steps you can take to stay grounded and authentic. This article outlines 12 essential rules to help you be yourself every day.
 
@@ -42,19 +42,19 @@ Never stop learning. Be curious about the world around you and seek out new know
 
 ## 7\. Express Yourself
 
-Don’t be afraid to share your thoughts and feelings. Whether through words, art, or actions, expressing yourself is vital for [personal growth](/ten-ways-to-accelerate-your-personal-growth-and-development) and emotional release.
+Don’t be afraid to share your thoughts and feelings. Whether through words, art, or actions, expressing yourself is vital for [personal growth](https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development) and emotional release.
 
 ## 8\. Connect with Others
 
-Build and maintain meaningful relationships. Surround yourself with people who support and encourage you. Social connections are important for emotional well-being and [personal development](/12-personal-development-tips).
+Build and maintain meaningful relationships. Surround yourself with people who support and encourage you. Social connections are important for emotional well-being and [personal development](https://selfsaid.30tools.com/12-personal-development-tips).
 
 ## 9\. Stay Positive
 
-Focus on the good in every situation. While it’s important to acknowledge challenges and setbacks, maintaining a [positive outlook](/how-to-keep-a-positive-outlook-in-life) helps you navigate through them more effectively.
+Focus on the good in every situation. While it’s important to acknowledge challenges and setbacks, maintaining a [positive outlook](https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-life) helps you navigate through them more effectively.
 
 ## 10\. Be Mindful
 
-Live in the present moment. Practice mindfulness to [reduce stress](/how-to-reduce-stress) and increase awareness of your thoughts and feelings. This can be through meditation, deep breathing exercises, or simply paying more attention to the present.
+Live in the present moment. Practice mindfulness to [reduce stress](https://selfsaid.30tools.com/how-to-reduce-stress) and increase awareness of your thoughts and feelings. This can be through meditation, deep breathing exercises, or simply paying more attention to the present.
 
 ## 11\. Take Responsibility
 
@@ -62,9 +62,9 @@ Own your actions and their consequences. Taking responsibility for your life emp
 
 ## 12\. Celebrate Small Wins
 
-Recognize and celebrate your achievements, no matter how small they may seem. This practice boosts your confidence and motivation, encouraging you to keep [moving forward](/quotes-about-getting-back-up-and-moving-forwards-after-failure).
+Recognize and celebrate your achievements, no matter how small they may seem. This practice boosts your confidence and motivation, encouraging you to keep [moving forward](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure).
 
-By following these rules, you can [live a more fulfilling and authentic life](/live-life-to-the-fullest). Being yourself is about understanding who you are and making choices that reflect your true self. These rules are not about perfection but about making progress and finding contentment in who you are today.
+By following these rules, you can [live a more fulfilling and authentic life](https://selfsaid.30tools.com/live-life-to-the-fullest). Being yourself is about understanding who you are and making choices that reflect your true self. These rules are not about perfection but about making progress and finding contentment in who you are today.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Frules-for-being-you%2F)
 
@@ -79,3 +79,5 @@ By following these rules, you can [live a more fulfilling and authentic life](/l
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/rules-for-being-you/

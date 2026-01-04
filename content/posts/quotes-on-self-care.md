@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/quotes-on-self-care/'
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-On-Self-Care.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Taking care of yourself is important, and these 150 quotes on self-care offer the [wisdom](/discover-your-inner-wisdom) and encouragement to help you prioritize your well-being.
+Taking care of yourself is important, and these 150 quotes on self-care offer the [wisdom](https://selfsaid.30tools.com/discover-your-inner-wisdom) and encouragement to help you prioritize your well-being.
 
 1.  “Self-care is giving the world the best of you, instead of what’s left of you.” – Katie Reed
 2.  “Almost everything will work again if you unplug it for a few minutes, including you.” – Anne Lamott
@@ -26,15 +26,15 @@ Taking care of yourself is important, and these 150 quotes on self-care offer th
 8.  “You owe yourself the love that you so freely give to other people.” – Unknown
 9.  “Rest and self-care are so important. When you take time to replenish your spirit, it allows you to serve others from the overflow.” – Eleanor Brownn
 10.  “It’s not selfish to love yourself, take care of yourself, and to make your happiness a priority. It’s necessary.” – Mandy Hale
-11.  “Your work is to discover your world and then with all your heart give yourself to it.” – [Buddha](/buddha-quotes)
+11.  “Your work is to discover your world and then with all your heart give yourself to it.” – [Buddha](https://selfsaid.30tools.com/buddha-quotes)
 12.  “An empty lantern provides no light. Self-care is the fuel that allows your light to shine brightly.” – Unknown
 13.  “Be kind to yourself as you proceed along this journey.” – Meryl Streep
 14.  “Loving yourself isn’t vanity, it’s sanity.” – Katrina Mayer
 15.  “You, yourself, as much as anybody in the entire universe, deserve your love and affection.” – Buddha
 16.  “Sometimes the most productive thing you can do is relax.” – Mark Black
-17.  Do something today that your [future self will thank you for](/future-self).” – Sean Patrick Flanery
+17.  Do something today that your [future self will thank you for](https://selfsaid.30tools.com/future-self).” – Sean Patrick Flanery
 18.  “You are worth the quiet moment. You are worth the deeper breath. You are worth the time it takes to slow down, be still, and rest.” – Morgan Harper Nichols
-19.  When you say ‘yes’ to others, make sure you are not saying ‘no’ to yourself.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+19.  When you say ‘yes’ to others, make sure you are not saying ‘no’ to yourself.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 20.  “The better you feel, the more you allow yourself to rest, the better you’ll be able to serve others.” – Gabrielle Bernstein
 21.  “Self-care is not a luxury, it is a necessity.” – Audre Lorde
 22.  “Don’t take your health for granted. Don’t take your body for granted. Do something today that communicates to your body that you desire to care for it.” – Jada Pinkett Smith
@@ -46,18 +46,18 @@ Taking care of yourself is important, and these 150 quotes on self-care offer th
 28.  “Self-compassion is simply giving the same kindness to ourselves that we would give to others.” – Christopher Germer
 29.  “The time to relax is when you don’t have time for it.” – Sydney J. Harris
 30.  “Taking time to do nothing often brings everything into perspective.” – Doe Zantamata
-31.  “Your body hears everything your mind says. [Stay positive.”](/tough-times-quotes) – Naomi Judd
+31.  “Your body hears everything your mind says. [Stay positive.”](https://selfsaid.30tools.com/tough-times-quotes) – Naomi Judd
 32.  “Owning our story and loving ourselves through that process is the bravest thing we’ll ever do.” – Brené Brown
 33.  “You don’t have to be perfect to be amazing.” – Unknown
 34.  “Put yourself at the top of your to-do list every single day and the rest will fall into place.” – Unknown
 35.  “Sometimes, the best way to recharge is to unplug.” – Unknown
 36.  “Wellness is not a luxury; it’s a necessity for a vibrant life.” – Kris Carr
 37.  “Your needs are important too.” – Unknown
-38.  The best investment you can make is in yourself.” – [Warren Buffett](/warren-buffett-quotes)
+38.  The best investment you can make is in yourself.” – [Warren Buffett](https://selfsaid.30tools.com/warren-buffett-quotes)
 39.  “Take rest; a field that has rested gives a bountiful crop.” – Ovid
 40.  “Self-care is not a selfish act; it is simply good stewardship of the only gift I have.” – Parker Palmer
 41.  “Make yourself a priority. At the end of the day, you’re your longest commitment.” – Unknown
-42.  “Happiness is not something ready-made. It comes from your own actions.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
+42.  “Happiness is not something ready-made. It comes from your own actions.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 43.  “Let go of who you think you’re supposed to be and embrace who you are.” – Brené Brown
 44.  “Self-care is not about indulgence. It’s about self-respect.” – Unknown
 45.  “A little self-care each day keeps the burnout away.” – Unknown
@@ -65,7 +65,7 @@ Taking care of yourself is important, and these 150 quotes on self-care offer th
 47.  “Don’t forget to drink water and get some sun. You’re basically a houseplant with more complicated emotions.” – Unknown
 48.  “You can’t fix everything, and that’s okay.” – Unknown
 49.  “Do more things that make you forget to check your phone.” – Unknown
-50.  “Take a deep breath and remember: [you are enough](/you-are-enough).” – Unknown
+50.  “Take a deep breath and remember: [you are enough](https://selfsaid.30tools.com/you-are-enough).” – Unknown
 51.  “Healing takes time, and asking for help is a courageous step.” – Mariska Hargitay
 52.  “Your relationship with yourself sets the tone for every other relationship you have.” – Robert Holden
 53.  “Boundaries are a part of self-care. They are healthy, normal, and necessary.” – Doreen Virtue
@@ -117,7 +117,7 @@ Taking care of yourself is important, and these 150 quotes on self-care offer th
 99.  “When you take care of yourself, the world benefits.” – Unknown
 100.  “Peace comes from within. Do not seek it without.” – Buddha
 101.  “Protect your peace at all costs.” – Unknown
-102.  “[Say yes to yourself](/say-yes-to-yourself), to rest and no to stress.” – Unknown
+102.  “[Say yes to yourself](https://selfsaid.30tools.com/say-yes-to-yourself), to rest and no to stress.” – Unknown
 103.  “The best way to take care of the future is to take care of the present moment.” – Thich Nhat Hanh
 104.  “Your energy is precious. Save it for the people, places, and experiences that nourish you.” – Unknown
 105.  “Self-care is anything that helps you feel more like yourself.” – Unknown
@@ -180,3 +180,5 @@ Taking care of yourself is important, and these 150 quotes on self-care offer th
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/quotes-on-self-care/

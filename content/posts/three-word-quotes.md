@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/three-word-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/three-word-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Sometimes, the simplest words can make the biggest impact. These 1000 three-word quotes offer inspiration, comfort, and motivation for every moment of your life.
 
@@ -119,7 +119,7 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 99.  Always love deeply
 100.  Always nurture dreams
 101.  Always overcome adversity
-102.  Always [overcome obstacles](/proven-ways-to-overcome-obstacles)
+102.  Always [overcome obstacles](https://selfsaid.30tools.com/proven-ways-to-overcome-obstacles)
 103.  Always persevere tirelessly
 104.  Always practice gratitude
 105.  Always practice kindness
@@ -342,7 +342,7 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 322.  Be outstandingly optimistic
 323.  Be passionately persistent
 324.  Be passionately proactive
-325.  Be passionately [productive](/productivity-advice)
+325.  Be passionately [productive](https://selfsaid.30tools.com/productivity-advice)
 326.  Be passionately purposeful
 327.  Be patiently peaceful
 328.  Be patiently persistent
@@ -541,7 +541,7 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 521.  Devote to excellence
 522.  Diligence breeds success
 523.  Discover endless possibilities
-524.  [Discover hidden talents](/discover-your-hidden-talents)
+524.  [Discover hidden talents](https://selfsaid.30tools.com/discover-your-hidden-talents)
 525.  Discover, develop, deliver
 526.  Discover, dream, do
 527.  Dive into life
@@ -564,7 +564,7 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 544.  Dreams inspire action
 545.  Dreams manifest reality
 546.  Drive change forward
-547.  Drive [positive change](/how-to-adapt-to-positive-change)
+547.  Drive [positive change](https://selfsaid.30tools.com/how-to-adapt-to-positive-change)
 548.  Drive your destiny
 549.  Embrace all challenges
 550.  Embrace every challenge
@@ -608,7 +608,7 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 588.  Envision, execute, excel
 589.  Envision, plan, execute
 590.  Every moment counts
-591.  [Every moment matters](/every-moment-matters)
+591.  [Every moment matters](https://selfsaid.30tools.com/every-moment-matters)
 592.  Evolve, empower, enlighten
 593.  Evolve, excel, empower
 594.  Excel in everything
@@ -773,13 +773,13 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 753.  Joy inspires others
 754.  Keep aspirations high
 755.  Keep aspiring higher
-756.  Keep [dreaming big](/dream-big-quotes)
+756.  Keep [dreaming big](https://selfsaid.30tools.com/dream-big-quotes)
 757.  Keep dreams alive
 758.  Keep evolving daily
 759.  Keep faith alive
 760.  Keep faith strong
 761.  Keep growing stronger
-762.  Keep [moving forward](/quotes-about-getting-back-up-and-moving-forwards-after-failure)
+762.  Keep [moving forward](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure)
 763.  Keep pushing boundaries
 764.  Keep pushing limits
 765.  Keep rising always
@@ -968,7 +968,7 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 948.  Shine like stars
 949.  Shine your light
 950.  Show true strength
-951.  [Simplify your life](/simplify-your-life-and-save-time)
+951.  [Simplify your life](https://selfsaid.30tools.com/simplify-your-life-and-save-time)
 952.  Simplify, appreciate, enjoy
 953.  Smile, sparkle, shine
 954.  Soar beyond limits
@@ -1032,3 +1032,5 @@ Sometimes, the simplest words can make the biggest impact. These 1000 three-word
 [More](#)
 
 571 Shares
+
+Source: https://selfsaid.30tools.com/three-word-quotes/

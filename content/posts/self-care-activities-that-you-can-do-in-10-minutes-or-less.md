@@ -13,11 +13,11 @@ original_url: >-
 
 ![Woman enjoying 10 minutes of self care meditating on a beach.](https://seffsaid.com/wp-content/uploads/10-Minute-Self-Care-Activities.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When your day feels rushed and your energy is low, self-care may seem like something you do not have time for. But looking after yourself does not have to mean long routines or big changes. Even ten minutes is enough to pause, reset, and give yourself some care.
 
-These [small actions](/how-small-actions-can-make-a-huge-difference) may feel simple, but they can make a real difference when you are tired, stressed, or overwhelmed. A short break, repeated often, can rebuild your calm and help you feel more grounded.
+These [small actions](https://selfsaid.30tools.com/how-small-actions-can-make-a-huge-difference) may feel simple, but they can make a real difference when you are tired, stressed, or overwhelmed. A short break, repeated often, can rebuild your calm and help you feel more grounded.
 
 Here are 25 self-care activities you can do in ten minutes or less.
 
@@ -111,7 +111,7 @@ Make a smoothie, warm milk, or any drink that feels comforting. Focus on the tas
 
 ## 23\. Repeat a calming mantra
 
-Choose a phrase like “I am safe,” “This moment is enough,” or “I let go of what I cannot control.” Repeat it slowly, either out loud or in your mind, as you breathe. Over time, these [mantras](/mantras-anxiety-stress) become steady anchors.
+Choose a phrase like “I am safe,” “This moment is enough,” or “I let go of what I cannot control.” Repeat it slowly, either out loud or in your mind, as you breathe. Over time, these [mantras](https://selfsaid.30tools.com/mantras-anxiety-stress) become steady anchors.
 
 ## 24\. Enjoy silence
 
@@ -125,7 +125,7 @@ It could be a photo, a plant, or a treasured object. Let yourself pause and noti
 
 Self-care does not always require long stretches of time. Even ten minutes is enough to remind yourself that your needs matter. A few quiet moments can refresh your body, lighten your mood, and bring clarity to your mind.
 
-Try choosing one or two of these activities during your day. Notice how you feel afterward, and remind yourself that small [acts of care](/simple-acts-of-kindness-that-can-make-us-live-longer) are never wasted. Over time, they become steady habits that help you meet life with more calm and balance.
+Try choosing one or two of these activities during your day. Notice how you feel afterward, and remind yourself that small [acts of care](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) are never wasted. Over time, they become steady habits that help you meet life with more calm and balance.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-activities-that-you-can-do-in-10-minutes-or-less%2F)
 
@@ -140,3 +140,5 @@ Try choosing one or two of these activities during your day. Notice how you feel
 [More](#)
 
 24 Shares
+
+Source: https://selfsaid.30tools.com/self-care-activities-that-you-can-do-in-10-minutes-or-less/

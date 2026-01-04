@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/carly-rae-jepsen-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Carly-Rae-Jepsen-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-A collection of Carly Rae Jepsen quotes that reflect her thoughts on creativity, life, music, and [personal growth](/ten-ways-to-accelerate-your-personal-growth-and-development):
+A collection of Carly Rae Jepsen quotes that reflect her thoughts on creativity, life, music, and [personal growth](https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development):
 
 “I think that being vulnerable is one of the most important things in life.” – Carly Rae Jepsen  
   
@@ -38,9 +38,9 @@ A collection of Carly Rae Jepsen quotes that reflect her thoughts on creativity,
   
 “Sometimes the best way to inspire creativity is to just let go and see where it takes you.” – Carly Rae Jepsen  
   
-I’ve learned that there’s a beauty in [saying yes](/say-yes-to-yourself) to the things that scare you.” – Carly Rae Jepsen  
+I’ve learned that there’s a beauty in [saying yes](https://selfsaid.30tools.com/say-yes-to-yourself) to the things that scare you.” – Carly Rae Jepsen  
   
-“If you [stay positive](/how-to-keep-a-positive-outlook-in-life) and optimistic, [good things can happen](/how-to-make-good-things-happen).” – Carly Rae Jepsen  
+“If you [stay positive](https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-life) and optimistic, [good things can happen](https://selfsaid.30tools.com/how-to-make-good-things-happen).” – Carly Rae Jepsen  
   
 “I’m always evolving as an artist, and that’s the beauty of music.” – Carly Rae Jepsen  
   
@@ -52,7 +52,7 @@ I’ve learned that there’s a beauty in [saying yes](/say-yes-to-yourself) to 
   
 “I think it’s important to stay true to your own voice, your own style, and your own heart.” – Carly Rae Jepsen  
   
-“Creativity is about finding those [priceless moments](/priceless-moments-money-cant-buy) of inspiration and following them, wherever they lead.” – Carly Rae Jepsen  
+“Creativity is about finding those [priceless moments](https://selfsaid.30tools.com/priceless-moments-money-cant-buy) of inspiration and following them, wherever they lead.” – Carly Rae Jepsen  
   
 “I’m drawn to people who are passionate about what they do.” – Carly Rae Jepsen  
   
@@ -76,7 +76,7 @@ I’ve learned that there’s a beauty in [saying yes](/say-yes-to-yourself) to 
   
 “I want to create music that makes people feel something, that touches their hearts.” – Carly Rae Jepsen
 
-Enjoyed these quotes? Read more [quotes from famous singers](/quotes-by-famous-people) here.
+Enjoyed these quotes? Read more [quotes from famous singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcarly-rae-jepsen-quotes%2F)
 
@@ -91,3 +91,5 @@ Enjoyed these quotes? Read more [quotes from famous singers](/quotes-by-famous-p
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/carly-rae-jepsen-quotes/

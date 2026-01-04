@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-new-york-city/'
 
 ![](https://seffsaid.com/wp-content/uploads/New-York-City-webp.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 New York City has inspired countless people with its energy, culture, and unique atmosphere. From famous landmarks to everyday moments, there’s always something to experience in this iconic city. These 160 quotes capture the spirit of New York, offering a glimpse into what makes it so unforgettable.
 
@@ -47,7 +47,7 @@ New York City has inspired countless people with its energy, culture, and unique
 27.  “I go to Paris, I go to London, I go to Rome, and I always say, ‘There’s no place like New York. It’s the most exciting city in the world now. That’s the way it is. That’s it.'” – Robert De Niro
 28.  “One can’t paint New York as it is, but rather as it is felt.” – Georgia O’Keeffe
 29.  “New York had all the iridescence of the beginning of the world.” – F. Scott Fitzgerald
-30.  In New York, the sky is bluer, the [grass is greener](/grass-is-greener-syndrome), the girls are prettier, the steak is thicker, and the jazz is hotter.” – Duke Ellington
+30.  In New York, the sky is bluer, the [grass is greener](https://selfsaid.30tools.com/grass-is-greener-syndrome), the girls are prettier, the steak is thicker, and the jazz is hotter.” – Duke Ellington
 31.  “There is something in the New York air that makes sleep useless.” – Simone de Beauvoir
 32.  “The city is like poetry: it compresses all life, all races and breeds, into a small island and adds music and the accompaniment of internal engines.” – E.B. White
 33.  “New York is the only city in the world where you can get run down on the sidewalk by a pedestrian.” – Russell Baker
@@ -88,7 +88,7 @@ New York City has inspired countless people with its energy, culture, and unique
 68.  “Manhattan is an accumulation of possible disasters that never happen.” – Edward I. Koch
 69.  “In New York, everyone is an immigrant, even the natives.” – John Gregory Dunne
 70.  “New York is the only city where you can get run down on the sidewalk by a pedestrian.” – Russell Baker
-71.  “New York is a city that keeps [reinventing](/reinvent-yourself) itself, and I love it for that.” – Madison Cox
+71.  “New York is a city that keeps [reinventing](https://selfsaid.30tools.com/reinvent-yourself) itself, and I love it for that.” – Madison Cox
 72.  “A bad day in New York City is still better than a good day anywhere else.” – Unknown
 73.  “New York City is a place where the extraordinary is commonplace.” – Lynn Sweet
 74.  “New York is a city with a great capacity to astonish and inspire.” – Chiara Barzini
@@ -105,7 +105,7 @@ New York City has inspired countless people with its energy, culture, and unique
 85.  “New York is not just a city, it’s a world of its own.” – Marcus Samuelsson
 86.  “New York City is not just a place, it’s a feeling. It’s the energy, the excitement, the diversity.” – Lin-Manuel Miranda
 87.  “New York is a city of endless possibilities, where every corner holds a new adventure.” – Sarah Jessica Parker
-88.  In New York, you can be whoever you want to be, and no one will judge you for it.” – [Lady Gaga](/lady-gaga-quotes)
+88.  In New York, you can be whoever you want to be, and no one will judge you for it.” – [Lady Gaga](https://selfsaid.30tools.com/lady-gaga-quotes)
 89.  “New York is the only city in the world where you can get run over on the sidewalk.” – Fran Lebowitz
 90.  “New York is a city of things unnoticed. It is a city with cats sleeping under parked cars, two stone armadillos crawling up St. Patrick’s Cathedral, and thousands of ants creeping on top of the Empire State Building.” – Gay Talese
 91.  “New York is a place where the rich walk, the poor drive Cadillac’s, and the beggars die of malnutrition with thousands of dollars hidden in their mattresses.” – Duke Ellington
@@ -116,7 +116,7 @@ New York City has inspired countless people with its energy, culture, and unique
 96.  “New York is an exciting city where art meets commerce, power meets grit, and the spirit of possibility pervades everything.” – Henry Louis Gates Jr.
 97.  “The city of New York is itself the ultimate exhibit.” – Jerry Saltz
 98.  “New York is a city of dreams and a city of dreamers. I dream in subway stations and taxis. I dream walking down Broadway, past the marquees.” – Roxane Gay
-99.  New York is a place where anything and everything can happen.” – [Taylor Swift](/taylor-swift-quotes)
+99.  New York is a place where anything and everything can happen.” – [Taylor Swift](https://selfsaid.30tools.com/taylor-swift-quotes)
 100.  “There’s no place like New York. It’s the most exciting city in the world now. That’s the way it is. That’s it.” – Robert De Niro
 101.  “New York is really the place to be; to go to New York is to go to the world.” – Diane von Furstenberg
 102.  “New York is the place of opportunities. If you can make it here, you can make it anywhere.” – Jay-Z
@@ -128,12 +128,12 @@ New York City has inspired countless people with its energy, culture, and unique
 108.  “New York is a city of skyscrapers, a city of ups and downs.” – Daniel Libeskind
 109.  “New York City is a place where the impossible becomes possible.” – Lin-Manuel Miranda
 110.  “New York City is a place where one can never be lonely, yet always be alone.” – Sarah Jessica Parker
-111.  In New York, the past and the present collide on every street corner, creating a city that’s always [moving forward.”](/quotes-about-getting-back-up-and-moving-forwards-after-failure) – Michael Bloomberg
+111.  In New York, the past and the present collide on every street corner, creating a city that’s always [moving forward.”](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure) – Michael Bloomberg
 112.  “New York is not a place, it’s a feeling.” – Unknown
 113.  “In New York, the impossible is often the untried.” – Jimmy Breslin
 114.  “New York is not a city, it’s a world.” – Iman
 115.  “New York City is a great monument to the power of money and greed.” – Frank Lloyd Wright
-116.  New York is the only city in the world where you can [fall asleep](/how-to-fall-asleep-fast) to the sounds of a million lives unfolding all around you.” – Unknown
+116.  New York is the only city in the world where you can [fall asleep](https://selfsaid.30tools.com/how-to-fall-asleep-fast) to the sounds of a million lives unfolding all around you.” – Unknown
 117.  “The rhythm of New York is unique. It is the only city where you can fit in by standing out.” – Unknown
 118.  “New York is a place where one can experience the entire world in one city.” – Unknown
 119.  “New York is the city that other cities can only dream of being.” – Unknown
@@ -192,3 +192,5 @@ New York City has inspired countless people with its energy, culture, and unique
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-new-york-city/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/free-spirit-quotes/'
 
 ![Free Spirit Quotes](https://seffsaid.com/wp-content/uploads/free-spirit-quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what it means to be a free spirit. These quotes are a celebration of living life with a wild heart, embodying the spirit of adventure and authenticity. Let these words uplift you, challenge you, and guide you in your unique expression of what it means to be a free spirit.
 
@@ -32,10 +32,10 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 12.  “I know but one freedom and that is the freedom of the mind.” – Antoine de Saint-Exupéry
 13.  “True freedom is impossible without a mind made free by discipline.” – Mortimer J. Adler
 14.  “In the truest sense, freedom cannot be bestowed; it must be achieved.” – Franklin D. Roosevelt
-15.  “Do not allow people to dim your shine because they are blinded. Tell them to put on some sunglasses.” – [Lady Gaga](/lady-gaga-quotes)
+15.  “Do not allow people to dim your shine because they are blinded. Tell them to put on some sunglasses.” – [Lady Gaga](https://selfsaid.30tools.com/lady-gaga-quotes)
 16.  “Every time I find the meaning of life, they change it.” – Reinhold Niebuhr
 17.  “I’m not lost for I know where I am. But however, where I am may be lost.” – A.A. Milne
-18.  An individual has not started living until he can rise above the narrow confines of his individualistic concerns to the broader concerns of all humanity.” – [Martin Luther King](/martin-luther-king-quotes) Jr.
+18.  An individual has not started living until he can rise above the narrow confines of his individualistic concerns to the broader concerns of all humanity.” – [Martin Luther King](https://selfsaid.30tools.com/martin-luther-king-quotes) Jr.
 19.  “A ship in harbor is safe, but that is not what ships are built for.” – John A. Shedd
 20.  “Only those who will risk going too far can possibly find out how far one can go.” – T.S. Eliot
 21.  “Freedom is the right to tell people what they do not want to hear.” – George Orwell
@@ -48,7 +48,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 28.  “Blessed are the curious for they shall have adventures.” – Lovelle Drachman
 29.  “A man who believes in freedom will do anything under the sun to acquire, or preserve his freedom.” – Malcolm X
 30.  “To be a free spirit is not to avoid responsibility, but to create a life that is compatible with one’s own needs.” – Unknown
-31.  “The sound of the sea, a wild night out, the art of conversation, an adventure, love at first sight, [saying yes](/say-yes-to-yourself), saying no, saying maybe, believing in fate. Live a life less ordinary.” – Alex Morritt
+31.  “The sound of the sea, a wild night out, the art of conversation, an adventure, love at first sight, [saying yes](https://selfsaid.30tools.com/say-yes-to-yourself), saying no, saying maybe, believing in fate. Live a life less ordinary.” – Alex Morritt
 32.  “Freedom is not about the size of your cage or power of your wings or non-attachment to a person or a thing. Freedom is about being so truly, deeply and madly attached to your own soul that you can’t bear – if only for a moment – a life that doesn’t honor it.” – Andrea Balt
 33.  “He who has overcome his fears will truly be free.” – Aristotle
 34.  “I am the master of my fate, I am the captain of my soul.” – William Ernest Henley
@@ -60,7 +60,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 40.  “If you want to fly, you have to give up what weighs you down.” – Toni Morrison
 41.  “If you truly love nature, you will find beauty everywhere.” – Vincent Van Gogh
 42.  “The greatest thing in the world is to know how to belong to oneself.” – Michel de Montaigne
-43.  Freedom is not the absence of commitments, but the ability to choose – and commit myself to – what is best for me.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+43.  Freedom is not the absence of commitments, but the ability to choose – and commit myself to – what is best for me.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 44.  “Sometimes you find yourself in the middle of nowhere, and sometimes in the middle of nowhere, you find yourself.” – Unknown
 45.  “Man is free at the moment he wishes to be.” – Voltaire
 46.  “My spirit is healthy, yes. I’m full of energy. I’m more alive than ever before.” – Lenny Kravitz
@@ -81,7 +81,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 61.  “The future belongs to those who believe in the beauty of their dreams.” – Eleanor Roosevelt
 62.  “I am not afraid…I was born to do this.” – Joan of Arc
 63.  “The privilege of a lifetime is being who you are.” – Joseph Campbell
-64.  If I am not good to myself, how can I expect anyone else to be good to me?” – [Maya Angelou](/maya-angelou-quotes)
+64.  If I am not good to myself, how can I expect anyone else to be good to me?” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 65.  “Our deepest fear is not that we are inadequate. Our deepest fear is that we are powerful beyond measure.” – Marianne Williamson
 66.  “I like the night. Without the dark, we’d never see the stars.” – Stephenie Meyer
 67.  “Not all those who wander are lost.” – J.R.R. Tolkien
@@ -113,7 +113,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 93.  “What lies behind us and what lies before us are tiny matters compared to what lies within us.” – Ralph Waldo Emerson
 94.  “Life is a daring adventure or nothing at all.” – Helen Keller
 95.  “I am who I am. Your approval is not needed.” – Unknown
-96.  A wild and crazy weekend involves sitting on the front porch, smoking a cigar, [reading a book.”](/8-benefits-of-reading-books) – Robert M. Gates
+96.  A wild and crazy weekend involves sitting on the front porch, smoking a cigar, [reading a book.”](https://selfsaid.30tools.com/8-benefits-of-reading-books) – Robert M. Gates
 97.  “To live is the rarest thing in the world. Most people just exist.” – Oscar Wilde
 98.  “You belong somewhere close to me, far away from your trouble and worries.” – Bob Dylan
 99.  “I never lose. Either I win or I learn.” – Nelson Mandela
@@ -144,7 +144,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 124.  “Live the life you’ve dreamed.” – Henry David Thoreau
 125.  “The only way to make sense out of change is to plunge into it, move with it, and join the dance.” – Alan Watts
 126.  “Do not allow your spirit to be softened of your happiness to be limited by a day, a time, a season.” – Whitney M. Young
-127.  “Being different isn’t a bad thing. It means you’re brave enough to be yourself.” – Luna Lovegood ([J.K. Rowling](/j-k-rowling-quotes))
+127.  “Being different isn’t a bad thing. It means you’re brave enough to be yourself.” – Luna Lovegood ([J.K. Rowling](https://selfsaid.30tools.com/j-k-rowling-quotes))
 128.  “Trust yourself, you know more than you think you do.” – Benjamin Spock
 129.  “I am my own experiment. I am my own work of art.” – Madonna
 130.  “Freedom means the opportunity to be what we never thought we would be.” – Daniel J. Boorstin
@@ -153,7 +153,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 133.  “Your heart is the size of an ocean. Go find yourself in its hidden depths.” – Rumi
 134.  “You can’t use up creativity. The more you use, the more you have.” – Maya Angelou
 135.  “Life is about using the whole box of crayons.” – RuPaul
-136.  There’s a world out there, open a window, and it’s there.” – [Robin Williams](/robin-williams-quotes)
+136.  There’s a world out there, open a window, and it’s there.” – [Robin Williams](https://selfsaid.30tools.com/robin-williams-quotes)
 137.  “I will not be another flower, picked for my beauty and left to die. I will be wild, difficult to find, and impossible to forget.” – Erin Van Vuren
 138.  “Sometimes the people around you won’t understand your journey. They don’t need to, it’s not for them.” – Joubert Botha
 139.  “Freedom is not about the size of your cage or power of your wings or non-attachment to a person or thing. Freedom is about being so truly, deeply, and madly attached to your own soul that you can’t bear – if only for a moment – a life that doesn’t honor it.” – Andrea Balt
@@ -172,7 +172,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 152.  “To find yourself, think for yourself.” – Socrates
 153.  “Your time is limited, so don’t waste it living someone else’s life.” – Steve Jobs
 154.  “Do not go where the path may lead, go instead where there is no path and leave a trail.” – Ralph Waldo Emerson
-155.  “Real freedom is having nothing. I was freer when I didn’t have a cent.” – [Mike Tyson](/mike-tyson-quotes)
+155.  “Real freedom is having nothing. I was freer when I didn’t have a cent.” – [Mike Tyson](https://selfsaid.30tools.com/mike-tyson-quotes)
 156.  “Freedom is not worth having if it does not include the freedom to make mistakes.” – Mahatma Gandhi
 157.  “You belong among the wildflowers, you belong somewhere you feel free.” – Tom Petty
 158.  “Live in the sunshine, swim the sea, drink the wild air.” – Ralph Waldo Emerson
@@ -190,7 +190,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 170.  “The most effective way to do it, is to do it.” – Amelia Earhart
 171.  “I am not what I have done, I am what I have overcome.” – Unknown
 172.  “Fear is temporary. Regret is forever.” – Unknown
-173.  If you don’t like the road you’re walking, start paving another one.” – [Dolly Parton](/dolly-parton-quotes)
+173.  If you don’t like the road you’re walking, start paving another one.” – [Dolly Parton](https://selfsaid.30tools.com/dolly-parton-quotes)
 174.  “Sometimes the bad things that happen in our lives put us directly on the path to the best things that will ever happen to us.” – Nicole Reed
 175.  “The best view comes after the hardest climb.” – Unknown
 176.  “True freedom is understanding that we have a choice in who and what we allow to have power over us.” – Meryl Streep
@@ -200,7 +200,7 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 180.  “Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.” – Buddha
 181.  “Life is either a daring adventure, or nothing.” – Helen Keller
 182.  “If you can’t fly then run, if you can’t run then walk, if you can’t walk then crawl, but whatever you do you have to keep moving forward.” – Martin Luther King Jr.
-183.  “A dream you dream alone is only a dream. A dream you dream together is reality.” – [John Lennon](/john-lennon-quotes)
+183.  “A dream you dream alone is only a dream. A dream you dream together is reality.” – [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes)
 184.  “Do not wait for leaders; do it alone, person to person.” – Mother Teresa
 185.  “The biggest adventure you can take is to live the life of your dreams.” – Oprah Winfrey
 186.  “You must be the change you wish to see in the world.” – Mahatma Gandhi
@@ -247,3 +247,5 @@ Welcome to a remarkable collection of 215 Free Spirit Quotes that capture what i
 [More](#)
 
 19 Shares
+
+Source: https://selfsaid.30tools.com/free-spirit-quotes/

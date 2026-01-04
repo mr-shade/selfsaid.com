@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/supportive-quotes/'
 
 ![Supportive Quotes](https://seffsaid.com/wp-content/uploads/supportive-quotes-600x338-1.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Some days carry more weight than others. You may not know why, or there may be too many reasons to count. Life feels louder. Everything moves a little too fast. Tasks feel heavier. The noise around you builds, and even small things start to feel like too much.
 
@@ -25,14 +25,14 @@ Let these supportive quotes be a place to rest for a while, a space to feel a li
 
 1.  “You are not required to carry it all at once.” – Seff Bray
 2.  “It’s okay to rest before you feel broken.” – Seff Bray
-3.  “[Talk to yourself like you would to someone you love](/talk-to-yourself-like-you-would-to-someone-you-love).” – Brené Brown
+3.  “[Talk to yourself like you would to someone you love](https://selfsaid.30tools.com/talk-to-yourself-like-you-would-to-someone-you-love).” – Brené Brown
 4.  “Let today be simple. Let it be quiet.” – Seff Bray
 5.  “You are allowed to pause. You are allowed to step back.” – Seff Bray
 6.  “You’re doing the best you can. That is enough.” – Seff Bray
 7.  “Even a slow step is still progress.” – Seff Bray
 8.  “It’s okay to not feel okay.” – Seff Bray
-9.  “[You can’t pour from an empty cup](/you-cant-pour-from-an-empty-cup).” – Unknown
-10.  “Your only job right now is to [take care of yourself](/what-taking-care-of-yourself-really-means).” – Seff Bray
+9.  “[You can’t pour from an empty cup](https://selfsaid.30tools.com/you-cant-pour-from-an-empty-cup).” – Unknown
+10.  “Your only job right now is to [take care of yourself](https://selfsaid.30tools.com/what-taking-care-of-yourself-really-means).” – Seff Bray
 
 ## When You Need Permission to Slow Down
 
@@ -103,3 +103,5 @@ This is a moment you can stay in. You are here. And for now, that is enough.
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/supportive-quotes/

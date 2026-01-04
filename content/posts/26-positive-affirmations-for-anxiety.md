@@ -12,20 +12,20 @@ original_url: 'https://selfsaid.30tools.com/26-positive-affirmations-for-anxiety
 
 ![Anxious man using affirmations to control his anxiety](https://seffsaid.com/wp-content/uploads/Positive-Affirmations-For-Anxiety.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Affirmations are used daily by millions of people to help calm themselves when they feel or begin to feel anxious or stressed. They are a valuable tool that you can use anywhere and at any time to convert your negative thoughts into positive thoughts.
 
-The most [powerful affirmations](/affirmations-to-transform-your-mindset) are always in the present-tense and first-person, and usually short, simple statements that you repeat to yourself on a daily basis. Some people like to create their own personal affirmations or modify existing ones to suit their circumstances, but most use well known proven affirmations.
+The most [powerful affirmations](https://selfsaid.30tools.com/affirmations-to-transform-your-mindset) are always in the present-tense and first-person, and usually short, simple statements that you repeat to yourself on a daily basis. Some people like to create their own personal affirmations or modify existing ones to suit their circumstances, but most use well known proven affirmations.
 
-Here are 26 [positive affirmations](/100-positive-affirmations-that-will-change-your-life) for anxiety that are particularly effective in helping you combat stress and anxiousness.
+Here are 26 [positive affirmations](https://selfsaid.30tools.com/100-positive-affirmations-that-will-change-your-life) for anxiety that are particularly effective in helping you combat stress and anxiousness.
 
 1.  I am safe, secure, and under no threat from the world around me.
 2.  I overcome my fear of anything and everything and live life courageously.
 3.  All is well in my world and I am safe.
 4.  I am free of anxiety and continue to be so.
 5.  I love myself deeply and unconditionally.
-6.  There is no [obstacle that I cannot overcome](/proven-ways-to-overcome-obstacles) when I put my mind to it.
+6.  There is no [obstacle that I cannot overcome](https://selfsaid.30tools.com/proven-ways-to-overcome-obstacles) when I put my mind to it.
 7.  This is only temporary.
 8.  Every cell in my body is relaxed and oozes calmness.
 9.  As I slow my breathing and relax my body, the stress flows out of my mind.
@@ -43,7 +43,7 @@ Here are 26 [positive affirmations](/100-positive-affirmations-that-will-change-
 21.  Smile, breathe, and go slowly.
 22.  This too shall pass and I can stand this.
 23.  You are not your thoughts and feelings, and they don’t have to bring you down.
-24.  Feelings come and go like clouds in a windy sky. [Conscious breathing](/breath-a-bridge-to-conscious-and-mindful-living) is my anchor.
+24.  Feelings come and go like clouds in a windy sky. [Conscious breathing](https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-mindful-living) is my anchor.
 25.  Understand this and be free: we are not in our bodies; our bodies are inside us.
 26.  You’re exactly where you are right now because that’s where you need to be.
 
@@ -60,3 +60,5 @@ Pin37
 [More](#)
 
 37 Shares
+
+Source: https://selfsaid.30tools.com/26-positive-affirmations-for-anxiety/

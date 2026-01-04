@@ -13,13 +13,13 @@ original_url: 'https://selfsaid.30tools.com/daily-self-care-routine-for-busy-peo
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Busy-People.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Self-care sounds good in theory until you’re already stretched too thin. You’ve got deadlines, dishes, people to respond to, and maybe a body that’s tired before the day even starts. And the idea of adding _one more thing_ to your list, even if it’s for you? Honestly, it just feels like pressure.
 
 But self-care doesn’t have to be another performance. It doesn’t need to be perfectly timed, color-coded, or aesthetic. It just has to be real. Supportive. Doable on a regular Tuesday when you’re tired and still showing up.
 
-Here’s a simple, realistic [daily self-care routine](/create-a-self-care-routine-that-works) for busy people. No early wake-ups. No “perfect day” fantasies. Just tiny rituals that help you come back to yourself, even when the day feels like a lot.
+Here’s a simple, realistic [daily self-care routine](https://selfsaid.30tools.com/create-a-self-care-routine-that-works) for busy people. No early wake-ups. No “perfect day” fantasies. Just tiny rituals that help you come back to yourself, even when the day feels like a lot.
 
 ## 1\. Start the day with one quiet minute
 
@@ -29,7 +29,7 @@ Before checking your phone, before jumping into the to-do list, take one minute.
 
 ## 2\. Drink water like it’s a gift
 
-It sounds basic, but hydration is [emotional care](/the-case-for-doing-nothing) too. Most of us forget it when we’re busy. Treat that glass of water like a reset button, not just for your body, but your energy. That pause, that simple sip, can be grounding.
+It sounds basic, but hydration is [emotional care](https://selfsaid.30tools.com/the-case-for-doing-nothing) too. Most of us forget it when we’re busy. Treat that glass of water like a reset button, not just for your body, but your energy. That pause, that simple sip, can be grounding.
 
 **Try this:** Fill your water glass and sit down while you drink it, just for a minute. Let your shoulders drop. Let your breath settle. Think of it as a soft reset, not a health chore. Bonus: add a slice of lemon or a sprig of mint to make it feel like a small ritual, not a task. Notice how something simple and nourishing can gently shift your mood or energy.
 
@@ -80,3 +80,5 @@ This routine doesn’t ask you to overhaul your life. It doesn’t assume you ha
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/daily-self-care-routine-for-busy-people/

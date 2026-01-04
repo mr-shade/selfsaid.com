@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/self-care-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Self-care is not indulgent. It is essential. It is how we return to ourselves, how we create space to rest, to feel, and to begin again.
 
@@ -74,7 +74,7 @@ Here are 50 self-care quotes to soothe your mind and soul. Read slowly. Pause wh
 
 ### On Presence and Beginning Again
 
-41.  “You can’t pour from an empty cup. [Take care of yourself first](/what-taking-care-of-yourself-really-means).” – Unknown
+41.  “You can’t pour from an empty cup. [Take care of yourself first](https://selfsaid.30tools.com/what-taking-care-of-yourself-really-means).” – Unknown
 42.  “Self-care is giving the world the best of you, not what’s left of you.” – Katie Reed
 43.  “Start where you are. Use what you have. Do what you can.” – Arthur Ashe
 44.  “Each morning we are born again. What we do today is what matters most.” – Buddha
@@ -100,3 +100,5 @@ Let these quotes meet you gently, wherever you are in your day or in your life. 
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/self-care-quotes/

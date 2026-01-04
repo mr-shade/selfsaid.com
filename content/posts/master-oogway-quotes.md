@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/master-oogway-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Master-Oogway-Quotes2.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Master Oogway, the wise and calm tortoise from Kung Fu Panda, offers many memorable quotes that resonate with fans of all ages. This page gathers some of his best quotes, capturing the wisdom that has made him such an iconic character in the series.
 
@@ -21,7 +21,7 @@ Master Oogway, the wise and calm tortoise from Kung Fu Panda, offers many memora
 1.  “Remember the path.” Master Oogway
 2.  “The past cannot be changed, but the future is still in our power.” – Master Oogway
 3.  “The true power of a warrior is not in his strength, but in his ability to control his strength.” – Master Oogway
-4.  “[Nothing is impossible](/nothing-is-impossible-quotes).” – Master Oogway
+4.  “[Nothing is impossible](https://selfsaid.30tools.com/nothing-is-impossible-quotes).” – Master Oogway
 5.  “The true measure of a man is not how he behaves in moments of comfort and convenience, but how he stands at times of challenge and controversy.” – Master Oogway
 6.  “There are no accidents.” – Master Oogway
 7.  “There are no limits, only plateaus. And you must not stay there. You must go beyond them.” – Master Oogway
@@ -67,7 +67,7 @@ Master Oogway, the wise and calm tortoise from Kung Fu Panda, offers many memora
 47.  “My time has come. You must continue your journey… without me. You must… believe. Promise me you’ll believe.” – Master Oogway
 48.  “Look at this tree, Shifu. I cannot make it blossom when it suits me, nor make it bear fruit before its time.” – Master Oogway
 49.  “Shifu, an acorn can only become the mighty oak, not a cherry tree. You must let her grow into what she will be.” – Master Oogway
-50.  “My old friend, the panda will never fulfill his destiny, nor you yours, until you [let go of](/things-to-let-go-of-before-your-next-birthday) the illusion of control.” – Master Oogway
+50.  “My old friend, the panda will never fulfill his destiny, nor you yours, until you [let go of](https://selfsaid.30tools.com/things-to-let-go-of-before-your-next-birthday) the illusion of control.” – Master Oogway
 51.  “No matter what you do, that seed will grow to be a peach tree. You may wish for an apple or an orange, but you will get a peach.” – Master Oogway
 52.  “Your mind is like this water, my friend. When it is agitated, it becomes difficult to see. But if you allow it to settle, the answer becomes clear.” – Master Oogway
 53.  “You are the master of your destiny: No one and nothing can come in between you and your destiny except you. Take destiny by the horns and have fun.” – Master Oogway
@@ -90,3 +90,5 @@ Master Oogway, the wise and calm tortoise from Kung Fu Panda, offers many memora
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/master-oogway-quotes/

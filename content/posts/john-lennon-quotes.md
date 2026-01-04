@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/john-lennon-quotes/'
 
 ![John Lennon with a guitar over his shoulder walking down a deserted road.](https://seffsaid.com/wp-content/uploads/John-Lennon-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-While there are many lists of [Beatles quotes](/beatles-quotes) out there, the most memorable ones are probably attributed to John Lennon. His words on peace, life, and love continue to resonate with people across the world, decades after they were first spoken.
+While there are many lists of [Beatles quotes](https://selfsaid.30tools.com/beatles-quotes) out there, the most memorable ones are probably attributed to John Lennon. His words on peace, life, and love continue to resonate with people across the world, decades after they were first spoken.
 
 Lennon had a unique way of expressing complex ideas in a straightforward manner, making his quotes not just memorable, but also relatable. Whether you’re a die-hard Beatles fan or just someone in search of a little inspiration, Lennon’s wisdom has something for everyone.
 
@@ -24,13 +24,13 @@ Lennon had a unique way of expressing complex ideas in a straightforward manner,
 4.  “Reality leaves a lot to the imagination.” – John Lennon
 5.  “You may say I’m a dreamer, but I’m not the only one. I hope someday you’ll join us. And the world will live as one.” – John Lennon
 6.  “War is over if you want it.” – John Lennon
-7.  “[Life is short](/the-26-best-short-life-quotes), and there’s no time for fussing and fighting, my friends.” – John Lennon
+7.  “[Life is short](https://selfsaid.30tools.com/the-26-best-short-life-quotes), and there’s no time for fussing and fighting, my friends.” – John Lennon
 8.  “When you’re drowning, you don’t say ‘I would be incredibly pleased if someone would have the foresight to notice me drowning and come and help me,’ you just scream.” – John Lennon
 9.  “Being honest may not get you a lot of friends but it’ll always get you the right ones.” – John Lennon
 10.  “Count your age by friends, not years. Count your life by smiles, not tears.” – John Lennon
 11.  “There are no problems, only solutions.” – John Lennon
 12.  “Love is the answer, and you know that for sure; Love is a flower, you’ve got to let it grow.” – John Lennon
-13.  “[Everything will be ok](/everything-will-be-ok-quotes) in the end. If it’s not ok, it’s not the end.” – John Lennon
+13.  “[Everything will be ok](https://selfsaid.30tools.com/everything-will-be-ok-quotes) in the end. If it’s not ok, it’s not the end.” – John Lennon
 14.  “Peace is not something you wish for; It’s something you make, something you do, something you are, and something you give away.” – John Lennon
 15.  “Life is what happens when you are busy making other plans.” – John Lennon
 16.  “If everyone demanded peace instead of another television set, then there’d be peace.” – John Lennon
@@ -44,7 +44,7 @@ Lennon had a unique way of expressing complex ideas in a straightforward manner,
 24.  “I’m not going to change the way I look or the way I feel to conform to anything. I’ve always been a freak. So I’ve been a freak all my life and I have to live with that, you know. I’m one of those people.” – John Lennon
 25.  “We live in a world where we have to hide to make love, while violence is practiced in broad daylight.” – John Lennon
 26.  “There’s nothing you can know that isn’t known.” – John Lennon
-27.  Imagine all the people [living life](/live-life-to-the-fullest) in peace. You may say I’m a dreamer, but I’m not the only one. I hope someday you’ll join us, and the world will be as one.” – John Lennon
+27.  Imagine all the people [living life](https://selfsaid.30tools.com/live-life-to-the-fullest) in peace. You may say I’m a dreamer, but I’m not the only one. I hope someday you’ll join us, and the world will be as one.” – John Lennon
 28.  “We’re more popular than Jesus now; I don’t know which will go first – rock ‘n’ roll or Christianity.” – John Lennon
 29.  “I believe in everything until it’s disproved. So I believe in fairies, the myths, dragons. It all exists, even if it’s in your mind. Who’s to say that dreams and nightmares aren’t as real as the here and now?” – John Lennon
 30.  “A working class hero is something to be.” – John Lennon
@@ -82,3 +82,5 @@ Lennon had a unique way of expressing complex ideas in a straightforward manner,
 [More](#)
 
 75 Shares
+
+Source: https://selfsaid.30tools.com/john-lennon-quotes/

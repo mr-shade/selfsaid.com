@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/how-to-create-an-exciting-future/'
 
 ![](https://seffsaid.com/wp-content/uploads/create-an-exciting-future.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 With all the doom and gloom in the world at the moment, it got me thinking that the future these days doesn’t seem to be too inviting. Wouldn’t it be great to look forward to a more exciting future? To have a vision for your life that gives you direction and purpose and that inspires and motivates you, compelling you forward to make your vision a reality?
 
-Although I certainly advocate [living in the now](/how-to-live-in-the-moment) and enjoying the present moment, for many people life is more exciting when they contemplate a compelling future. Whether it’s a promotion at work, a good vacation, a new health regime or just a quiet Sunday morning sipping coffee, looking forward to the future can enhance our enjoyment and give us motivation in life. So here are five tips that I recommend for creating an exciting future that will make you feel good right now!
+Although I certainly advocate [living in the now](https://selfsaid.30tools.com/how-to-live-in-the-moment) and enjoying the present moment, for many people life is more exciting when they contemplate a compelling future. Whether it’s a promotion at work, a good vacation, a new health regime or just a quiet Sunday morning sipping coffee, looking forward to the future can enhance our enjoyment and give us motivation in life. So here are five tips that I recommend for creating an exciting future that will make you feel good right now!
 
 First things first, you need to think about what exactly an exciting future looks like for you. It is so different for everyone, so make a short list of things that would really make you excited. Don’t let fears or concerns limit you at this stage, just have fun and be playful and you’ll be surprised at the creative ideas that come to mind. On the other hand, try to be realistic; this isn’t the time to make three wishes to a genie but more a moment to really reflect on how things could be for you. Try to think short-term and long-term and make a list to include both.
 
@@ -26,9 +26,9 @@ With this list in mind, look at each item and make a step-by-step plan to reach 
 
 Now use these ideas to sit down each day for a few minutes and practice some positive visualization. An exciting new future will take more than imagination but studies have shown that focusing in this way can not only help your motivation and confidence but also help shape your unconscious mind to work towards your goals. Imagine yourself on the path to your new future, taking the steps that you worked out previously. Then imagine the outcome, your successful future that you dreamed of. Visualize it as vividly as you can, imagining the sights, sounds and smells of it all, how you would look and feel as you fulfill your goal.
 
-With the planning and confidence you have gained from these steps you can now [move forwards](/quotes-about-getting-back-up-and-moving-forwards-after-failure) with your plans. Just taking the first steps could well get you excited and motivated and help you move swiftly towards your new exciting life. 
+With the planning and confidence you have gained from these steps you can now [move forwards](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure) with your plans. Just taking the first steps could well get you excited and motivated and help you move swiftly towards your new exciting life. 
 
-Don’t forget to assess risks and pros and cons of making big changes, both for yourself and others, as you go along. Don’t give up what you already have too quickly or easily; remember the [attitude of gratitude](/how-to-cultivate-an-attitude-of-gratitude) for your life as it is as you seek to improve your future.
+Don’t forget to assess risks and pros and cons of making big changes, both for yourself and others, as you go along. Don’t give up what you already have too quickly or easily; remember the [attitude of gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) for your life as it is as you seek to improve your future.
 
 In conclusion, an exciting future, whatever that means to you, is there for the taking if you tread carefully, assess realistically, plan, visualize and take it step by step. Small consistent efforts can lead to a brighter future! I hope these tips help you as much as they did me in creating a more fulfilling life.
 
@@ -45,3 +45,5 @@ In conclusion, an exciting future, whatever that means to you, is there for the 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/how-to-create-an-exciting-future/

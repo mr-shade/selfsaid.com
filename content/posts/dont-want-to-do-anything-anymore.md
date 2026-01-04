@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/dont-want-to-do-anything-anymore/'
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-regain-motivation.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Even the most energetic and motivated people have times when they simply don’t want to do anything, and some of us feel like that more often. When you really don’t feel like doing anything at all, you can just sink into the lethargy or you can do small things that will [change your mindset](/how-to-develop-a-winning-mindset) and jump-start your motivation again. Here are some things that have helped me through some energy slumps:
+Even the most energetic and motivated people have times when they simply don’t want to do anything, and some of us feel like that more often. When you really don’t feel like doing anything at all, you can just sink into the lethargy or you can do small things that will [change your mindset](https://selfsaid.30tools.com/how-to-develop-a-winning-mindset) and jump-start your motivation again. Here are some things that have helped me through some energy slumps:
 
 ## 1\. Get moving
 
@@ -32,11 +32,11 @@ Shelve all expectations and rest and enjoy some downtime. You may be surprised h
 
 Having a chat with a family member, a friend, a therapist or even a stranger can help shift that feeling of lethargy. You might want to talk about your lack of energy or you might just want to chat about anything and nothing, enjoying the interaction to lift your mood.
 
-Sometimes just being amongst people can help: people-watching at the mall or sitting in a busy café and enjoying the chatter around you can raise your energy and [change your outlook](/how-to-keep-a-positive-outlook-in-life) enough to feel better and get going in life again.
+Sometimes just being amongst people can help: people-watching at the mall or sitting in a busy café and enjoying the chatter around you can raise your energy and [change your outlook](https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-life) enough to feel better and get going in life again.
 
 ## 4\. Music
 
-Many people find that music can change their mood completely. If you’re feeling low in energy then some favourite up-tempo songs can [lift your mood](/easy-ways-to-quickly-improve-your-mood) very quickly. If you’re stressed or irritable then some soothing classical music or meditation music might help you relax and feel better. Compile some playlists for different moods and let the music take you where you want to be.
+Many people find that music can change their mood completely. If you’re feeling low in energy then some favourite up-tempo songs can [lift your mood](https://selfsaid.30tools.com/easy-ways-to-quickly-improve-your-mood) very quickly. If you’re stressed or irritable then some soothing classical music or meditation music might help you relax and feel better. Compile some playlists for different moods and let the music take you where you want to be.
 
 ## 5\. Get cooking
 
@@ -57,3 +57,5 @@ If you are chronically tired then you should consider consulting your doctor. Bu
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/dont-want-to-do-anything-anymore/

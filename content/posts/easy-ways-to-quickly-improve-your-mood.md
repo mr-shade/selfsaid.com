@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/easy-ways-to-quickly-improve-your-mo
 
 ![Man in a great mood standing on a beach with outstretched arms.](https://seffsaid.com/wp-content/uploads/ways-to-improve-your-mood.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When stress builds and your mood dips, it can feel as though nothing will shift the heaviness. Even small things start to feel overwhelming. But you don’t always need a big change to feel better. Sometimes the simplest actions, taken in the middle of a busy or difficult day, are enough to bring relief.
 
@@ -42,11 +42,11 @@ When you are feeling low, it is easy to notice only what is missing or going wro
 
 ## 6\. Connect with someone
 
-Human connection is one of the strongest mood boosters. Send a quick message, make a short call, or share a smile with someone nearby. If you can, talk to someone you trust about how you are feeling. Often, just being heard lightens the load. Connection reminds you that you are not alone and that support is always [closer than you think](/signs-you-are-doing-better-than-you-think).
+Human connection is one of the strongest mood boosters. Send a quick message, make a short call, or share a smile with someone nearby. If you can, talk to someone you trust about how you are feeling. Often, just being heard lightens the load. Connection reminds you that you are not alone and that support is always [closer than you think](https://selfsaid.30tools.com/signs-you-are-doing-better-than-you-think).
 
 ## 7\. Drink a glass of water
 
-This might sound too simple, but your body and brain need hydration to function properly. When you are tired, irritable, or sluggish, the reason is sometimes nothing more than mild dehydration. Pour yourself a cool [glass of water](/grounding-power-of-drinking-water) and take slow sips, noticing how it feels. This small act not only refreshes your body but also gives you a mindful pause in your day.
+This might sound too simple, but your body and brain need hydration to function properly. When you are tired, irritable, or sluggish, the reason is sometimes nothing more than mild dehydration. Pour yourself a cool [glass of water](https://selfsaid.30tools.com/grounding-power-of-drinking-water) and take slow sips, noticing how it feels. This small act not only refreshes your body but also gives you a mindful pause in your day.
 
 ## 8\. Smile
 
@@ -77,3 +77,5 @@ Improving your mood does not always require a big effort. Sometimes the smallest
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/easy-ways-to-quickly-improve-your-mood/

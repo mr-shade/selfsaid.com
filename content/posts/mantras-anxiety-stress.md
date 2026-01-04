@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/mantras-anxiety-stress/'
 
 ![](https://seffsaid.com/wp-content/uploads/mantras-anxiety-stress.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When life feels overwhelming, it can be hard to find calm. Anxiety often shows up as racing thoughts, tense muscles, or the feeling that you are carrying more than you can handle. In those moments, you do not always need a big routine or complicated practice. Sometimes just a few words, repeated slowly, can help you steady your breathing and bring your focus back to the present.
 
@@ -21,7 +21,7 @@ That is the purpose of a mantra. A mantra is a short phrase that you repeat to y
 
 You can use mantras anywhere – in bed when you cannot sleep, during a busy workday, while walking, or in a quiet moment alone. The key is repetition. The more you use them, the more your body and mind will begin to associate the words with a sense of calm.
 
-Here are twenty mantras you can use whenever you need to ease anxiety or [reduce stress](/48-simple-ways-to-reduce-stress-and-anxiety).
+Here are twenty mantras you can use whenever you need to ease anxiety or [reduce stress](https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety).
 
 ## 1\. This moment is enough
 
@@ -41,7 +41,7 @@ Anxiety often makes us feel threatened even when nothing dangerous is happening.
 
 ## 5\. My worth is not defined by productivity
 
-In a world that celebrates busyness, it is easy to [feel guilty](/how-to-say-no-without-guilt) when you are not doing more. This mantra separates your value as a person from your output, helping you rest without self-criticism.
+In a world that celebrates busyness, it is easy to [feel guilty](https://selfsaid.30tools.com/how-to-say-no-without-guilt) when you are not doing more. This mantra separates your value as a person from your output, helping you rest without self-criticism.
 
 ## 6\. I let go of what I cannot control
 
@@ -122,3 +122,5 @@ Over time, these phrases become more than words, they become steady reminders th
 [More](#)
 
 7 Shares
+
+Source: https://selfsaid.30tools.com/mantras-anxiety-stress/

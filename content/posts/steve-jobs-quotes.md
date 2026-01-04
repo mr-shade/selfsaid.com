@@ -12,14 +12,14 @@ original_url: 'https://selfsaid.30tools.com/steve-jobs-quotes/'
 
 ![Steve Jobs giving an inspirational speech](https://seffsaid.com/wp-content/uploads/Steve-Jobs-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Steve Jobs, the visionary behind Apple, left a legacy filled with insightful quotes that continue to inspire millions around the globe. Whether you’re searching for motivation, guidance, or a fresh perspective on success and innovation, his words have something for everyone. This article compiles 50 of Steve Jobs’ best quotes, offering a glimpse into the mindset of a man who changed technology and the world.
 
 1.  “The only way to do great work is to love what you do.” – Steve Jobs
 2.  “Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work.” – Steve Jobs
 3.  “Innovation distinguishes between a leader and a follower.” – Steve Jobs
-4.  “Have the courage to [follow your heart](/follow-your-heart-quotes) and intuition. They somehow already know what you truly want to become.” – Steve Jobs
+4.  “Have the courage to [follow your heart](https://selfsaid.30tools.com/follow-your-heart-quotes) and intuition. They somehow already know what you truly want to become.” – Steve Jobs
 5.  “Being the richest man in the cemetery doesn’t matter to me. Going to bed at night saying we’ve done something wonderful, that’s what matters to me.” – Steve Jobs
 6.  “I want to put a ding in the universe.” – Steve Jobs
 7.  “The people who are crazy enough to think they can change the world are the ones who do.” – Steve Jobs
@@ -35,7 +35,7 @@ Steve Jobs, the visionary behind Apple, left a legacy filled with insightful quo
 17.  “Deciding what not to do is as important as deciding what to do.” – Steve Jobs
 18.  “I think if you do something and it turns out pretty good, then you should go do something else wonderful, not dwell on it for too long. Just figure out what’s next.” – Steve Jobs
 19.  “Innovation is saying no to 1,000 things.” – Steve Jobs
-20.  “I’m convinced that about half of what separates the successful entrepreneurs from the non-successful ones is pure [perseverance](/quotes-about-perseverance).” – Steve Jobs
+20.  “I’m convinced that about half of what separates the successful entrepreneurs from the non-successful ones is pure [perseverance](https://selfsaid.30tools.com/quotes-about-perseverance).” – Steve Jobs
 21.  “My favorite things in life don’t cost any money. It’s really clear that the most precious resource we all have is time.” – Steve Jobs
 22.  “It’s better to be a pirate than to join the navy.” – Steve Jobs
 23.  “The best way to predict the future is to invent it.” – Steve Jobs
@@ -56,7 +56,7 @@ Steve Jobs, the visionary behind Apple, left a legacy filled with insightful quo
 38.  “You’ve got to start with the customer experience and work back toward the technology – not the other way around.” – Steve Jobs
 39.  “The heaviness of being successful was replaced by the lightness of being a beginner again, less sure about everything. It freed me to enter one of the most creative periods of my life.” – Steve Jobs
 40.  “It’s more fun to be a pirate than to join the navy.” – Steve Jobs
-41.  “Sometimes when you innovate, you make [mistakes](/5-common-life-mistakes-to-avoid). It is best to admit them quickly, and get on with improving your other innovations.” – Steve Jobs
+41.  “Sometimes when you innovate, you make [mistakes](https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid). It is best to admit them quickly, and get on with improving your other innovations.” – Steve Jobs
 42.  “I was lucky — I found what I loved to do early in life.” – Steve Jobs
 43.  “Don’t settle.” – Steve Jobs
 44.  “You can’t connect the dots looking forward; you can only connect them looking backwards.” – Steve Jobs
@@ -80,3 +80,5 @@ Steve Jobs, the visionary behind Apple, left a legacy filled with insightful quo
 [More](#)
 
 7 Shares
+
+Source: https://selfsaid.30tools.com/steve-jobs-quotes/

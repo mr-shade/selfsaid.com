@@ -10,15 +10,15 @@ original_url: 'https://selfsaid.30tools.com/50-powerful-affirmations-that-can-ch
 
 ![Woman reciting powerful affirmations](https://seffsaid.com/wp-content/uploads/Powerful-Affirmations.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 If you are new to [affirmations](https://en.wikipedia.org/wiki/Affirmations_\(New_Age\)) you may be wondering what are normal affirmations, let alone powerful affirmations! Well, it is said that you are what you think. If you believe that you’re destined to fail, you probably will. Harboring negative emotions, even unconsciously, can affect and influence your actions and success. But if you believe you will be successful, you’ll be far more likely to achieve your goals, dreams, and desires.
 
-An affirmation is a proven technique of [self-improvement](/6-self-improvement-tips-that-will-change-your-life). It is usually a phrase that you repeat regularly to make a declaration to yourself of your intention for it to be the truth and are a great way to tackle negative emotions and transform them into life-changing actions.
+An affirmation is a proven technique of [self-improvement](https://selfsaid.30tools.com/6-self-improvement-tips-that-will-change-your-life). It is usually a phrase that you repeat regularly to make a declaration to yourself of your intention for it to be the truth and are a great way to tackle negative emotions and transform them into life-changing actions.
 
 When you repeat affirmations over and over again something very special happens, you send a very clear message to your brain that the content of the affirmation is important to you. Once that happens, your subconscious will start finding ways to help you achieve your goals.
 
-So don’t delay, begin constructing your future with the following 50 powerful affirmations that have the power to [change your life](/5-simple-daily-habits-that-can-actually-change-your-life) forever:
+So don’t delay, begin constructing your future with the following 50 powerful affirmations that have the power to [change your life](https://selfsaid.30tools.com/5-simple-daily-habits-that-can-actually-change-your-life) forever:
 
 1.  I am enough.
 2.  I am in charge of how I feel today, and I choose happiness.
@@ -73,7 +73,7 @@ So don’t delay, begin constructing your future with the following 50 powerful 
 
 ## Final Thoughts
 
-Affirmations, if used correctly, can help cultivate the necessary mindset to enable you to accomplish your dreams. So begin saying them, writing them down or even singing them several times a day and [start changing your life for the better](/change-your-life-for-the-better).
+Affirmations, if used correctly, can help cultivate the necessary mindset to enable you to accomplish your dreams. So begin saying them, writing them down or even singing them several times a day and [start changing your life for the better](https://selfsaid.30tools.com/change-your-life-for-the-better).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2F50-powerful-affirmations-that-can-change-life%2F)
 
@@ -88,3 +88,5 @@ Pin1.28K
 [More](#)
 
 1.28K Shares
+
+Source: https://selfsaid.30tools.com/50-powerful-affirmations-that-can-change-life/

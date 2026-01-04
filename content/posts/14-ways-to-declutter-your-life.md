@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/14-ways-to-declutter-your-life/'
 
 ![Happy women enjoying life free of clutter](https://seffsaid.com/wp-content/uploads/Declutter-Your-Life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Clutter builds quietly. A drawer you mean to tidy, a pile of papers you’ll “deal with later,” clothes waiting to be sorted. Over time these small things begin to weigh on you. They take up mental space as well as physical space, leaving you feeling distracted and drained.
 
@@ -22,7 +22,7 @@ Here are 14 ways to start making space today.
 
 ## 1\. Start small
 
-Decluttering [feels overwhelming](/calming-quotes) when you try to tackle everything at once. Begin with one small area, like a drawer, a shelf, or a single surface. The satisfaction of finishing a small space builds momentum for larger areas. Each success is a reminder that progress does not have to be dramatic to be meaningful.
+Decluttering [feels overwhelming](https://selfsaid.30tools.com/calming-quotes) when you try to tackle everything at once. Begin with one small area, like a drawer, a shelf, or a single surface. The satisfaction of finishing a small space builds momentum for larger areas. Each success is a reminder that progress does not have to be dramatic to be meaningful.
 
 ## 2\. Tidy your wardrobe
 
@@ -62,7 +62,7 @@ The easiest way to reduce clutter is to bring less in. Before making a purchase,
 
 ## 11\. Clear your calendar
 
-Clutter is not only physical. A crowded schedule can leave you just as overwhelmed. Look at your commitments and see which ones no longer serve you. Freeing space in your calendar creates time for rest and the things you actually want to do. Decluttering your time is as important as [decluttering your home](/declutter-your-home).
+Clutter is not only physical. A crowded schedule can leave you just as overwhelmed. Look at your commitments and see which ones no longer serve you. Freeing space in your calendar creates time for rest and the things you actually want to do. Decluttering your time is as important as [decluttering your home](https://selfsaid.30tools.com/declutter-your-home).
 
 ## 12\. Let go of “just in case” items
 
@@ -95,3 +95,5 @@ You do not need to do it all at once. Start small, and let progress build over t
 [More](#)
 
 22 Shares
+
+Source: https://selfsaid.30tools.com/14-ways-to-declutter-your-life/

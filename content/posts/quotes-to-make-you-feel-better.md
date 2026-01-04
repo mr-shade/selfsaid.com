@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/quotes-to-make-you-feel-better/'
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-To-Make-You-Feel-Better.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Discover 34 hand-selected inspirational quotes written specifically to make you feel better about life and yourself. So why do we need feel better quotes you may be asking?
 
@@ -35,16 +35,16 @@ So sit back, relax, read these inspirational quotes about life and you’ll be f
 *   “A depressing and difficult passage has prefaced every page I have turned in life.” – Charlotte Brontë
 *   “Courage doesn’t always roar. Sometimes courage is the little voice at the end of the day that says I’ll try again tomorrow.” – Mary Anne Radmacher
 *   “Promise me you’ll always remember: You’re braver than you believe, stronger than you seem, and smarter than you think.” – A.A. Milne
-*   You don’t have to have it all figured out to [move forward](/quotes-about-getting-back-up-and-moving-forwards-after-failure). Just do the best you can until you know better. Once you know better, do better.” – Anonymous
-*   “Be faithful in small things because it is in them that your [strength](/quotes-about-strength) lies.” – Mother Teresa
+*   You don’t have to have it all figured out to [move forward](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure). Just do the best you can until you know better. Once you know better, do better.” – Anonymous
+*   “Be faithful in small things because it is in them that your [strength](https://selfsaid.30tools.com/quotes-about-strength) lies.” – Mother Teresa
 *   “Life will only come around once. So do whatever makes you happy, and be with whoever makes you smile.” – Anonymous
 *   “Although the world is full of suffering, it is also full of the overcoming of it.” – Helen Keller
 *   “Things don’t go wrong and break your heart so you can become bitter and give up. They happen to break you down and build you up so you can be all that you were intended to be.” – Charles Jones
 *   “If one dream should fall and break into a thousand pieces, never be afraid to pick one of those pieces up and begin again.” – Flavia Weedn
-*   “If somebody hurts you, it’s okay to cry a river. Just remember to build a bridge and get over it.” – [Taylor Swift](/taylor-swift-quotes)
+*   “If somebody hurts you, it’s okay to cry a river. Just remember to build a bridge and get over it.” – [Taylor Swift](https://selfsaid.30tools.com/taylor-swift-quotes)
 *   “Be content with what you have; rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you.” – Lao Tzu
 *   “Your present circumstances don’t determine where you can go; they merely determine where you start.” – Nido Qubein
-*   Just because you fail once, doesn’t mean you’re gonna fail at everything.” – [Marilyn Monroe](/marilyn-monroe-quotes)
+*   Just because you fail once, doesn’t mean you’re gonna fail at everything.” – [Marilyn Monroe](https://selfsaid.30tools.com/marilyn-monroe-quotes)
 *   “Remember, no one can make you feel inferior without your consent.” – Eleanor Roosevelt
 *   “There is no stress in the world, only people thinking stressful thoughts and then acting on them.” – Dr. Wayne Dyer
 *   “Remember, your worst try is always 100% better than the person who never did.” – Anonymous
@@ -53,12 +53,12 @@ So sit back, relax, read these inspirational quotes about life and you’ll be f
 *   “You are the one that possesses the keys to your being. You carry the passport to your own happiness.” – Diane Von Furstenberg
 *   “Believe in yourself and there will come a day when others will have no choice but to believe with you.” – Cynthia Kersey
 *   “I think that if you live long enough, you realize that so much of what happens in life is out of your control, but how you respond to it is in your control.” – Hillary Clinton
-*   The way I see it, if you want the rainbow, you gotta put up with the rain.” – [Dolly Parton](/dolly-parton-quotes)
+*   The way I see it, if you want the rainbow, you gotta put up with the rain.” – [Dolly Parton](https://selfsaid.30tools.com/dolly-parton-quotes)
 *   “Don’t be afraid to take an unfamiliar path. Sometimes they’re the ones that take you to the best places.” – Anonymous
 *   “Breathe. It’s just a bad day. Not a bad life.” – Johnny Depp
 *   “Count your rainbows, not your thunderstorms.” – Anonymous
-*   “Life is too short to worry about stupid things. Have fun. Fall in love. [Regret nothing](/7-things-youll-never-regret-doing) and don’t let people bring you down.” – Anonymous
-*   “There is nothing wrong with being afraid. It’s not the absence of fear; it’s overcoming it.” – [Emma Watson](/emma-watson-quotes)
+*   “Life is too short to worry about stupid things. Have fun. Fall in love. [Regret nothing](https://selfsaid.30tools.com/7-things-youll-never-regret-doing) and don’t let people bring you down.” – Anonymous
+*   “There is nothing wrong with being afraid. It’s not the absence of fear; it’s overcoming it.” – [Emma Watson](https://selfsaid.30tools.com/emma-watson-quotes)
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquotes-to-make-you-feel-better%2F)
 
@@ -73,3 +73,5 @@ So sit back, relax, read these inspirational quotes about life and you’ll be f
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/quotes-to-make-you-feel-better/

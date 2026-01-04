@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/michael-jackson-quotes/'
 
 ![Michael Jackson in concert](https://seffsaid.com/wp-content/uploads/Michael-Jackson-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Discover 50 of Michael Jackson’s best quotes that shed light on his views about life, love, creativity, and humanity. Each quote offers a glimpse into the mind of a legendary artist whose thoughts continue to influence and inspire millions around the world.
 
@@ -67,7 +67,7 @@ Discover 50 of Michael Jackson’s best quotes that shed light on his views abou
 49.  “Every song is a different process and a different expression. Each one has its own life.” – Michael Jackson
 50.  “I don’t want the public to see the real me. I prefer that they see me through my music and my dance.” – Michael Jackson
 
-Discover more [quotes from famous singers](/quotes-by-famous-people) here.
+Discover more [quotes from famous singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmichael-jackson-quotes%2F)
 
@@ -82,3 +82,5 @@ Discover more [quotes from famous singers](/quotes-by-famous-people) here.
 [More](#)
 
 28 Shares
+
+Source: https://selfsaid.30tools.com/michael-jackson-quotes/

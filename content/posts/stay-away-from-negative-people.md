@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/stay-away-from-negative-people/'
 
 ![](https://seffsaid.com/wp-content/uploads/stay-away-from-negative-people.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We all experience bad days and can be negative from time to time. But for some people, negativity is their way of life. Studies have acknowledged the undesirable effects spending time with negative people can have on our motivation, happiness, and wellbeing.
 
@@ -26,7 +26,7 @@ Time is valuable, possibly the most precious thing in life. I want to live a hap
 
 ## 2\. Your personal development will stagnate
 
-Negative people live within their [comfort zone](/10-ways-to-step-out-of-your-comfort-zone). They won’t risk doing anything new or life-affirming as they are sure it won’t go well. As a result, they will discourage you from doing the same. Negative people will halt your [personal growth](/12-personal-development-tips), blocking any chance of [self-improvement](/6-self-improvement-tips-that-will-change-your-life). If you want to grow as a person, it is imperative to associate with positive people who also wish to become better people.
+Negative people live within their [comfort zone](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone). They won’t risk doing anything new or life-affirming as they are sure it won’t go well. As a result, they will discourage you from doing the same. Negative people will halt your [personal growth](https://selfsaid.30tools.com/12-personal-development-tips), blocking any chance of [self-improvement](https://selfsaid.30tools.com/6-self-improvement-tips-that-will-change-your-life). If you want to grow as a person, it is imperative to associate with positive people who also wish to become better people.
 
 ## 3\. Negative people can affect your attitude
 
@@ -73,3 +73,5 @@ Pin12
 [More](#)
 
 12 Shares
+
+Source: https://selfsaid.30tools.com/stay-away-from-negative-people/

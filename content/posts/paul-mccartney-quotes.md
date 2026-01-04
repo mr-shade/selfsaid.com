@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/paul-mccartney-quotes/'
 
 ![Paul McCartney on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Paul-McCartney-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Paul McCartney, the legendary singer, songwriter and bass player from The Beatles, has shared countless quotes over the years. This article presents 50 of his most memorable quotes, showcasing his wisdom, humor, and unique outlook on life. Whether you’re a lifelong fan of The Beatles or someone who appreciates thoughtful reflections on various aspects of life, this collection is for you. You can read more [quotes by The Beatles](/beatles-quotes) here.
+Paul McCartney, the legendary singer, songwriter and bass player from The Beatles, has shared countless quotes over the years. This article presents 50 of his most memorable quotes, showcasing his wisdom, humor, and unique outlook on life. Whether you’re a lifelong fan of The Beatles or someone who appreciates thoughtful reflections on various aspects of life, this collection is for you. You can read more [quotes by The Beatles](https://selfsaid.30tools.com/beatles-quotes) here.
 
 1.  “I used to think anyone doing anything weird was weird. Now I know that it is the people that call others weird that are weird.” – Paul McCartney
 2.  “Think globally, act locally.” – Paul McCartney
@@ -63,7 +63,7 @@ Paul McCartney, the legendary singer, songwriter and bass player from The Beatle
 45.  “I always try to believe the best of everybody — it saves so much trouble.” – Paul McCartney
 46.  “You’ve got to believe in yourself. That’s the secret.” – Paul McCartney
 47.  “Take these broken wings and learn to fly.” – Paul McCartney
-48.  “[Everything will be okay](/everything-will-be-ok-quotes) in the end. If it’s not okay, it’s not the end.” – Paul McCartney
+48.  “[Everything will be okay](https://selfsaid.30tools.com/everything-will-be-ok-quotes) in the end. If it’s not okay, it’s not the end.” – Paul McCartney
 49.  “Life is what happens to you while you’re busy making other plans.” – Paul McCartney
 50.  “We all have our moments of brilliance and glory, and this was mine.” – Paul McCartney
 
@@ -80,3 +80,5 @@ Paul McCartney, the legendary singer, songwriter and bass player from The Beatle
 [More](#)
 
 30 Shares
+
+Source: https://selfsaid.30tools.com/paul-mccartney-quotes/

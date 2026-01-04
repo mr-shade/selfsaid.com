@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/harry-styles-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/harry-styles-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A collection of Harry Styles’s best quotes on life, love, personal growth, kindness, relationships, and his personal philosophy.
 
@@ -80,13 +80,13 @@ A collection of Harry Styles’s best quotes on life, love, personal growth, kin
 
 “It’s really cool to be yourself.” — Harry Styles
 
-“I think, you know, the most important thing in life is to [be happy](/how-to-live-a-happy-life).” — Harry Styles
+“I think, you know, the most important thing in life is to [be happy](https://selfsaid.30tools.com/how-to-live-a-happy-life).” — Harry Styles
 
 “If you’re going to get in trouble for something, make it worth it.” — Harry Styles
 
 “I think you can’t expect anything from life; you just have to take it as it comes.” — Harry Styles
 
-“I think style is about [confidence](/10-ways-to-appear-more-confident).” — Harry Styles
+“I think style is about [confidence](https://selfsaid.30tools.com/10-ways-to-appear-more-confident).” — Harry Styles
 
 “It’s all about the balance, you know?” — Harry Styles
 
@@ -98,7 +98,7 @@ A collection of Harry Styles’s best quotes on life, love, personal growth, kin
 
 “I think it’s important to evolve as a person and as an artist.” — Harry Styles
 
-Read more [quotes from your favorite singers](/quotes-by-famous-people) here.
+Read more [quotes from your favorite singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fharry-styles-quotes%2F)
 
@@ -113,3 +113,5 @@ Read more [quotes from your favorite singers](/quotes-by-famous-people) here.
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/harry-styles-quotes/

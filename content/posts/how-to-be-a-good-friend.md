@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/how-to-be-a-good-friend/'
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-be-a-good-friend.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Being a good friend isn’t about always saying yes, fixing everything, or being endlessly available. It’s about showing up in a way that feels real, for them, and for you.
 
-And yes, this is [self-care](/self-care-routine) too. Because true friendship isn’t about overextending yourself or ignoring your limits. It’s about showing up from a place that’s honest and sustainable. When you care for others without abandoning yourself, your relationships become more authentic, more supportive, and more nourishing on both sides.
+And yes, this is [self-care](https://selfsaid.30tools.com/self-care-routine) too. Because true friendship isn’t about overextending yourself or ignoring your limits. It’s about showing up from a place that’s honest and sustainable. When you care for others without abandoning yourself, your relationships become more authentic, more supportive, and more nourishing on both sides.
 
 A good friend isn’t perfect. But they are present. They are honest. And they take care of themselves, too.
 
@@ -99,3 +99,5 @@ And the more you take care of yourself, the more you can offer others something 
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/how-to-be-a-good-friend/

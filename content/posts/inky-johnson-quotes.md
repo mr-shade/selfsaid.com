@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/inky-johnson-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Inky-Johnson-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 [Inky Johnson](https://www.inkyjohnson.com/)‘s life story is a remarkable tale of triumph over tragedy. A promising collegiate athlete, Johnson’s burgeoning football career was abruptly halted by a devastating injury during a game. This life-altering event, however, did not quell his spirit. Instead, it became the catalyst for his transformation into a motivational speaker, touching the hearts of millions worldwide.
 
-His powerful messages often resonate deeply with those facing their own battles. Johnson’s ability to convert personal adversity into universal [lessons of perseverance](/quotes-about-perseverance) and [strength](/quotes-about-strength) is evident in his impactful oratory. His words have become synonymous with courage, determination, and the relentless pursuit of excellence against all odds.
+His powerful messages often resonate deeply with those facing their own battles. Johnson’s ability to convert personal adversity into universal [lessons of perseverance](https://selfsaid.30tools.com/quotes-about-perseverance) and [strength](https://selfsaid.30tools.com/quotes-about-strength) is evident in his impactful oratory. His words have become synonymous with courage, determination, and the relentless pursuit of excellence against all odds.
 
 ## The 50 Best Inky Johnson Quotes
 
@@ -33,7 +33,7 @@ His powerful messages often resonate deeply with those facing their own battles.
 11.  “Commitment is staying true to what you said you would do long after the mood that you said it in has left.”​​ – Inky Johnson
 12.  “Impose your will on life and life will have no choice but to give you what you want.”​​ – Inky Johnson
 13.  “People get upset not because of the adversity they face, but because their adversity reveals who they really are.”​​ – Inky Johnson
-14.  Every [positive change](/100-positive-affirmations-that-will-change-your-life), every jump to a higher level involves a rite of passage. Each time to ascend to a higher rung on the ladder of growth, we must go through a period of discomfort, or adversity.”​​ – Inky Johnson
+14.  Every [positive change](https://selfsaid.30tools.com/100-positive-affirmations-that-will-change-your-life), every jump to a higher level involves a rite of passage. Each time to ascend to a higher rung on the ladder of growth, we must go through a period of discomfort, or adversity.”​​ – Inky Johnson
 15.  “After we come out of the storm we shouldn’t be the same individual that walked into it… That’s what the storms, opposition & adversity is about.”​​ – Inky Johnson
 16.  “Eventually you’ll end up where you need to be, surrounded with who you’re meant to be with and Impact who you’re meant to Inspire.”​​ – Inky Johnson
 17.  “No amount of money ever bought a second of time… Don’t get so busy making a living that you forget to make a life!”​​ – Inky Johnson
@@ -84,3 +84,5 @@ His powerful messages often resonate deeply with those facing their own battles.
 [More](#)
 
 9 Shares
+
+Source: https://selfsaid.30tools.com/inky-johnson-quotes/

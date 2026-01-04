@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/sunny-day-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/sunny-day-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Sunny days have a way of lifting spirits and adding a touch of warmth to life. Quotes about sunshine capture those moments of brightness, offering words that bring a smile or a reminder of simpler joys. Here are 50 sunny day quotes to bring a little extra warmth to your day and inspire you to enjoy each moment in the sun.
 
@@ -82,3 +82,5 @@ Sunny days have a way of lifting spirits and adding a touch of warmth to life. Q
 [More](#)
 
 8 Shares
+
+Source: https://selfsaid.30tools.com/sunny-day-quotes/

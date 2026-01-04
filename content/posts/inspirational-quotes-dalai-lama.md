@@ -12,14 +12,14 @@ original_url: 'https://selfsaid.30tools.com/inspirational-quotes-dalai-lama/'
 
 ![A photo of the Dalai Lama deep in thought.](https://seffsaid.com/wp-content/uploads/dalai-lama-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
   
-If you’re searching for a bit of inspiration or a gentle nudge towards a more compassionate and joyful way of living, diving into the wisdom of the Dalai Lama might be just what you need. Known for his [uplifting quotes about life](/uplifting-quotes-about-life) and profound insights into human kindness, the Dalai Lama’s words have the power to shift perspectives and bring a sense of peace to those who read them.
+If you’re searching for a bit of inspiration or a gentle nudge towards a more compassionate and joyful way of living, diving into the wisdom of the Dalai Lama might be just what you need. Known for his [uplifting quotes about life](https://selfsaid.30tools.com/uplifting-quotes-about-life) and profound insights into human kindness, the Dalai Lama’s words have the power to shift perspectives and bring a sense of peace to those who read them.
 
 This collection of 92 quotes from the Dalai Lama covers a wide range of topics, from the importance of compassion and empathy to the pursuit of happiness and inner peace. Each quote has been carefully selected to offer you a moment of reflection and motivation, encouraging you to live a life filled with kindness and understanding.
 
-Whether you’re looking for guidance during challenging times or simply wish to cultivate a deeper sense of contentment in your daily life, these [quotes about kindness](/quotes-about-kindness) and the art of living well are here to support and inspire you. So, take a moment to explore these insights, and allow the timeless wisdom of the Dalai Lama to touch your heart and mind.
+Whether you’re looking for guidance during challenging times or simply wish to cultivate a deeper sense of contentment in your daily life, these [quotes about kindness](https://selfsaid.30tools.com/quotes-about-kindness) and the art of living well are here to support and inspire you. So, take a moment to explore these insights, and allow the timeless wisdom of the Dalai Lama to touch your heart and mind.
 
 1.  “Happiness is not something ready made. It comes from your own actions.” – Dalai Lama
 2.  “Love and compassion are necessities, not luxuries. Without them, humanity cannot survive.” – Dalai Lama
@@ -127,3 +127,5 @@ Whether you’re looking for guidance during challenging times or simply wish to
 [More](#)
 
 9 Shares
+
+Source: https://selfsaid.30tools.com/inspirational-quotes-dalai-lama/

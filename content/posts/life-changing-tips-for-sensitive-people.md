@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/life-changing-tips-for-sensitive-peo
 
 ![Sensitive person looking at the camera](https://seffsaid.com/wp-content/uploads/Tips-for-Sensitive-People.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 If you are a sensitive person, you already know how deeply you feel the world around you. Noise can feel louder, words can cut deeper, and emotions, both yours and others, can sometimes feel overwhelming. This sensitivity is not a weakness. It is a sign of how deeply you connect with life and how finely tuned your awareness can be.
 
@@ -28,7 +28,7 @@ Sensitivity often comes with deep emotional processing. You may carry the weight
 
 ## 3\. Set gentle boundaries
 
-Because you feel things so deeply, it is easy to give too much of your time and energy to others. Setting boundaries is not selfish, it is self respect. Learn to notice when your “yes” is really a reluctant one. Practice saying no kindly but firmly, for example: “I would love to, but I need to recharge today.” The more you practice, the easier it becomes. Boundaries protect your peace and allow you to show up with more energy and authenticity when you do [say yes](/say-yes-to-yourself).
+Because you feel things so deeply, it is easy to give too much of your time and energy to others. Setting boundaries is not selfish, it is self respect. Learn to notice when your “yes” is really a reluctant one. Practice saying no kindly but firmly, for example: “I would love to, but I need to recharge today.” The more you practice, the easier it becomes. Boundaries protect your peace and allow you to show up with more energy and authenticity when you do [say yes](https://selfsaid.30tools.com/say-yes-to-yourself).
 
 ## 4\. Use grounding techniques
 
@@ -77,3 +77,5 @@ You do not have to try everything at once. Start with one or two of these tips a
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/life-changing-tips-for-sensitive-people/

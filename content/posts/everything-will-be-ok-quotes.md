@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/everything-will-be-ok-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/everything-will-be-ok-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Discover 50 [powerful quotes](/keanu-reeves-quotes) that will lift your spirits and remind you that no matter the situation, everything will be ok.
+Discover 50 [powerful quotes](https://selfsaid.30tools.com/keanu-reeves-quotes) that will lift your spirits and remind you that no matter the situation, everything will be ok.
 
 ## Everything Will Be OK Quotes
 
-“Everything will be okay in the end. If it’s not okay, it’s not the end.” – [John Lennon](/john-lennon-quotes)
+“Everything will be okay in the end. If it’s not okay, it’s not the end.” – [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes)
 
 “Hard times may have held you down, but they will not last forever.” – Charles F. Glassman
 
@@ -32,7 +32,7 @@ Discover 50 [powerful quotes](/keanu-reeves-quotes) that will lift your spirits 
 
 “Out of difficulties grow miracles.” – Jean de La Bruyère
 
-“Storms make trees take deeper roots.” – [Dolly Parton](/dolly-parton-quotes)
+“Storms make trees take deeper roots.” – [Dolly Parton](https://selfsaid.30tools.com/dolly-parton-quotes)
 
 “Sometimes it takes a good fall to know where you truly stand.” – Hayley Williams
 
@@ -50,7 +50,7 @@ Discover 50 [powerful quotes](/keanu-reeves-quotes) that will lift your spirits 
 
 “When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.” – Henry Ford
 
-“Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](/winston-churchill-quotes)
+“Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 
 “This too shall pass.” – Persian Proverb
 
@@ -64,7 +64,7 @@ Discover 50 [powerful quotes](/keanu-reeves-quotes) that will lift your spirits 
 
 “After the rain, the sun will reappear. There is life. After the pain, the joy will still be here.” – Walt Disney
 
-“We may encounter many defeats, but we must not be defeated.” – [Maya Angelou](/maya-angelou-quotes)
+“We may encounter many defeats, but we must not be defeated.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 
 “When you have a dream, you’ve got to grab it and never let go.” – Carol Burnett
 
@@ -76,7 +76,7 @@ Discover 50 [powerful quotes](/keanu-reeves-quotes) that will lift your spirits 
 
 “We can’t direct the wind, but we can adjust the sails.” – Thomas S. Monson
 
-“Don’t worry about a thing, ‘cause every little thing is gonna be alright.” – [Bob Marley](/bob-marley-quotes)
+“Don’t worry about a thing, ‘cause every little thing is gonna be alright.” – [Bob Marley](https://selfsaid.30tools.com/bob-marley-quotes)
 
 “When everything seems like an uphill struggle, just think of the view from the top.” – Unknown
 
@@ -106,7 +106,7 @@ Discover 50 [powerful quotes](/keanu-reeves-quotes) that will lift your spirits 
 
 “Everything will be okay as soon as you are okay with everything.” – Michael A. Singer
 
-“Happiness can be found even in the darkest of times, if one only remembers to turn on the light.” – [J.K. Rowling](/j-k-rowling-quotes)
+“Happiness can be found even in the darkest of times, if one only remembers to turn on the light.” – [J.K. Rowling](https://selfsaid.30tools.com/j-k-rowling-quotes)
 
 “When the going gets tough, the tough get going.” – Joseph P. Kennedy
 
@@ -131,3 +131,5 @@ Discover 50 [powerful quotes](/keanu-reeves-quotes) that will lift your spirits 
 [More](#)
 
 15 Shares
+
+Source: https://selfsaid.30tools.com/everything-will-be-ok-quotes/

@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/maya-angelou-quotes/'
 
 ![Maya Angelou Quotes And Sayings](https://seffsaid.com/wp-content/uploads/Maya-Angelou-Quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-This collection of 112 Maya Angelou quotes and sayings offer a window into the mind of one of the most influential writers and thinkers of our time. Her words reflect a deep understanding of life, love, human emotions, strength, [perseverance](/quotes-about-perseverance), and resilience. Each quote is a reflection of her [wisdom](/deep-quotes-about-life), offering insights into how to navigate the complexities of life with grace and courage. Through these sayings, you’ll find inspiration, encouragement, and a deeper appreciation for the beauty and challenges of human existence. Whether you’re seeking guidance, comfort, or a moment of reflection, these quotes from Maya Angelou provide a rich source of wisdom and inspiration.
+This collection of 112 Maya Angelou quotes and sayings offer a window into the mind of one of the most influential writers and thinkers of our time. Her words reflect a deep understanding of life, love, human emotions, strength, [perseverance](https://selfsaid.30tools.com/quotes-about-perseverance), and resilience. Each quote is a reflection of her [wisdom](https://selfsaid.30tools.com/deep-quotes-about-life), offering insights into how to navigate the complexities of life with grace and courage. Through these sayings, you’ll find inspiration, encouragement, and a deeper appreciation for the beauty and challenges of human existence. Whether you’re seeking guidance, comfort, or a moment of reflection, these quotes from Maya Angelou provide a rich source of wisdom and inspiration.
 
 ## The Quotes
 
@@ -152,3 +152,5 @@ Seff Bray
 [More](#)
 
 56 Shares
+
+Source: https://selfsaid.30tools.com/maya-angelou-quotes/

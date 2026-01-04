@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/grounding-power-of-drinking-water/'
 
 ![](https://seffsaid.com/wp-content/uploads/power-of-drinking-water.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 It sounds almost too simple to matter: drink more water. We’ve all heard it. Most of us ignore it. I used to.
 
@@ -20,7 +20,7 @@ For a long time, self-care felt like something I had to earn. I was chasing deep
 
 But over time, especially during periods of burnout and anxiety, I began to notice something. The days when I felt most disconnected, most scattered or emotionally untethered, were also the days when I hadn’t had enough to drink. My head hurt. My body felt heavy. My thoughts raced. Everything felt foggy.
 
-One day, I started keeping a glass of water by my bed. I drank it before checking my phone. I didn’t try to be perfect about it, just consistent. What surprised me was how quickly it became a small ritual that changed my mornings. (You can read more about how I rebuilt my mornings in [The 5-Minute Morning Reset That Helped My Anxiety](/5-minute-morning-reset).)
+One day, I started keeping a glass of water by my bed. I drank it before checking my phone. I didn’t try to be perfect about it, just consistent. What surprised me was how quickly it became a small ritual that changed my mornings. (You can read more about how I rebuilt my mornings in [The 5-Minute Morning Reset That Helped My Anxiety](https://selfsaid.30tools.com/5-minute-morning-reset).)
 
 Drinking water turned into a signal: _You’re here. You’re allowed to care for yourself, even in small ways._
 
@@ -42,7 +42,7 @@ Keeping water near me and drinking it has become one of the first ways I started
 
 ### 4\. Anchoring routines.
 
-Water became the first step in routines I otherwise struggled to stick with, like morning resets or [taking breaks during the day](/why-taking-breaks-is-part-of-the-work). (It’s one of several small habits I write about in [The Everyday Self-Care Routine: 7 Habits That Actually Stick](/everyday-self-care-routine).) It created a natural moment to stop, breathe, and check in.
+Water became the first step in routines I otherwise struggled to stick with, like morning resets or [taking breaks during the day](https://selfsaid.30tools.com/why-taking-breaks-is-part-of-the-work). (It’s one of several small habits I write about in [The Everyday Self-Care Routine: 7 Habits That Actually Stick](https://selfsaid.30tools.com/everyday-self-care-routine).) It created a natural moment to stop, breathe, and check in.
 
 ## Simple Ways I Make Water Part of My Day
 
@@ -64,7 +64,7 @@ Self-care doesn’t always look profound. Sometimes it’s a simple act repeated
 
 Water taught me that.
 
-\> For more simple habits that help anchor your day, check out The [Everyday Self-Care Routine](/everyday-self-care-routine): 7 Habits That Actually Stick.
+\> For more simple habits that help anchor your day, check out The [Everyday Self-Care Routine](https://selfsaid.30tools.com/everyday-self-care-routine): 7 Habits That Actually Stick.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgrounding-power-of-drinking-water%2F)
 
@@ -79,3 +79,5 @@ Water taught me that.
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/grounding-power-of-drinking-water/

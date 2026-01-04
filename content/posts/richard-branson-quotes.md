@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/richard-branson-quotes/'
 
 ![Richard Branson walking along a desert road](https://seffsaid.com/wp-content/uploads/richard-branson-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 This article lists 50 of Richard Branson’s most memorable quotes reflecting his approach to entrepreneurship, learning, adventure, business, risk-taking, and life. Whether you’re an aspiring entrepreneur or looking for a spark of motivation, these quotes can offer clarity and encouragement.
 
@@ -20,12 +20,12 @@ This article lists 50 of Richard Branson’s most memorable quotes reflecting hi
 2.  “Business opportunities are like buses, there’s always another one coming.” – Richard Branson
 3.  “If your dreams don’t scare you, they are too small.” – Richard Branson
 4.  “The best way to learn about anything is by doing.” – Richard Branson
-5.  Entrepreneurship is about turning what [excites you in life](/7-ways-to-make-your-life-exciting-again) into capital, so that you can do more of it and move forward with it.” – Richard Branson
+5.  Entrepreneurship is about turning what [excites you in life](https://selfsaid.30tools.com/7-ways-to-make-your-life-exciting-again) into capital, so that you can do more of it and move forward with it.” – Richard Branson
 6.  “Respect is how to treat everyone, not just those you want to impress.” – Richard Branson
 7.  “Do not be embarrassed by your failures, learn from them and start again.” – Richard Branson
 8.  “Complexity is your enemy. Any fool can make something complicated. It is hard to keep things simple.” – Richard Branson
 9.  “My philosophy is that if I have any money I invest it in new ventures and not have it sitting around.” – Richard Branson
-10.  If somebody offers you an amazing opportunity but you are not sure you can do it, [say yes](/say-yes-to-yourself) – then learn how to do it later!” – Richard Branson
+10.  If somebody offers you an amazing opportunity but you are not sure you can do it, [say yes](https://selfsaid.30tools.com/say-yes-to-yourself) – then learn how to do it later!” – Richard Branson
 11.  “Luck is what happens when preparation meets opportunity.” – Richard Branson
 12.  “One thing is certain in business. You and everyone around you will make mistakes.” – Richard Branson
 13.  “Every risk is worth taking as long as it’s for a good cause, and contributes to a good life.” – Richard Branson
@@ -80,3 +80,5 @@ This article lists 50 of Richard Branson’s most memorable quotes reflecting hi
 [More](#)
 
 9 Shares
+
+Source: https://selfsaid.30tools.com/richard-branson-quotes/

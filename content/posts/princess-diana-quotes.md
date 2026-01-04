@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/princess-diana-quotes/'
 
 ![Princess Diana](https://seffsaid.com/wp-content/uploads/Princess-Diana-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Here are 50 quotes attributed to Princess Diana that encapsulate her empathy, sense of humor, and dedication to humanitarian causes and reflect various aspects of her life, thoughts, and legacy
 
@@ -21,7 +21,7 @@ Here are 50 quotes attributed to Princess Diana that encapsulate her empathy, se
 3.  “Only do what your heart tells you.” – Princess Diana
 4.  “Hugs can do great amounts of good, especially for children.” – Princess Diana
 5.  “I wear my heart on my sleeve.” – Princess Diana
-6.  Carry out a random [act of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer), with no expectation of reward, safe in the knowledge that one day someone might do the same for you.” – Princess Diana
+6.  Carry out a random [act of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer), with no expectation of reward, safe in the knowledge that one day someone might do the same for you.” – Princess Diana
 7.  “The greatest problem in the world today is intolerance. Everyone is so intolerant of each other.” – Princess Diana
 8.  “I’d like to be a queen in people’s hearts but I don’t see myself being queen of this country.” – Princess Diana
 9.  “Family is the most important thing in the world.” – Princess Diana
@@ -80,3 +80,5 @@ Here are 50 quotes attributed to Princess Diana that encapsulate her empathy, se
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/princess-diana-quotes/

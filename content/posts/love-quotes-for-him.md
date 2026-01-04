@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/love-quotes-for-him/'
 
 ![Love Quotes For Him](https://seffsaid.com/wp-content/uploads/Love-Quotes-For-Him-600x338-1.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 This collection of love quotes is designed to help you express your deepest emotions to the special man in your life. Use these quotes to inspire your messages and strengthen the bond you share.
 
@@ -56,10 +56,10 @@ This collection of love quotes is designed to help you express your deepest emot
 36.  “I still haven’t figured out how to sit across from you, and not be madly in love with everything you do.” – William C. Hannan
 37.  “I would find you in any lifetime.” – Kanye West
 38.  “Your arms feel more like home than any house ever did.” – Kate
-39.  The sun is up, the sky is blue, today is beautiful and so are you.” – [John Lennon](/john-lennon-quotes)
+39.  The sun is up, the sky is blue, today is beautiful and so are you.” – [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes)
 40.  “I want to be with you until my last page.” – A.R. Asher
 41.  “Loving you never was an option. It was a necessity.” – Truth Devour
-42.  So, I love you because the entire universe conspired to help me find you.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+42.  So, I love you because the entire universe conspired to help me find you.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 43.  “My dream wouldn’t be complete without you in it.” – The Princess and the Frog
 44.  “If I could have anyone in the world, it would still be you.” – Unknown
 45.  “You are my today and all of my tomorrows.” – Lee Christopher
@@ -73,7 +73,7 @@ This collection of love quotes is designed to help you express your deepest emot
 53.  “I would rather share one lifetime with you than face all the ages of this world alone.” – J.R.R. Tolkien
 54.  “I love you not for whom you are, but who I am when I’m by your side.” – Gabriel García Márquez
 55.  “You are my dearest one. My reason for life.” – Ian McEwan
-56.  I fell in love the way you [fall asleep](/how-to-fall-asleep-fast): slowly, and then all at once.” – John Green
+56.  I fell in love the way you [fall asleep](https://selfsaid.30tools.com/how-to-fall-asleep-fast): slowly, and then all at once.” – John Green
 57.  “Your love is better than ice cream.” – Sarah McLachlan
 58.  “I could watch you for a single minute and find a thousand things that I love about you.” – Unknown
 59.  “Your love shines in my heart as the sun that shines upon the earth.” – Eleanor Di Guillo
@@ -116,12 +116,12 @@ This collection of love quotes is designed to help you express your deepest emot
 96.  “You are my heart’s epic adventure.” – Unknown
 97.  “Being with you is my favorite way to be.” – Unknown
 98.  “Love is the wisdom of the fool and the folly of the wise.” – Samuel Johnson
-99.  “Love is an endless act of forgiveness.” – [Beyoncé](/beyonce-quotes)
+99.  “Love is an endless act of forgiveness.” – [Beyoncé](https://selfsaid.30tools.com/beyonce-quotes)
 100.  “In you, I’ve found the love of my life and my closest, truest friend.” – Unknown
 101.  “Your love is like the lamp in the window that guides me home through the darkest night.” – Unknown
 102.  “I love you not only for what you are, but for what I am when I am with you.” – Elizabeth Barrett Browning
 103.  “I would not wish any companion in the world but you.” – William Shakespeare
-104.  To get the full value of joy, you must have someone to divide it with.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+104.  To get the full value of joy, you must have someone to divide it with.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 105.  “I love her, and that’s the beginning and end of everything.” – F. Scott Fitzgerald
 106.  “I love you, not only for what you are, but for what I am when I am with you.” – Roy Croft
 107.  “You are the finest, loveliest, tenderest, and most beautiful person I have ever known—and even that is an understatement.” – F. Scott Fitzgerald
@@ -129,7 +129,7 @@ This collection of love quotes is designed to help you express your deepest emot
 109.  “I have found the paradox, that if you love until it hurts, there can be no more hurt, only more love.” – Mother Teresa
 110.  “You have me. Until every last star in the galaxy dies. You have me.” – Amie Kaufman
 111.  “Love looks not with the eyes, but with the mind, and therefore is winged Cupid painted blind.” – William Shakespeare
-112.  If you find someone you love in your life, then hang on to that love.” – [Princess Diana](/princess-diana-quotes)
+112.  If you find someone you love in your life, then hang on to that love.” – [Princess Diana](https://selfsaid.30tools.com/princess-diana-quotes)
 113.  “To love and be loved is to feel the sun from both sides.” – David Viscott
 114.  “You are my sun, my moon, and all my stars.” – E.E. Cummings
 115.  “The water shines only by the sun. And it is you who are my sun.” – Charles de Leusse
@@ -196,7 +196,7 @@ This collection of love quotes is designed to help you express your deepest emot
 176.  “I am in love with your smile, your voice, your body, your laugh, your eyes. But most of all, I am in love with you.” – Unknown
 177.  “You are my today and all of my tomorrows.” – Unknown
 178.  “I have a crush on your mind, I fell for your personality, and your looks are just a big bonus.” – The Notebook
-179.  “I find the most [priceless moments](/priceless-moments-money-cant-buy) of life aren’t just with you but because of you.” – Leo Christopher
+179.  “I find the most [priceless moments](https://selfsaid.30tools.com/priceless-moments-money-cant-buy) of life aren’t just with you but because of you.” – Leo Christopher
 180.  “I could listen to you talk about the things you love forever and never get bored.” – Unknown
 181.  “Being in your arms is my happy place. I don’t want to be anywhere else.” – Unknown
 182.  “You are my favorite notification.” – Unknown
@@ -220,3 +220,5 @@ This collection of love quotes is designed to help you express your deepest emot
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/love-quotes-for-him/

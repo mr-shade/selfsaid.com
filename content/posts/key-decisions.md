@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/key-decisions/'
 
 ![](https://seffsaid.com/wp-content/uploads/key-decisions.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Looking back, most of us can see the quiet choices that changed everything. A habit we built. A boundary we set. A truth we finally faced. The decisions that shape our lives often don’t feel dramatic when we make them. They begin as small moments of clarity, and only later do we see their weight.  
   
@@ -22,7 +22,7 @@ Living well isn’t about choosing perfectly. It’s about learning to make choi
 
 When life is busy, it’s easy to treat health as something to manage later. But caring for your body and mind is the foundation for everything else. Eat foods that nourish you, move in ways that feel natural, rest when you’re tired, and give your body a chance to recover from long days.  
   
-Protecting your health early on means fewer regrets later. It’s not about control or perfection but about attention. Each time you choose rest, you’re saying yes to a [future self](/future-self) who still has energy for what they love.
+Protecting your health early on means fewer regrets later. It’s not about control or perfection but about attention. Each time you choose rest, you’re saying yes to a [future self](https://selfsaid.30tools.com/future-self) who still has energy for what they love.
 
 ## 2\. Build Relationships That Feel True
 
@@ -44,7 +44,7 @@ Learning keeps life alive. It reminds you that you can always begin again, that 
 
 ## 5\. Spend Less Than You Earn
 
-[Money alone can’t buy happiness](/priceless-moments-money-cant-buy), but the way you handle it shapes your peace of mind. Learning to live within your means, even when you could stretch further, creates freedom later. It’s not about restriction but about intention.  
+[Money alone can’t buy happiness](https://selfsaid.30tools.com/priceless-moments-money-cant-buy), but the way you handle it shapes your peace of mind. Learning to live within your means, even when you could stretch further, creates freedom later. It’s not about restriction but about intention.  
   
 Save what you can, spend consciously, and avoid tying your sense of worth to what you own. The earlier you decide to manage your finances with care, the more room you create for choices that feel free rather than forced.
 
@@ -52,7 +52,7 @@ Save what you can, spend consciously, and avoid tying your sense of worth to wha
 
 It’s easy to focus on outer success and forget the quiet work of caring for your mind. Mental health needs attention, not just when things are hard but as an ongoing practice. Check in with yourself. Notice when you’re running on stress or silence. Reach out for help before things feel unmanageable.  
   
-[Meditation](/benefits-of-meditation), journaling, or talking things through with someone you trust can keep you grounded. The decision to care for your mind isn’t a sign of weakness, it’s one of strength.
+[Meditation](https://selfsaid.30tools.com/benefits-of-meditation), journaling, or talking things through with someone you trust can keep you grounded. The decision to care for your mind isn’t a sign of weakness, it’s one of strength.
 
 ## 7\. Take Risks That Reflect Your Values
 
@@ -85,3 +85,5 @@ Over time, these small, intentional choices gather into something powerful. You�
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/key-decisions/

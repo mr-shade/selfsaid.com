@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/cristiano-ronaldo-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Cristiano-Ronaldo-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Discover the power of motivation and self-belief with a collection of inspiring quotes from Cristiano Ronaldo that showcase his relentless pursuit of excellence.
 
@@ -119,7 +119,7 @@ Ronaldo
   
 “I don’t have to prove anything to anyone. There is nothing to prove.” – Cristiano Ronaldo
 
-Read more [celebrity quotes](/quotes-by-famous-people) here.
+Read more [celebrity quotes](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcristiano-ronaldo-quotes%2F)
 
@@ -134,3 +134,5 @@ Read more [celebrity quotes](/quotes-by-famous-people) here.
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/cristiano-ronaldo-quotes/

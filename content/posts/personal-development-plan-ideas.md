@@ -12,25 +12,25 @@ original_url: 'https://selfsaid.30tools.com/personal-development-plan-ideas/'
 
 ![](https://seffsaid.com/wp-content/uploads/Personal-Development-Plan-Ideas.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Creating a personal development plan is a vital part of personal growth. What is personal growth? It’s a lifelong journey of enhancing life skills to enable you to lead a better life, both professionally and privately. It’s a continuous effort to become a better person, in every aspect of life.
 
-But why make a plan? The benefit of making a [personal development](/12-personal-development-tips) plan is simple, you’ll have a clear roadmap to producing the very best version of yourself. You can clearly define what is important to you, what strengths you already have what you want to achieve.
+But why make a plan? The benefit of making a [personal development](https://selfsaid.30tools.com/12-personal-development-tips) plan is simple, you’ll have a clear roadmap to producing the very best version of yourself. You can clearly define what is important to you, what strengths you already have what you want to achieve.
 
 But where to start? Below I have made a list of 18 personal development plan ideas you can implement immediately. Some are easier than others, and some will take more effort to implement, but all can help you become your very best version.
 
 ## 1\. Start practicing mindfulness meditation
 
-The [benefits of meditation](/benefits-of-meditation) are numerous. It [reduces stress](/how-to-reduce-stress), controls anxiety and enhances self-awareness. Improves sleep, helps manage pain and can lower blood pressure. Don’t know where to start?
+The [benefits of meditation](https://selfsaid.30tools.com/benefits-of-meditation) are numerous. It [reduces stress](https://selfsaid.30tools.com/how-to-reduce-stress), controls anxiety and enhances self-awareness. Improves sleep, helps manage pain and can lower blood pressure. Don’t know where to start?
 
 ## 2\. Start reading books
 
-The [benefits of reading books](/8-benefits-of-reading-books) include stress reduction and mental stimulation which is good for brain health. You’ll enjoy memory improvement, improved focus, and better concentration. More benefits include an increase in your knowledge and your vocabulary.
+The [benefits of reading books](https://selfsaid.30tools.com/8-benefits-of-reading-books) include stress reduction and mental stimulation which is good for brain health. You’ll enjoy memory improvement, improved focus, and better concentration. More benefits include an increase in your knowledge and your vocabulary.
 
 ## 3\. Work on building your self-confidence
 
-Numerous studies have shown that [confident people](/10-ways-to-appear-more-confident) have greater success in life than those that lack confidence. Benefits include an increased sense of self-worth and more joy and happiness. Less fear, anxiety and stress and better peace of mind.
+Numerous studies have shown that [confident people](https://selfsaid.30tools.com/10-ways-to-appear-more-confident) have greater success in life than those that lack confidence. Benefits include an increased sense of self-worth and more joy and happiness. Less fear, anxiety and stress and better peace of mind.
 
 ## 4\. Make a list of your short term, midterm, and long term life goals
 
@@ -38,25 +38,25 @@ Making a list of your short-term, midterm, and long-term goals helps you stay fo
 
 ## 5\. Create an action plan on achieving those goals
 
-Creating an action plan for your goals helps you break down what needs to be done into [small manageable steps](/how-to-break-a-big-task-into-small-steps). It keeps you organized and motivated by giving you clear tasks to complete. By following your plan, you can steadily work toward achieving your goals, leading to meaningful personal development.
+Creating an action plan for your goals helps you break down what needs to be done into [small manageable steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps). It keeps you organized and motivated by giving you clear tasks to complete. By following your plan, you can steadily work toward achieving your goals, leading to meaningful personal development.
 
 ## 6\. Become optimistic
 
-Developing an optimistic outlook is a life-skill that will improve anybody’s life. Optimism is a habit and we can actually train ourselves on [how to be optimistic](/how-to-be-optimistic). By changing our way of thinking we can gradually change our mood, motivation level and become more optimistic.
+Developing an optimistic outlook is a life-skill that will improve anybody’s life. Optimism is a habit and we can actually train ourselves on [how to be optimistic](https://selfsaid.30tools.com/how-to-be-optimistic). By changing our way of thinking we can gradually change our mood, motivation level and become more optimistic.
 
 ## 7\. Be kind
 
-Researchers have been studying the psychology and biology of positive social interactions and have been finding extraordinary results. Performing simple [acts of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer) not only makes you feel good, but they may also increase your lifespan.
+Researchers have been studying the psychology and biology of positive social interactions and have been finding extraordinary results. Performing simple [acts of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) not only makes you feel good, but they may also increase your lifespan.
 
 This is according to recent studies by scientists and academics at UCLA’s Bedari Kindness Institute. It seems that simple acts of kindness can have powerful psychological and sociological effects. They can actually change our bodies, our minds and the world around us.
 
 ## 8\. Declutter your home
 
-Learn to live with less and you’ll soon be reaping the benefits of more living space, fewer allergens and less stress. You’ll enjoy a boost in creativity and [productivity](/tips-for-productive-living) and have more free time. You’ll sleep better, concentrate better and best of all – there’ll be less cleaning to do! Not sure what to get rid of? Read my [declutter your home](/declutter-your-home) article for a list of 70 things you won’t miss at all!
+Learn to live with less and you’ll soon be reaping the benefits of more living space, fewer allergens and less stress. You’ll enjoy a boost in creativity and [productivity](https://selfsaid.30tools.com/tips-for-productive-living) and have more free time. You’ll sleep better, concentrate better and best of all – there’ll be less cleaning to do! Not sure what to get rid of? Read my [declutter your home](https://selfsaid.30tools.com/declutter-your-home) article for a list of 70 things you won’t miss at all!
 
 ## 9\. Live every day with an attitude of gratitude
 
-An [attitude of gratitude](/how-to-cultivate-an-attitude-of-gratitude) improves physical and psychological health. It improves self-esteem, enhances empathy and increases emotional resilience.
+An [attitude of gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) improves physical and psychological health. It improves self-esteem, enhances empathy and increases emotional resilience.
 
 ## 10\. Make time for a hobby
 
@@ -68,11 +68,11 @@ Green tea is said to be the healthiest drink on the planet. It is packed with nu
 
 ## 12\. Learn to say no
 
-Stop saying yes every time someone asks you for something or for your help and start learning [how to say no](/learn-how-to-say-no). Saying no is a vital self-development tool to learn for your health and well-being. You’ll have more energy and more time for yourself. And you’ll gain respect from others and gain self-confidence.
+Stop saying yes every time someone asks you for something or for your help and start learning [how to say no](https://selfsaid.30tools.com/learn-how-to-say-no). Saying no is a vital self-development tool to learn for your health and well-being. You’ll have more energy and more time for yourself. And you’ll gain respect from others and gain self-confidence.
 
 ## 13\. Stop procrastinating
 
-Procrastination is the postponement of something that we know we should do now. We all procrastinate from time to time, some people more than others. Unfortunately, procrastination can bring negativity and problems into our lives and prevents us from getting the most out of life. Read my article on [how to stop procrastinating](/6-tips-to-stop-procrastinating) for more information.
+Procrastination is the postponement of something that we know we should do now. We all procrastinate from time to time, some people more than others. Unfortunately, procrastination can bring negativity and problems into our lives and prevents us from getting the most out of life. Read my article on [how to stop procrastinating](https://selfsaid.30tools.com/6-tips-to-stop-procrastinating) for more information.
 
 ## 14\. Exercise every day
 
@@ -109,3 +109,5 @@ Pin8
 [More](#)
 
 8 Shares
+
+Source: https://selfsaid.30tools.com/personal-development-plan-ideas/

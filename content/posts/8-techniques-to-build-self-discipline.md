@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/8-techniques-to-build-self-disciplin
 
 ![Athlete running a marathon](https://seffsaid.com/wp-content/uploads/how-to-build-self-discipline.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Building self-discipline is a crucial skill for achieving success and maintaining a balanced life. It’s the foundation that helps you meet your goals, overcome challenges, and resist the temptation to give in to short-term gratifications that don’t align with your long-term aspirations. But how to build self-discipline? It’s a question many people ask, especially in a world full of distractions and instant gratifications.
 
@@ -24,7 +24,7 @@ This article outlines eight practical techniques to strengthen your self-discipl
 
 Setting clear goals for yourself is the foundation of building self-discipline. It starts with knowing what you want to achieve. Without a clear destination, it’s easy to wander off course or lose motivation. Think about what you really want, both in the short term and the long term. These goals should be specific, measurable, achievable, relevant, and time-bound (SMART). This clarity will help you focus your efforts and stay committed, even when obstacles arise.
 
-[Break down larger goals into smaller, manageable steps](/how-to-break-a-big-task-into-small-steps). This makes the process less overwhelming and gives you a clear roadmap to follow. Each small step completed is a victory in its own right, reinforcing your self-discipline and motivating you to keep pushing forward.
+[Break down larger goals into smaller, manageable steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps). This makes the process less overwhelming and gives you a clear roadmap to follow. Each small step completed is a victory in its own right, reinforcing your self-discipline and motivating you to keep pushing forward.
 
 It’s also helpful to review your goals regularly. Life changes, and so can your goals. This regular check-in keeps your objectives relevant and ensures that your efforts are always aligned with what you truly want to achieve. By setting clear goals, you lay a strong foundation for developing the self-discipline needed to turn your dreams into reality.
 
@@ -50,7 +50,7 @@ Another effective strategy is to tackle the most challenging or least desirable 
 
 Finally, minimize distractions. Identify what commonly draws your attention away from work and find ways to reduce these interruptions. Whether it’s silencing your phone, working in a quieter space, or using apps that limit your use of social media, removing these distractions can help you focus and get started on your tasks.
 
-By actively working to understand and [combat procrastination](/how-to-stop-procrastinating), you’ll find it easier to stick to your goals and build the self-discipline necessary for success.
+By actively working to understand and [combat procrastination](https://selfsaid.30tools.com/how-to-stop-procrastinating), you’ll find it easier to stick to your goals and build the self-discipline necessary for success.
 
 ## 4\. The Role of Accountability Partners
 
@@ -102,7 +102,7 @@ Remember, any goal is made up of countless small steps. Each one deserves recogn
 
 ### 8\. Understanding the Power of Saying No
 
-Saying no is not just about refusing things you don’t want to do; it’s about making conscious choices that align with your goals and values. Every time you say no to a distraction or a task that doesn’t serve your objectives, you’re [saying yes to yourself](/say-yes-to-yourself), your priorities and your commitments.
+Saying no is not just about refusing things you don’t want to do; it’s about making conscious choices that align with your goals and values. Every time you say no to a distraction or a task that doesn’t serve your objectives, you’re [saying yes to yourself](https://selfsaid.30tools.com/say-yes-to-yourself), your priorities and your commitments.
 
 It might feel challenging at first, especially if you’re used to saying yes to everyone around you. However, learning how to say no is crucial for managing your time and energy effectively. It helps you focus on what truly matters, preventing you from spreading yourself too thin.
 
@@ -127,3 +127,5 @@ Simply implementing a few of these techniques will help improve your self-discip
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/8-techniques-to-build-self-discipline/

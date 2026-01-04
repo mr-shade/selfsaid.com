@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/you-cant-pour-from-an-empty-cup/'
 
 ![You Can’t Pour from an Empty Cup](https://seffsaid.com/wp-content/uploads/you-cant-pour-from-an-empty-cup-600x600-1.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 This quote has become one of the most widely shared reminders in the self-care space. It’s short, clear, and deeply true. “You can’t pour from an empty cup” is more than just a phrase. It’s a reminder that caring for yourself is not extra, it’s essential.
 
@@ -34,7 +34,7 @@ Filling your cup might mean sleep, space, movement, quiet, or connection. It doe
 
 Many people feel pressure to be available, helpful, and responsive all the time. It becomes easy to forget that rest is part of showing up well. This quote offers a kind boundary. It says, care for yourself first, not because others don’t matter, but because you do.
 
-You do not have to reach the edge of burnout before you pause. You can [take care of yourself](/what-taking-care-of-yourself-really-means) as a daily practice, not as an emergency. When your cup is full, even slightly, you’re more present, more steady, and more able to live in a way that feels right to you.
+You do not have to reach the edge of burnout before you pause. You can [take care of yourself](https://selfsaid.30tools.com/what-taking-care-of-yourself-really-means) as a daily practice, not as an emergency. When your cup is full, even slightly, you’re more present, more steady, and more able to live in a way that feels right to you.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-cant-pour-from-an-empty-cup%2F)
 
@@ -49,3 +49,5 @@ You do not have to reach the edge of burnout before you pause. You can [take car
 [More](#)
 
 8 Shares
+
+Source: https://selfsaid.30tools.com/you-cant-pour-from-an-empty-cup/

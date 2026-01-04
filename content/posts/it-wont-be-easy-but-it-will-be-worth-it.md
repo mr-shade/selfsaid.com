@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/it-wont-be-easy-but-it-will-be-worth
 
 ![It won't be easy, but it will be worth it.](https://seffsaid.com/wp-content/uploads/It-wont-be-easy-but-it-will-be-worth-it.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## It Won’t Be Easy, But It Will Be Worth It.
 
@@ -49,3 +49,5 @@ In summary, “It Won’t Be Easy, But It Will Be Worth It” is a powerful expr
 [More](#)
 
 0 Shares
+
+Source: https://selfsaid.30tools.com/it-wont-be-easy-but-it-will-be-worth-it/

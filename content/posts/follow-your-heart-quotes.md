@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/follow-your-heart-quotes/'
 
 ![Follow Your Heart Quotes](https://seffsaid.com/wp-content/uploads/follow-your-heart-quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Following your heart is about self-awareness and courage, making choices that reflect your true values despite external pressures.
 
-This set of 150 follow-your-heart quotes offers insight and encouragement on staying true to yourself. They serve as [morning affirmations](/morning-affirmations) that can be woven into your [morning routine](/morning-routine-ideas), helping you to be brave and confident in your decisions, and reminding you of your worth.
+This set of 150 follow-your-heart quotes offers insight and encouragement on staying true to yourself. They serve as [morning affirmations](https://selfsaid.30tools.com/morning-affirmations) that can be woven into your [morning routine](https://selfsaid.30tools.com/morning-routine-ideas), helping you to be brave and confident in your decisions, and reminding you of your worth.
 
 Incorporating these quotes into your daily life can boost your motivation and confidence. They are meant to support you in living authentically, guiding you through doubts and decisions.
 
@@ -184,3 +184,5 @@ Incorporating these quotes into your daily life can boost your motivation and co
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/follow-your-heart-quotes/

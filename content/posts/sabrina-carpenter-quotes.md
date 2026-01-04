@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/sabrina-carpenter-quotes/'
 
 ![Sabrina Carpenter In Concert](https://seffsaid.com/wp-content/uploads/Sabrina-Carpenter-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Sabrina Carpenter’s best quotes that capture her thoughts on self-love, individuality, perseverance, and [personal growth](/ten-ways-to-accelerate-your-personal-growth-and-development). Read more [famous people’s quotes](/quotes-by-famous-people) here.
+Sabrina Carpenter’s best quotes that capture her thoughts on self-love, individuality, perseverance, and [personal growth](https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development). Read more [famous people’s quotes](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 *   “The greatest thing you can do is love yourself first.” – Sabrina Carpenter
 *   “It’s important to always be kind, because you never know what someone else is going through.” – Sabrina Carpenter
@@ -29,12 +29,12 @@ Sabrina Carpenter’s best quotes that capture her thoughts on self-love, indivi
 *   “The world would be boring if we all thought the same way.” – Sabrina Carpenter
 *   “It’s not about being perfect; it’s about being passionate.” – Sabrina Carpenter
 *   “You have to learn to love the journey as much as the destination.” – Sabrina Carpenter
-*   I think you find yourself when you [step out of your comfort zone.”](/10-ways-to-step-out-of-your-comfort-zone) – Sabrina Carpenter
-*   “[Patience](/how-to-be-patient-with-your-dreams) is key in everything, especially in the pursuit of your dreams.” – Sabrina Carpenter
+*   I think you find yourself when you [step out of your comfort zone.”](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone) – Sabrina Carpenter
+*   “[Patience](https://selfsaid.30tools.com/how-to-be-patient-with-your-dreams) is key in everything, especially in the pursuit of your dreams.” – Sabrina Carpenter
 *   “It’s okay to not have all the answers; life is about figuring it out.” – Sabrina Carpenter
 *   “You can never control how others see you, only how you see yourself.” – Sabrina Carpenter
 *   “I want to inspire people to be the best version of themselves.” – Sabrina Carpenter
-*   “You have to [make good things happen](/how-to-make-good-things-happen) in life.” – Sabrina Carpenter
+*   “You have to [make good things happen](https://selfsaid.30tools.com/how-to-make-good-things-happen) in life.” – Sabrina Carpenter
 *   “You don’t have to fit in to belong.” – Sabrina Carpenter
 *   “The more you experience, the more you grow.” – Sabrina Carpenter
 *   “Every day is a new opportunity to be better than you were yesterday.” – Sabrina Carpenter
@@ -45,7 +45,7 @@ Sabrina Carpenter’s best quotes that capture her thoughts on self-love, indivi
 *   “Kindness is always in style.” – Sabrina Carpenter
 *   “I believe that everything happens for a reason, even if we don’t see it right away.” – Sabrina Carpenter
 *   “The best part of life is the journey, not the destination.” – Sabrina Carpenter
-*   [“Life is too short](/the-26-best-short-life-quotes) to not take risks and chase your dreams.” – Sabrina Carpenter
+*   [“Life is too short](https://selfsaid.30tools.com/the-26-best-short-life-quotes) to not take risks and chase your dreams.” – Sabrina Carpenter
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsabrina-carpenter-quotes%2F)
 
@@ -60,3 +60,5 @@ Sabrina Carpenter’s best quotes that capture her thoughts on self-love, indivi
 [More](#)
 
 20 Shares
+
+Source: https://selfsaid.30tools.com/sabrina-carpenter-quotes/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-inner-beauty/'
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-inner-beauty.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Inner beauty is about qualities that go beyond appearance, reflecting the kindness, confidence, and strength within. These quotes offer simple reminders of the deeper beauty that shines through a person’s character and actions.
 
@@ -30,7 +30,7 @@ Inner beauty is about qualities that go beyond appearance, reflecting the kindne
 
 “Character develops in stream of struggle and adversity. Character is foundation of your inner beauty which reflects in your personality.” – Anil Sinha
 
-Inner beauty should be the most important part of [improving one’s self.”](/6-self-improvement-tips-that-will-change-your-life) – Priscilla Presley
+Inner beauty should be the most important part of [improving one’s self.”](https://selfsaid.30tools.com/6-self-improvement-tips-that-will-change-your-life) – Priscilla Presley
 
 “Beauty is the illumination of your soul.” – John O’Donohue
 
@@ -54,9 +54,9 @@ Inner beauty should be the most important part of [improving one’s self.”](/
 
 “Through simplicity comes great beauty.” – Anonymous
 
-Inner beauty shines when you have a [positive attitude](/easy-ways-to-develop-a-positive-attitude), gratitude, and kindness.” – Debasish Mridha
+Inner beauty shines when you have a [positive attitude](https://selfsaid.30tools.com/easy-ways-to-develop-a-positive-attitude), gratitude, and kindness.” – Debasish Mridha
 
-“When you do something noble and beautiful and nobody noticed, do not be sad. For the sun every morning is a beautiful spectacle and yet most of the audience still sleeps.” – [John Lennon](/john-lennon-quotes)
+“When you do something noble and beautiful and nobody noticed, do not be sad. For the sun every morning is a beautiful spectacle and yet most of the audience still sleeps.” – [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes)
 
 “Inner beauty is not in the face; it’s a light in the heart.” – Khalil Gibran
 
@@ -155,3 +155,5 @@ Inner beauty shines when you have a [positive attitude](/easy-ways-to-develop-a-
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-inner-beauty/

@@ -12,14 +12,14 @@ original_url: 'https://selfsaid.30tools.com/j-k-rowling-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/J-K-Rowling-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-J.K. Rowling’s words have touched the hearts of millions around the world. Below, you’ll find some of her most memorable and inspiring quotes. These [words of wisdom](/wise-quotes-about-life) from the beloved author of the Harry Potter series offer a glimpse into her thoughts on life, courage, and the power of imagination. Read more [quotes from famous authors](/quotes-by-famous-people) here.
+J.K. Rowling’s words have touched the hearts of millions around the world. Below, you’ll find some of her most memorable and inspiring quotes. These [words of wisdom](https://selfsaid.30tools.com/wise-quotes-about-life) from the beloved author of the Harry Potter series offer a glimpse into her thoughts on life, courage, and the power of imagination. Read more [quotes from famous authors](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 1.  “It is our choices that show what we truly are, far more than our abilities.” – J.K. Rowling
 2.  “The stories we love best do live in us forever.” – J.K. Rowling
 3.  “You will never truly know yourself, or the strength of your relationships, until both have been tested by adversity.” – J.K. Rowling
-4.  We do not need magic to [transform our world](/reinvent-yourself). We carry all the power we need inside ourselves already.” – J.K. Rowling
+4.  We do not need magic to [transform our world](https://selfsaid.30tools.com/reinvent-yourself). We carry all the power we need inside ourselves already.” – J.K. Rowling
 5.  “It is impossible to live without failing at something unless you live so cautiously that you might as well not have lived at all—in which case, you fail by default.” – J.K. Rowling
 6.  “It does not do to dwell on dreams and forget to live.” – J.K. Rowling
 7.  “Indifference and neglect often do much more damage than outright dislike.” – J.K. Rowling
@@ -41,7 +41,7 @@ J.K. Rowling’s words have touched the hearts of millions around the world. Bel
 23.  “Talent and intelligence never yet inoculated anyone against the caprice of the fates.” – J.K. Rowling
 24.  “Fear of a name increases fear of the thing itself.” – J.K. Rowling
 25.  “The truth is always easier than a lie or an evasion – simpler and tidier.” – J.K. Rowling
-26.  I do believe something very magical can happen when you [read a good book.”](/8-benefits-of-reading-books) – J.K. Rowling
+26.  I do believe something very magical can happen when you [read a good book.”](https://selfsaid.30tools.com/8-benefits-of-reading-books) – J.K. Rowling
 27.  “Happiness can be found, even in the darkest of times, if one only remembers to turn on the light.” – J.K. Rowling
 28.  “To the well-organized mind, death is but the next great adventure.” – J.K. Rowling
 29.  “It’s no good sitting on your butt and saying you are a writer; you’ll never be a writer unless you actually write.” – J.K. Rowling
@@ -80,3 +80,5 @@ J.K. Rowling’s words have touched the hearts of millions around the world. Bel
 [More](#)
 
 31 Shares
+
+Source: https://selfsaid.30tools.com/j-k-rowling-quotes/

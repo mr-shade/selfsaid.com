@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/powerful-badass-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/badass-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Looking for the most powerful Badass Quotes of all time? Quotes that are so Badass that they will inspire and motivate you to succeed in life? These quotes will help you develop that go-getter badass mentality.
 
@@ -28,13 +28,13 @@ Looking for the most powerful Badass Quotes of all time? Quotes that are so Bada
     
 6.  “I don’t need a weapon, I am one.” – Anonymous  
     
-7.  “The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time.” – [Mark Twain](/25-inspirational-mark-twain-quotes)  
+7.  “The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)  
     
-8.  “They laugh at me because I’m different. I laugh at them because they are the same.” – [Kurt Cobain](/kurt-cobain-quotes)  
+8.  “They laugh at me because I’m different. I laugh at them because they are the same.” – [Kurt Cobain](https://selfsaid.30tools.com/kurt-cobain-quotes)  
     
 9.  “The goal is not to be rich, it is to be a legend.” – Anonymous  
     
-10.  I got my own back.” – [Maya Angelou](/maya-angelou-quotes)  
+10.  I got my own back.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)  
      
 11.  “Be yourself, you’re not born to impress anyone.” – Anonymous  
      
@@ -48,7 +48,7 @@ Looking for the most powerful Badass Quotes of all time? Quotes that are so Bada
      
 16.  “We are here to laugh at the odds and live our lives so well that Death will tremble to take us.” – Charles Bukowski  
      
-17.  Everyone has a plan until they get punched in the mouth.” – [Mike Tyson](/mike-tyson-quotes)  
+17.  Everyone has a plan until they get punched in the mouth.” – [Mike Tyson](https://selfsaid.30tools.com/mike-tyson-quotes)  
      
 18.  “You can quit talking to me if you don’t like my attitude.” – Anonymous  
      
@@ -66,9 +66,9 @@ Looking for the most powerful Badass Quotes of all time? Quotes that are so Bada
      
 25.  “The best way out is always through.” – Robert Frost  
      
-26.  If you don’t like the road you’re walking, start paving another one.” – [Dolly Parton](/dolly-parton-quotes)  
+26.  If you don’t like the road you’re walking, start paving another one.” – [Dolly Parton](https://selfsaid.30tools.com/dolly-parton-quotes)  
      
-27.  I’m not in this world to live up to your expectations and you’re not in this world to live up to mine.” – [Bruce Lee](/bruce-lee-quotes)  
+27.  I’m not in this world to live up to your expectations and you’re not in this world to live up to mine.” – [Bruce Lee](https://selfsaid.30tools.com/bruce-lee-quotes)  
      
 28.  “Today I will do what others won’t, so tomorrow I will do what others can’t.” – Jerry Rice  
      
@@ -76,7 +76,7 @@ Looking for the most powerful Badass Quotes of all time? Quotes that are so Bada
      
 30.  “Listen, smile, agree, and then do whatever you were going to do anyway.” – Robert Downey Jr.  
      
-31.  I’ve missed more than 9000 shots in my career. I’ve lost almost 300 games. 26 times I’ve been trusted to take the game winning shot and missed. I’ve failed over and over and over again in my life. And that is why I succeed.” – [Michael Jordan](/michael-jordan-quotes)  
+31.  I’ve missed more than 9000 shots in my career. I’ve lost almost 300 games. 26 times I’ve been trusted to take the game winning shot and missed. I’ve failed over and over and over again in my life. And that is why I succeed.” – [Michael Jordan](https://selfsaid.30tools.com/michael-jordan-quotes)  
      
 32.  “The best revenge is massive success.” – Frank Sinatra  
      
@@ -86,7 +86,7 @@ Looking for the most powerful Badass Quotes of all time? Quotes that are so Bada
      
 35.  “Champions keep playing until they get it right.” – Billie Jean King  
      
-36.  The ones who are crazy enough to think they can change the world, are the ones that do.” – [Steve Jobs](/steve-jobs-quotes)  
+36.  The ones who are crazy enough to think they can change the world, are the ones that do.” – [Steve Jobs](https://selfsaid.30tools.com/steve-jobs-quotes)  
      
 37.  “Don’t tell me the sky’s the limit when there are footprints on the moon.” – Paul Brandt  
      
@@ -98,7 +98,7 @@ Looking for the most powerful Badass Quotes of all time? Quotes that are so Bada
      
 41.  “You create opportunities by performing, not complaining.” – Muriel Siebert  
      
-42.  Don’t count the days, make the days count.” – [Muhammad Ali](/muhammad-ali-quotes)  
+42.  Don’t count the days, make the days count.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)  
      
 43.  “Stop missing people who don’t even waste a second thinking about you.” – Anonymous  
      
@@ -125,3 +125,5 @@ Looking for the most powerful Badass Quotes of all time? Quotes that are so Bada
 [More](#)
 
 6.29K Shares
+
+Source: https://selfsaid.30tools.com/powerful-badass-quotes/

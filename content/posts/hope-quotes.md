@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/hope-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/hope-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Finding hope can be a powerful way to move forward, especially during uncertain times. These 60 hope quotes offer words of encouragement, resilience, and optimism that can help you see a brighter tomorrow. Let these quotes remind you of the strength that hope can bring to everyday life.
 
@@ -20,7 +20,7 @@ Finding hope can be a powerful way to move forward, especially during uncertain 
 
 *   “Hope is being able to see that there is light despite all of the darkness.” — Desmond Tutu
 *   “Hope is the only thing stronger than fear.” — Suzanne Collins
-*   We must accept finite disappointment, but never lose infinite hope.” — [Martin Luther King](/martin-luther-king-quotes) Jr.
+*   We must accept finite disappointment, but never lose infinite hope.” — [Martin Luther King](https://selfsaid.30tools.com/martin-luther-king-quotes) Jr.
 *   “Once you choose hope, anything’s possible.” — Christopher Reeve
 *   “Where there is no vision, there is no hope.” — George Washington Carver
 *   “Hope is the pillar that holds up the world.” — Pliny the Elder
@@ -52,7 +52,7 @@ Finding hope can be a powerful way to move forward, especially during uncertain 
 *   “Hope is a beautiful thing. It gives us peace and strength, and keeps us going when all else is lost.” — Unknown
 *   “Hope is like peace. It is not a gift from God. It is a gift only we can give one another.” — Elie Wiesel
 *   “The darkest hours are just before dawn.” — English Proverb
-*   Hope is that thing inside us that insists, despite all evidence to the contrary, that something better awaits us.” — [Barack Obama](/barack-obama-quotes)
+*   Hope is that thing inside us that insists, despite all evidence to the contrary, that something better awaits us.” — [Barack Obama](https://selfsaid.30tools.com/barack-obama-quotes)
 *   “Hope can be a powerful force. Maybe there’s no actual magic in it, but when you know what you hope for most and hold it like a light within you, you can make things happen, almost like magic.” — Laini Taylor
 *   “Carve a tunnel of hope through the dark mountain of disappointment.” — Martin Luther King Jr.
 *   “There is no medicine like hope, no incentive so great, and no tonic so powerful as expectation of something better tomorrow.” — Orison Swett Marden
@@ -92,3 +92,5 @@ Finding hope can be a powerful way to move forward, especially during uncertain 
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/hope-quotes/

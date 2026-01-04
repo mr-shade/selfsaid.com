@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/things-you-dont-need/'
 
 ![](https://seffsaid.com/wp-content/uploads/things-you-dont-need.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We live in a world that makes us feel behind. Like there’s always something else we should be doing, owning, learning, improving. Scroll long enough and you’ll find a new morning routine, a new life hack, a new must-have product or habit. And it all sounds so convincing, like if you just had this one more thing, life would feel better.
 
@@ -32,7 +32,7 @@ What you _do_ need is a start that doesn’t overwhelm you. Maybe it’s ten qui
 
 There’s always a new app or system promising to organize your life. But more tools often mean more complexity. More decisions. More alerts.
 
-You don’t need five apps to track your day. You need one place, mental or digital, that [helps you focus](/cant-focus-5-minute-fix) on what matters and drop the rest. Most people don’t need a new system. They need permission to slow down, do less, and stop trying to squeeze 40 hours of tasks into a single day.
+You don’t need five apps to track your day. You need one place, mental or digital, that [helps you focus](https://selfsaid.30tools.com/cant-focus-5-minute-fix) on what matters and drop the rest. Most people don’t need a new system. They need permission to slow down, do less, and stop trying to squeeze 40 hours of tasks into a single day.
 
 ## 3\. To Stay Constantly Connected
 
@@ -62,7 +62,7 @@ You don’t need a wave of energy to start. You need one step. A small one. You 
 
 Trying to please everyone is exhausting. It pulls you in too many directions and disconnects you from yourself.
 
-You don’t need to justify your choices to everyone. You don’t need to over-explain, over-apologize, or keep [saying yes](/say-yes-to-yourself) when you mean no. Not everyone will understand your boundaries. That’s okay. Approval isn’t peace. Sometimes saying no to others is how you say yes to yourself.
+You don’t need to justify your choices to everyone. You don’t need to over-explain, over-apologize, or keep [saying yes](https://selfsaid.30tools.com/say-yes-to-yourself) when you mean no. Not everyone will understand your boundaries. That’s okay. Approval isn’t peace. Sometimes saying no to others is how you say yes to yourself.
 
 ## 8\. To Be ‘Fixed’ First
 
@@ -103,3 +103,5 @@ Let go of the noise. The pressure. The endless chase. Calm is already within rea
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/things-you-dont-need/

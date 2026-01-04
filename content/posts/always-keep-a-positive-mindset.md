@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/always-keep-a-positive-mindset/'
 
 ![Always Keep A Positive Mindset](https://seffsaid.com/wp-content/uploads/Always-keep-a-positive-mindset.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## Always Keep A Positive Mindset
 
@@ -37,3 +37,5 @@ The underlying message of the quote is that consistently nurturing a positive at
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/always-keep-a-positive-mindset/

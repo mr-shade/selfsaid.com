@@ -11,9 +11,9 @@ original_url: >-
 
 ![Confucius thinking up another of his life changing quotes](https://seffsaid.com/wp-content/uploads/Confucius-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Confucius (551 B.C. – 479 B.C.) was a Chinese teacher, political theorist and social philosopher, whose teachings deeply influenced East Asian life and thought. Confucianism, the tradition that bears his name, traces itself back to the sayings recorded in the text known as the Analects which remains the traditional source for information about Confucius’ life and teaching. Here are the 50 quotes from Confucius that might just [change your life](/change-your-life-for-the-better).
+Confucius (551 B.C. – 479 B.C.) was a Chinese teacher, political theorist and social philosopher, whose teachings deeply influenced East Asian life and thought. Confucianism, the tradition that bears his name, traces itself back to the sayings recorded in the text known as the Analects which remains the traditional source for information about Confucius’ life and teaching. Here are the 50 quotes from Confucius that might just [change your life](https://selfsaid.30tools.com/change-your-life-for-the-better).
 
 1.  “It does not matter how slowly you go as long as you do not stop.” — Confucius
 2.  “Our greatest glory is not in never falling, but in rising every time we fall.” — Confucius
@@ -31,13 +31,13 @@ Confucius (551 B.C. – 479 B.C.) was a Chinese teacher, political theorist and 
 14.  “Silence is a true friend who never betrays.” — Confucius
 15.  “He who speaks without modesty will find it difficult to make his words good.” — Confucius
 16.  “Before you embark on a journey of revenge, dig two graves.” — Confucius
-17.  “[Wisdom](/wise-quotes-about-life), compassion, and courage are the three universally recognized moral qualities of men.” — Confucius
+17.  “[Wisdom](https://selfsaid.30tools.com/wise-quotes-about-life), compassion, and courage are the three universally recognized moral qualities of men.” — Confucius
 18.  “Study the past if you would define the future.” — Confucius
 19.  “He who exercises government by means of his virtue may be compared to the north polar star, which keeps its place and all the stars turn towards it.” — Confucius
 20.  “The superior man understands what is right; the inferior man understands what will sell.” — Confucius
 21.  “To know what you know and what you do not know, that is true knowledge.” — Confucius
 22.  “I hear and I forget. I see and I remember. I do and I understand.” — Confucius
-23.  “The will to win, the [desire to succeed](/why-some-people-are-more-successful-than-others), the urge to reach your full potential… these are the keys that will unlock the door to personal excellence.” — Confucius
+23.  “The will to win, the [desire to succeed](https://selfsaid.30tools.com/why-some-people-are-more-successful-than-others), the urge to reach your full potential… these are the keys that will unlock the door to personal excellence.” — Confucius
 24.  “Ignorance is the night of the mind, but a night without moon and star.” — Confucius
 25.  “The strength of a nation derives from the integrity of the home.” — Confucius
 26.  “Hold faithfulness and sincerity as first principles.” — Confucius
@@ -79,3 +79,5 @@ Confucius (551 B.C. – 479 B.C.) was a Chinese teacher, political theorist and 
 [More](#)
 
 911 Shares
+
+Source: https://selfsaid.30tools.com/the-top-10-confucius-quotes-that-will-change-your-life/

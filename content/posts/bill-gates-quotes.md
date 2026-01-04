@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/bill-gates-quotes/'
 
 ![Bill Gates thinking up one of his inspirational quotes.](https://seffsaid.com/wp-content/uploads/Bill-Gates-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 This collection of Bill Gates’s best quotes offers a glimpse into the mind of one of the world’s most successful entrepreneurs and philanthropists. From thoughts on success and failure to insights on technology and life, these quotes provide valuable lessons that can inspire and inform your daily decisions.
 
@@ -80,3 +80,5 @@ This collection of Bill Gates’s best quotes offers a glimpse into the mind of 
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/bill-gates-quotes/

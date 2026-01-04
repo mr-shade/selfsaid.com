@@ -11,7 +11,7 @@ featured_image: >-
 original_url: 'https://selfsaid.30tools.com/every-moment-matters/'
 ---
 
-All [Printable Quotes](/printable-quotes)
+All [Printable Quotes](https://selfsaid.30tools.com/printable-quotes)
 
 ![Every Moment Matters](https://seffsaid.com/wp-content/uploads/SEFFSAID-Every-Moment-Matters-800x800-1.webp)
 
@@ -64,3 +64,5 @@ $1.99 – Instant Download
 [More](#)
 
 0 Shares
+
+Source: https://selfsaid.30tools.com/every-moment-matters/

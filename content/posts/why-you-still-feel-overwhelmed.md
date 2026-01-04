@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/why-you-still-feel-overwhelmed/'
 
 ![](https://seffsaid.com/wp-content/uploads/why-you-still-feel-overwhelmed.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 You’ve done the right things. You’ve simplified your days. You’ve set boundaries. You’ve slowed your pace. But something still doesn’t feel right.
 
 The tension hasn’t gone. The heaviness hasn’t lifted. Even with fewer demands on your time, your mind still feels full. And calm still feels out of reach.
 
-If you’ve stepped back from the noise and _still_ [feel overwhelmed](/calming-quotes), it’s not because you’re doing it wrong. And you’re not alone. Overwhelm doesn’t always come from doing too much. It often comes from carrying what no one else can see.
+If you’ve stepped back from the noise and _still_ [feel overwhelmed](https://selfsaid.30tools.com/calming-quotes), it’s not because you’re doing it wrong. And you’re not alone. Overwhelm doesn’t always come from doing too much. It often comes from carrying what no one else can see.
 
 This article is about that kind of overwhelm, and what you can begin to do about it.
 
@@ -64,7 +64,7 @@ Here are a few ways to begin shifting that weight:
 
 ### Stop trying to fix the feeling
 
-Overwhelm often triggers the urge to [fix everything](/you-dont-have-to-fix-everything) at once. You may start overplanning, [overthinking](/overthinking-break-the-loop), or blaming yourself for not doing enough.
+Overwhelm often triggers the urge to [fix everything](https://selfsaid.30tools.com/you-dont-have-to-fix-everything) at once. You may start overplanning, [overthinking](https://selfsaid.30tools.com/overthinking-break-the-loop), or blaming yourself for not doing enough.
 
 But the feeling of overwhelm is not a failure. It’s a signal.
 
@@ -133,3 +133,5 @@ The calm you’re looking for is not far away. It’s underneath everything you 
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/why-you-still-feel-overwhelmed/

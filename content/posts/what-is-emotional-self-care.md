@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/what-is-emotional-self-care/'
 
 ![](https://seffsaid.com/wp-content/uploads/emotional-self-care.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We hear a lot about self-care these days. Baths, boundaries, breathing exercises. But emotional self-care is a little different. It’s quieter, deeper, and sometimes harder to define.
 
@@ -76,12 +76,12 @@ It’s often small, quiet, and imperfect. And that’s okay. The most important 
 
 ## Final Thought
 
-You don’t have to wait until [you’re overwhelmed](/why-you-still-feel-overwhelmed) to start emotional self-care. You can begin right where you are, with curiosity, compassion, and a little more space to feel what you feel.
+You don’t have to wait until [you’re overwhelmed](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed) to start emotional self-care. You can begin right where you are, with curiosity, compassion, and a little more space to feel what you feel.
 
 This isn’t about fixing yourself. It’s about listening to yourself. Holding space. Offering softness in a world that often asks for so much.
 
 If you’re ready for a few practical ways to begin, you might like this:  
-\> [Emotional Self-Care: 10 Simple Ways to Start](/emotional-self-care-10-simple-ways-to-start)
+\> [Emotional Self-Care: 10 Simple Ways to Start](https://selfsaid.30tools.com/emotional-self-care-10-simple-ways-to-start)
 
 You deserve care, too, the kind that begins on the inside.
 
@@ -98,3 +98,5 @@ You deserve care, too, the kind that begins on the inside.
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/what-is-emotional-self-care/

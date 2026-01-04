@@ -12,26 +12,26 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-kindness/'
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-kindness-600x333-1.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Here’s a collection of 88 quotes about kindness, each offering a unique perspective on the power and impact of kindness in our lives and society. These quotes gently remind us of the profound effects of compassion and the [beauty of our inner selves](/quotes-about-inner-beauty).
+Here’s a collection of 88 quotes about kindness, each offering a unique perspective on the power and impact of kindness in our lives and society. These quotes gently remind us of the profound effects of compassion and the [beauty of our inner selves](https://selfsaid.30tools.com/quotes-about-inner-beauty).
 
 ## Quotes About Kindness
 
 1.  “Kindness is like snow- It beautifies everything it covers.” – Kahlil Gibran
 2.  “Wherever there is a human being, there is an opportunity for a kindness.” – Seneca
-3.  Carry out a random [act of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer), with no expectation of reward, safe in the knowledge that one day someone might do the same for you.” – Princess Diana
+3.  Carry out a random [act of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer), with no expectation of reward, safe in the knowledge that one day someone might do the same for you.” – Princess Diana
 4.  “Treat everyone with politeness and kindness, not because they are nice, but because you are.” – Roy T. Bennett
 5.  “When I was young, I admired clever people. Now that I am old, I admire kind people.” – Abraham Joshua Heschel
 6.  “You can accomplish by kindness what you cannot by force.” – Publilius Syrus
 7.  “What wisdom can you find that is greater than kindness?” – Jean-Jacques Rousseau
 8.  “Kind people are the best kind of people.” – Unknown
 9.  “The best portion of a good person’s life is their little, nameless, unremembered acts of kindness and of love.” – William Wordsworth
-10.  I’ve been searching for ways to heal myself, and I’ve found that kindness is the best way.” – [Lady Gaga](/lady-gaga-quotes)
+10.  I’ve been searching for ways to heal myself, and I’ve found that kindness is the best way.” – [Lady Gaga](https://selfsaid.30tools.com/lady-gaga-quotes)
 11.  “How beautiful a day can be when kindness touches it!” – George Elliston
 12.  “Kindness makes a fellow feel good whether it’s being done to him or by him.” – Frank A. Clark
 13.  “Guard well within yourself that treasure, kindness. Know how to give without hesitation, how to lose without regret, how to acquire without meanness.” – George Sand
-14.  “[Life is short](/the-26-best-short-life-quotes) but there is always time for courtesy.” – Ralph Waldo Emerson
+14.  “[Life is short](https://selfsaid.30tools.com/the-26-best-short-life-quotes) but there is always time for courtesy.” – Ralph Waldo Emerson
 15.  “Kindness is the ability to know what the right thing to do is and having the courage to do it!!” – RAKtivist
 16.  “When words are both true and kind, they can change the world.” – Buddha
 17.  “Kindness is spreading sunshine into other people’s lives regardless of the weather.” – RAKtivist
@@ -64,13 +64,13 @@ Here’s a collection of 88 quotes about kindness, each offering a unique perspe
 44.  “The best way to find yourself is to lose yourself in the service of others.” – Mahatma Gandhi
 45.  “Kindness can transform someone’s dark moment with a blaze of light. You’ll never know how much your caring matters.” – Amy Leigh Mercree
 46.  “Remember there’s no such thing as a small act of kindness. Every act creates a ripple with no logical end.” – Scott Adams
-47.  Kindness is a language which the deaf can hear and the blind can see.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+47.  Kindness is a language which the deaf can hear and the blind can see.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 48.  “The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.” – Henry David Thoreau
 49.  “A part of kindness consists in loving people more than they deserve.” – Joseph Joubert
 50.  “Kindness is seeing the best in others when they cannot see it in themselves.” – RAKtivist
 51.  “The only time you look in your neighbor’s bowl is to make sure that they have enough.” – Louis C.K.
 52.  “You will never have a completely bad day if you show kindness at least once.” – Greg Henry Quinn
-53.  “Be kind whenever possible. It is always possible.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
+53.  “Be kind whenever possible. It is always possible.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 54.  “We can’t help everyone, but everyone can help someone.” – Ronald Reagan
 55.  “Spread love everywhere you go. Let no one ever come to you without leaving happier.” – Mother Teresa
 56.  “Kind words can be short and easy to speak, but their echoes are truly endless.” – Mother Teresa
@@ -120,3 +120,5 @@ Here’s a collection of 88 quotes about kindness, each offering a unique perspe
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-kindness/

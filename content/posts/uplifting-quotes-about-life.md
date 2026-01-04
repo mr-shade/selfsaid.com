@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/uplifting-quotes-about-life/'
 
 ![Hiker admiring the uplifting view from a mountain top](https://seffsaid.com/wp-content/uploads/uplifting-quotes-about-life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Are you finding life difficult at the moment? Are you struggling with issues that are getting you down? Suffering from a lack of self-motivation? Fed up with [dealing with negative people](/stay-away-from-negative-people)?
+Are you finding life difficult at the moment? Are you struggling with issues that are getting you down? Suffering from a lack of self-motivation? Fed up with [dealing with negative people](https://selfsaid.30tools.com/stay-away-from-negative-people)?
 
 Unfortunately, we all take knocks and get setbacks, but with fortitude and persistence, you will prevail. So what do you need to get back to your best self? Often it’s just a few words of encouragement that will remind you that your life will get better.
 
@@ -23,7 +23,7 @@ Here’s a list I’ve put together of the 100 best uplifting quotes about life 
 1.  “The only impossible journey is the one you never begin.” – Tony Robbins
 2.  “In the end, it’s not the years in your life that count. It’s the life in your years.” – Abraham Lincoln
 3.  “Life is what happens when you’re busy making other plans.” – John Lennon
-4.  “The purpose of our lives is to be happy.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
+4.  “The purpose of our lives is to be happy.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 5.  “Get busy living or get busy dying.” – Stephen King
 6.  “You only live once, but if you do it right, once is enough.” – Mae West
 7.  “Many of life’s failures are people who did not realize how close they were to success when they gave up.” – Thomas A. Edison
@@ -31,11 +31,11 @@ Here’s a list I’ve put together of the 100 best uplifting quotes about life 
 9.  “Not how long, but how well you have lived is the main thing.” – Seneca
 10.  “Life is either a daring adventure or nothing at all.” – Helen Keller
 11.  “To live is the rarest thing in the world. Most people exist, that is all.” – Oscar Wilde
-12.  “Your time is limited, don’t waste it living someone else’s life.” – [Steve Jobs](/steve-jobs-quotes)
+12.  “Your time is limited, don’t waste it living someone else’s life.” – [Steve Jobs](https://selfsaid.30tools.com/steve-jobs-quotes)
 13.  “Life is 10% what happens to us and 90% how we react to it.” – Charles R. Swindoll
 14.  “The best way to predict your future is to create it.” – Abraham Lincoln
 15.  “You must be the change you wish to see in the world.” – Mahatma Gandhi
-16.  “Each day provides its own gifts.” – [Marcus Aurelius](/marcus-aurelius-quotes)
+16.  “Each day provides its own gifts.” – [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)
 17.  “Life is not about finding yourself. Life is about creating yourself.” – George Bernard Shaw
 18.  “The greatest glory in living lies not in never falling, but in rising every time we fall.” – Nelson Mandela
 19.  “Don’t count the days, make the days count.” – Muhammad Ali
@@ -72,7 +72,7 @@ Here’s a list I’ve put together of the 100 best uplifting quotes about life 
 50.  “Always do your best. What you plant now, you will harvest later.” – Og Mandino
 51.  “You change your life by changing your heart.” – Max Lucado
 52.  “Find a place inside where there’s joy, and the joy will burn out the pain.” – Joseph Campbell
-53.  “Life’s most persistent and urgent question is, ‘What are you doing for others?'” – [Martin Luther King, Jr.](/martin-luther-king-quotes)
+53.  “Life’s most persistent and urgent question is, ‘What are you doing for others?'” – [Martin Luther King, Jr.](https://selfsaid.30tools.com/martin-luther-king-quotes)
 54.  “Only a life lived in the service to others is worth living.” – Albert Einstein
 55.  “Live life to the fullest and focus on the positive.” – Matt Cameron
 56.  “Keep your face always toward the sunshine—and shadows will fall behind you.” – Walt Whitman
@@ -83,7 +83,7 @@ Here’s a list I’ve put together of the 100 best uplifting quotes about life 
 61.  “The only way to do great work is to love what you do.” – Steve Jobs
 62.  “Your life does not get better by chance, it gets better by change.” – Jim Rohn
 63.  “Life is like riding a bicycle. To keep your balance, you must keep moving.” – Albert Einstein
-64.  “Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](/winston-churchill-quotes)
+64.  “Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 65.  “Happiness is not by chance, but by choice.” – Jim Rohn
 66.  “Life doesn’t require that we be the best, only that we try our best.” – H. Jackson Brown Jr.
 67.  “What lies behind us and what lies before us are tiny matters compared to what lies within us.” – Ralph Waldo Emerson
@@ -105,7 +105,7 @@ Here’s a list I’ve put together of the 100 best uplifting quotes about life 
 83.  “Our lives begin to end the day we become silent about things that matter.” – Martin Luther King Jr.
 84.  “Happiness often sneaks in through a door you didn’t know you left open.” – John Barrymore
 85.  “Do what you can, with what you have, where you are.” – Theodore Roosevelt
-86.  “The secret of getting ahead is getting started.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+86.  “The secret of getting ahead is getting started.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 87.  “I attribute my success to this: I never gave or took any excuse.” – Florence Nightingale
 88.  “What you get by achieving your goals is not as important as what you become by achieving your goals.” – Zig Ziglar
 89.  “Life is a dream for the wise, a game for the fool, a comedy for the rich, a tragedy for the poor.” – Sholom Aleichem
@@ -134,3 +134,5 @@ Here’s a list I’ve put together of the 100 best uplifting quotes about life 
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/uplifting-quotes-about-life/

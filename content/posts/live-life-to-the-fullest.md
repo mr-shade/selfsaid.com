@@ -10,15 +10,15 @@ original_url: 'https://selfsaid.30tools.com/live-life-to-the-fullest/'
 
 ![A group of friends living life to the fullest](https://seffsaid.com/wp-content/uploads/live-life-to-the-fullest.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Do you feel that you are not making the most of life? Do you feel you are missing out on a fulfilling social life, loving relationships, exciting adventures, or thrilling experiences? Do you want to make a change? Are you ready to [live life to the fullest](/how-to-live-life)?
+Do you feel that you are not making the most of life? Do you feel you are missing out on a fulfilling social life, loving relationships, exciting adventures, or thrilling experiences? Do you want to make a change? Are you ready to [live life to the fullest](https://selfsaid.30tools.com/how-to-live-life)?
 
-Here is a list of 22 tips I use to try and [live my best life](/how-to-live-your-best-life), They work well for me and have helped me build and live a life that I truly love. Try them for yourself and watch your life change for the better.
+Here is a list of 22 tips I use to try and [live my best life](https://selfsaid.30tools.com/how-to-live-your-best-life), They work well for me and have helped me build and live a life that I truly love. Try them for yourself and watch your life change for the better.
 
 ## 1\. Be positive
 
-Being positive is not just a pleasant way to live, it’s the only way to live. Positive thinking means that you approach stressful situations with a [positive outlook](/how-to-keep-a-positive-outlook-in-life). It’s being able to look beyond a crisis rather than being consumed by it and only expecting the worst.
+Being positive is not just a pleasant way to live, it’s the only way to live. Positive thinking means that you approach stressful situations with a [positive outlook](https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-life). It’s being able to look beyond a crisis rather than being consumed by it and only expecting the worst.
 
 It brings optimism into your life and makes it easier to avoid the worry and stress of negative thinking. Benefits include better psychological and physical well-being, longevity, happiness, and the ability to enjoy life.
 
@@ -64,15 +64,15 @@ Don’t settle for a job you hate. Don’t settle for friends that put you down.
 
 ## 10\. Face your fears
 
-We all have fears that drive or impact our behaviors and stop us from living our lives to the fullest, but the benefits of facing your fears are immense. After facing a few of your fears you’ll soon build the courage to face more. And most importantly, you’ll [expand your comfort zone](/10-ways-to-step-out-of-your-comfort-zone) and enjoy new and exciting experiences you never thought possible.
+We all have fears that drive or impact our behaviors and stop us from living our lives to the fullest, but the benefits of facing your fears are immense. After facing a few of your fears you’ll soon build the courage to face more. And most importantly, you’ll [expand your comfort zone](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone) and enjoy new and exciting experiences you never thought possible.
 
 ## 11\. Practice an attitude of gratitude
 
-[Practicing gratitude](/how-to-cultivate-an-attitude-of-gratitude) can be life-changing and has the potential to actually change your perspective on life. Express gratitude and appreciation in all areas of your life, for both the big and small things. By doing so, you’ll be able to replace discontent with contentment. Feeling gratitude can make you healthier, strengthen the immune system, [reduce stress](/how-to-reduce-stress), increase emotional resilience and allow you to enjoy what life offers you today.
+[Practicing gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) can be life-changing and has the potential to actually change your perspective on life. Express gratitude and appreciation in all areas of your life, for both the big and small things. By doing so, you’ll be able to replace discontent with contentment. Feeling gratitude can make you healthier, strengthen the immune system, [reduce stress](https://selfsaid.30tools.com/how-to-reduce-stress), increase emotional resilience and allow you to enjoy what life offers you today.
 
 ## 12\. Learn to forgive others
 
-When someone or an event hurts you, you can hold on to resentment and anger or embrace forgiveness and [move forward](/quotes-about-getting-back-up-and-moving-forwards-after-failure) in your life. Studies have found that the act of forgiveness can make you physically and mentally healthier. It can reduce blood pressure, anxiety, depression, and stress, leaving you to enjoy life to the fullest.
+When someone or an event hurts you, you can hold on to resentment and anger or embrace forgiveness and [move forward](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure) in your life. Studies have found that the act of forgiveness can make you physically and mentally healthier. It can reduce blood pressure, anxiety, depression, and stress, leaving you to enjoy life to the fullest.
 
 ## 13\. Create a bucket list
 
@@ -86,7 +86,7 @@ This means living your life in accordance with who you are and what you believe.
 
 Complaining is a normal part of human communication. Often we complain without even realizing it, but complaining is rarely helpful. Excessive complaining can increase your stress level and develop a culture of negativity leading to anxiety and depression.
 
-Instead, choose to focus on the positive aspects of your life. As you focus more on maximizing your gratitude and [excitement about life](/7-ways-to-make-your-life-exciting-again), you will increase your level of overall life satisfaction.
+Instead, choose to focus on the positive aspects of your life. As you focus more on maximizing your gratitude and [excitement about life](https://selfsaid.30tools.com/7-ways-to-make-your-life-exciting-again), you will increase your level of overall life satisfaction.
 
 ## 16\. Don’t wait for an opportunity to come knocking on your door
 
@@ -94,15 +94,15 @@ Be creative and make opportunities happen. If you just wait for the next great a
 
 ## 17\. Live a simpler life
 
-Life can certainly be complicated, but sometimes we make it more complicated than it needs to be. [Simplifying our lives](/simple-living-how-to-live-a-simple-life) can reduce stress, free up valuable time and help us to feel more in control of our destiny. If you are searching for happiness and a fulfilling satisfying life, let go of unnecessary baggage, and focus only on the things that are most important to you.
+Life can certainly be complicated, but sometimes we make it more complicated than it needs to be. [Simplifying our lives](https://selfsaid.30tools.com/simple-living-how-to-live-a-simple-life) can reduce stress, free up valuable time and help us to feel more in control of our destiny. If you are searching for happiness and a fulfilling satisfying life, let go of unnecessary baggage, and focus only on the things that are most important to you.
 
 ## 18\. Declutter your home
 
-[Decluttering your home](/declutter-your-home) can free your mind, lower stress, and reduce anxiety. Taking the time to create a peaceful living space can improve your overall sense of well-being. Studies have shown clutter is linked to overall life dissatisfaction. Decluttering will leave you more in control of your life and more able to accomplish your life goals.
+[Decluttering your home](https://selfsaid.30tools.com/declutter-your-home) can free your mind, lower stress, and reduce anxiety. Taking the time to create a peaceful living space can improve your overall sense of well-being. Studies have shown clutter is linked to overall life dissatisfaction. Decluttering will leave you more in control of your life and more able to accomplish your life goals.
 
 ## 19\. Be kind
 
-Kindness has a remarkable ability to transform our surroundings and our lives. [Practicing kindness](/simple-acts-of-kindness-that-can-make-us-live-longer) helps create a better life full of love, hope, and happiness.
+Kindness has a remarkable ability to transform our surroundings and our lives. [Practicing kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) helps create a better life full of love, hope, and happiness.
 
 ## 20\. Do only the things you love doing
 
@@ -110,7 +110,7 @@ The one simple thing you can do to optimize your life is to only do what you lov
 
 ## 21\. Stay away from negative people
 
-[Stay away from negative people](/stay-away-from-negative-people). This can include people who take advantage of you, people who don’t respect you, and overly critical or negative people. Studies have shown that spending time with negative people can have undesirable effects on our motivation, happiness, and wellbeing.
+[Stay away from negative people](https://selfsaid.30tools.com/stay-away-from-negative-people). This can include people who take advantage of you, people who don’t respect you, and overly critical or negative people. Studies have shown that spending time with negative people can have undesirable effects on our motivation, happiness, and wellbeing.
 
 Even a brief encounter with a toxic person is enough to have a negative impact on our life. Decide today that you’re not going to allow negative people to determine how you think, feel, and behave by avoiding them. Instead, focus your time and energy on living your very best life.
 
@@ -131,3 +131,5 @@ Pin17
 [More](#)
 
 17 Shares
+
+Source: https://selfsaid.30tools.com/live-life-to-the-fullest/

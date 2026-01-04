@@ -12,15 +12,15 @@ original_url: 'https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-
 
 ![Woman sitting on a beautiful beach meditating.](https://seffsaid.com/wp-content/uploads/focused-state-of-mind.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## Introduction
 
-It’s a buzzword you see all the time now. Mindfulness. Mindful meditation. [Living mindfully](/breath-a-bridge-to-conscious-and-mindful-living). When you look it up, you get definitions such as “mindfulness is the psychological process of bringing one’s attention to experiences occurring in the present moment”. If you read into it a little further you’ll soon find out that mindfulness is related to Buddhism and psychologists since the 1970s have been advocating its benefits for depression, anxiety, stress, drug addiction and even helping to stop the onset and development of various forms of mental illness.
+It’s a buzzword you see all the time now. Mindfulness. Mindful meditation. [Living mindfully](https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-mindful-living). When you look it up, you get definitions such as “mindfulness is the psychological process of bringing one’s attention to experiences occurring in the present moment”. If you read into it a little further you’ll soon find out that mindfulness is related to Buddhism and psychologists since the 1970s have been advocating its benefits for depression, anxiety, stress, drug addiction and even helping to stop the onset and development of various forms of mental illness.
 
-When I first read about the [benefits of meditation](/benefits-of-meditation), I became quite excited as it sounded exactly what I’d been searching for. But, like many people, I quickly became confused as to how to learn and practise this much-lauded technique. I live in a small isolated village and don’t have the luxury of heading off for mindfulness meditation lessons each week and I wanted to make a start on this practise as soon as possible.
+When I first read about the [benefits of meditation](https://selfsaid.30tools.com/benefits-of-meditation), I became quite excited as it sounded exactly what I’d been searching for. But, like many people, I quickly became confused as to how to learn and practise this much-lauded technique. I live in a small isolated village and don’t have the luxury of heading off for mindfulness meditation lessons each week and I wanted to make a start on this practise as soon as possible.
 
-Many years ago, I read a book called “Flow: The Psychology of Optimal Experience” by Mihaly Csíkszentmihályi, a Hungarian-American psychologist. Flow (often colloquially referred to as ‘being in the zone’ or the ‘[flow state of mind](/flow-state-of-mind)‘) is now quite a commonly used term, referring to the highly focused mental state that we can achieve when completely immersed in an activity. This book had a profound effect on me at the time and each time I read something about mindfulness, I can’t help thinking of this book and wondering if these two concepts are somehow related.
+Many years ago, I read a book called “Flow: The Psychology of Optimal Experience” by Mihaly Csíkszentmihályi, a Hungarian-American psychologist. Flow (often colloquially referred to as ‘being in the zone’ or the ‘[flow state of mind](https://selfsaid.30tools.com/flow-state-of-mind)‘) is now quite a commonly used term, referring to the highly focused mental state that we can achieve when completely immersed in an activity. This book had a profound effect on me at the time and each time I read something about mindfulness, I can’t help thinking of this book and wondering if these two concepts are somehow related.
 
 In fact, these terms are now almost interchangeable, flow being the state we enter, perhaps by chance, during an activity that we find engrossing, and mindfulness being a more deliberate state of mind that many people including Buddhists try to maintain during every part of their daily lives. They are essentially the same, perhaps just reached through slightly different circumstances and practices.
 
@@ -69,3 +69,5 @@ Pin18
 [More](#)
 
 18 Shares
+
+Source: https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind/

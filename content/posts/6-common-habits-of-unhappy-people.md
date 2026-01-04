@@ -10,15 +10,15 @@ original_url: 'https://selfsaid.30tools.com/6-common-habits-of-unhappy-people/'
 
 ![Unhappy woman looking at the camera](https://seffsaid.com/wp-content/uploads/Habits-Of-Unhappy-People.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Happiness is something that most people spend their lives trying to attain but never succeed. A [common life mistake](/5-common-life-mistakes-to-avoid) is to try and find happiness externally with expensive clothes, the latest gadgets, a big house, or a flashy car. But that’s not where you’ll find it. True happiness comes from within and is the product of your thoughts, actions, daily routine, and outlook on life. Unfortunately, most people regularly suffer from negative thought patterns and emotions that stop them from [living a happy life](/how-to-live-a-happy-life).
+Happiness is something that most people spend their lives trying to attain but never succeed. A [common life mistake](https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid) is to try and find happiness externally with expensive clothes, the latest gadgets, a big house, or a flashy car. But that’s not where you’ll find it. True happiness comes from within and is the product of your thoughts, actions, daily routine, and outlook on life. Unfortunately, most people regularly suffer from negative thought patterns and emotions that stop them from [living a happy life](https://selfsaid.30tools.com/how-to-live-a-happy-life).
 
 In this article, I’ll share with you the six daily habits that are often the key causes of unhappiness. Depending on the individual, some habits lead to unhappiness more than others and you should regularly monitor yourself to make sure you are not developing any of them. If you do believe you are suffering from any of these thought processes, eradicating them will help you to live a happier life.
 
 ## 1\. Complaining.
 
-Complaining can be a self-reinforcing behavior. [Expressing your feelings](/love-quotes-for-him) about bad situations can be therapeutic, but constantly complaining about your life, your past and your future can deepen feelings of negativity and increase feelings of anxiety and unhappiness. Another effect of complaining is that it can drive away friends and family from spending time with you thus making you even unhappier.
+Complaining can be a self-reinforcing behavior. [Expressing your feelings](https://selfsaid.30tools.com/love-quotes-for-him) about bad situations can be therapeutic, but constantly complaining about your life, your past and your future can deepen feelings of negativity and increase feelings of anxiety and unhappiness. Another effect of complaining is that it can drive away friends and family from spending time with you thus making you even unhappier.
 
 ## 2\. Waiting for the future.
 
@@ -34,7 +34,7 @@ We all do it, when you are feeling unhappy or a little miserable, it’s temptin
 
 ## 5\. Regretting the past.
 
-Regret is not only a pointless emotion but having repetitive, negative thoughts about decisions you’ve made in the past can be extremely detrimental to your happiness. Research has found that by stressing over past events or actions, we can increase our stress levels and risk for depression. Besides, not [living in the present](/flow-state-of-mind) can lead to missing out on new and exciting experiences. Leave the past behind.
+Regret is not only a pointless emotion but having repetitive, negative thoughts about decisions you’ve made in the past can be extremely detrimental to your happiness. Research has found that by stressing over past events or actions, we can increase our stress levels and risk for depression. Besides, not [living in the present](https://selfsaid.30tools.com/flow-state-of-mind) can lead to missing out on new and exciting experiences. Leave the past behind.
 
 ## 6\. Worrying about the future.
 
@@ -57,3 +57,5 @@ None of us can have happy thoughts all the time as we’re all going to encounte
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/6-common-habits-of-unhappy-people/

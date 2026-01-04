@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/what-taking-care-of-yourself-really-
 
 ![](https://seffsaid.com/wp-content/uploads/Taking-Care-of-Yourself.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Taking care of yourself is often misunderstood. It’s easy to picture self-care as something light and occasional – a quiet bath, a walk in the sun, a moment with a cup of tea. These things can be part of it, but they’re not the whole picture.
 
-[Real self-care](/self-care-routine) goes deeper. It’s not just something you do to relax. It’s something you do to stay connected to yourself. To stay steady when the days feel rushed. To stay soft when the world feels sharp.
+[Real self-care](https://selfsaid.30tools.com/self-care-routine) goes deeper. It’s not just something you do to relax. It’s something you do to stay connected to yourself. To stay steady when the days feel rushed. To stay soft when the world feels sharp.
 
-Taking care of yourself means noticing [when you’re overwhelmed](/gentle-reminder-overwhelmed) instead of pushing through it. It means listening to what your body is asking for – rest, food, movement, stillness – and responding with care, not criticism.
+Taking care of yourself means noticing [when you’re overwhelmed](https://selfsaid.30tools.com/gentle-reminder-overwhelmed) instead of pushing through it. It means listening to what your body is asking for – rest, food, movement, stillness – and responding with care, not criticism.
 
 It’s allowing yourself to be human. Letting the tired parts of you exist without judgment. Letting the emotions rise without needing to explain them away. Letting the silence stretch out when you need space.
 
@@ -30,7 +30,7 @@ It’s about coming back to yourself in small, steady ways. Eating when you’re
 
 Taking care of yourself also means being kind to the way you speak to yourself. It means noticing your thoughts, your patterns, your pressure points, and meeting them with understanding, not shame. You don’t have to have it all figured out. You just have to care enough to check in.
 
-True self-care isn’t earned. You don’t have to wait until you’re exhausted or [overwhelmed](/why-you-still-feel-overwhelmed) to offer it to yourself. It’s not something to postpone until the weekend or a quieter season. It’s something you can give yourself now, even in small and simple ways.
+True self-care isn’t earned. You don’t have to wait until you’re exhausted or [overwhelmed](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed) to offer it to yourself. It’s not something to postpone until the weekend or a quieter season. It’s something you can give yourself now, even in small and simple ways.
 
 So today, ask yourself what would feel supportive. Not productive. Not impressive. Just supportive. Start there. And keep coming back to that question, especially on the days when life feels too loud.
 
@@ -53,3 +53,5 @@ Seff
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/what-taking-care-of-yourself-really-means/

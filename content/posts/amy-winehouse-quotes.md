@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/amy-winehouse-quotes/'
 
 ![Amy Winehouse](https://seffsaid.com/wp-content/uploads/Amy-Winehouse-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Amy Winehouse left a lasting mark on the music world, not just with her songs but also with her candid and memorable quotes. Her words reflect her unique perspective on life, love, and fame. Below, you will find some of her most insightful and thought-provoking quotes. Read more [quotes from famous people](/quotes-by-famous-people) here.
+Amy Winehouse left a lasting mark on the music world, not just with her songs but also with her candid and memorable quotes. Her words reflect her unique perspective on life, love, and fame. Below, you will find some of her most insightful and thought-provoking quotes. Read more [quotes from famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 1.  “I don’t care what people think about me. Never did, never will. Life is too short to be worrying about that stuff.” – Amy Winehouse
 2.  “If you don’t throw yourself into something, you’ll never know what you could have had.” – Amy Winehouse
@@ -47,7 +47,7 @@ Amy Winehouse left a lasting mark on the music world, not just with her songs bu
 29.  “I always wrote poetry and stuff like that, so putting songs together wasn’t that spectacular.” – Amy Winehouse
 30.  “I’m not a natural born performer. I’m a natural singer, but I’m quite shy, really.” – Amy Winehouse
 31.  “I don’t think I’m such an amazing person who needs to be written about.” – Amy Winehouse
-32.  [“Life is short](/the-26-best-short-life-quotes). It’s up to you to make it sweet.” – Amy Winehouse
+32.  [“Life is short](https://selfsaid.30tools.com/the-26-best-short-life-quotes). It’s up to you to make it sweet.” – Amy Winehouse
 33.  “You don’t have to suffer to be a poet. Adolescence is enough suffering for anyone.” – Amy Winehouse
 34.  “I’m not a one in a million kind of girl. I’m a once in a lifetime kind of woman.” – Amy Winehouse
 35.  “My justification is that most people my age spend a lot of time thinking about what they want to do for the rest of their lives. I’m too busy thinking about tonight.” – Amy Winehouse
@@ -80,3 +80,5 @@ Amy Winehouse left a lasting mark on the music world, not just with her songs bu
 [More](#)
 
 16 Shares
+
+Source: https://selfsaid.30tools.com/amy-winehouse-quotes/

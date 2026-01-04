@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/getting-more-done-in-less-time/'
 
 ![](https://seffsaid.com/wp-content/uploads/more-done.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There’s a strange kind of pressure that follows you when you feel like you should be getting more done. Even when you’re crossing things off a list, there’s still a background hum of not-enough. Like you’re always one task behind, one step off, one breath away from catching up.
 
@@ -38,7 +38,7 @@ Rushing puts me in survival mode. It tells my body we’re behind, we’re late,
 
 Every time I check my phone, I lose a little piece of focus. A little spark of attention. A little stretch of presence. And when those interruptions pile up, they scatter my energy and leave me feeling like I’ve done a lot, but finished nothing. One hour without it helps me reconnect with the task in front of me. And with myself.
 
-**Try this:** Choose a predictable time each day, maybe your first hour in the morning or your last hour before bed, and leave your phone in another room. Set a timer if that helps. Then do something that feels grounding: read, journal, sit in silence, cook without distraction. It might feel strange at first, but over time, it becomes a little sanctuary of clarity. [Here’s how to get started](/phone-free-hour).
+**Try this:** Choose a predictable time each day, maybe your first hour in the morning or your last hour before bed, and leave your phone in another room. Set a timer if that helps. Then do something that feels grounding: read, journal, sit in silence, cook without distraction. It might feel strange at first, but over time, it becomes a little sanctuary of clarity. [Here’s how to get started](https://selfsaid.30tools.com/phone-free-hour).
 
 ## 4\. Let something go undone
 
@@ -58,7 +58,7 @@ Doing less won’t make your to-do list disappear. But it might give you the spa
 
 You don’t need to do everything. You just need to come back to yourself.
 
-Want more gentle ideas that actually help? Try [The Everyday Self-Care Routine](/everyday-self-care-routine) or explore [Doing One Thing Slowly](/doing-one-thing-slowly).
+Want more gentle ideas that actually help? Try [The Everyday Self-Care Routine](https://selfsaid.30tools.com/everyday-self-care-routine) or explore [Doing One Thing Slowly](https://selfsaid.30tools.com/doing-one-thing-slowly).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgetting-more-done-in-less-time%2F)
 
@@ -73,3 +73,5 @@ Pin2
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/getting-more-done-in-less-time/

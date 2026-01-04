@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/seven-signs-that-its-time-to-change-
 
 ![Man coming to the realisation that it's time to change his mindset](https://seffsaid.com/wp-content/uploads/Signs-Time-To-Change-Your-Mindset.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There’s a saying that ‘if you expect the worst you’ll never be disappointed’ and of course, there is a certain truth to that. We all have the choice to either look for the worst or search for the best in life and whichever we do, that is what we are bound to find. Living a large amount of time inside our own heads, the things that we think and project onto the outside world can become our reality.
 
@@ -34,7 +34,7 @@ You run around making sure that family members, friends, and neighbors have ever
 
 This is not sustainable and requires an immediate change in mindset. On an airplane, if the cabin loses pressure we are taught to put on our oxygen mask before our child’s. People feel this is counter-intuitive, feeling they should fulfill their child’s needs first. But of course, if you don’t have air yourself you will lose consciousness and then be unable to help them.
 
-We can use this as an analogy in your day-to-day life. Taking care of yourself first and foremost is not a selfish act. It’s paramount so you can continue to be healthy and be there for those who may be dependant on your presence. Get enough sleep, eat well, indulge in some relaxing or exciting past-times and why not [pamper yourself](/ways-to-pamper-yourself) from time to time? It will also increase your well-being, your day-to-day happiness, your satisfaction with life in general and therefore your motivation, energy, and productivity.
+We can use this as an analogy in your day-to-day life. Taking care of yourself first and foremost is not a selfish act. It’s paramount so you can continue to be healthy and be there for those who may be dependant on your presence. Get enough sleep, eat well, indulge in some relaxing or exciting past-times and why not [pamper yourself](https://selfsaid.30tools.com/ways-to-pamper-yourself) from time to time? It will also increase your well-being, your day-to-day happiness, your satisfaction with life in general and therefore your motivation, energy, and productivity.
 
 ## 4\. You’re stuck in a rut
 
@@ -54,17 +54,17 @@ Meditation practices such as mindfulness can help move the mind to a more peacef
 
 Constantly having overly high expectations is a sure-fire road to dissatisfaction, and dropping those expectations is an instant cure for that feeling. Concentrating on what you have, and not on what you want or lack will increase your sense of gratitude.
 
-Look at all the many small things that you are blessed with right now, forget about desires for the future, or comparing what you ‘have’ compared to others. It’s all irrelevant and it’s a [common life mistake that will make you unhappy](/6-common-habits-of-unhappy-people).
+Look at all the many small things that you are blessed with right now, forget about desires for the future, or comparing what you ‘have’ compared to others. It’s all irrelevant and it’s a [common life mistake that will make you unhappy](https://selfsaid.30tools.com/6-common-habits-of-unhappy-people).
 
 ## 7\. You are seeing only negatives
 
-Take a good hard look at yourself and your attitude to each situation, relationship, issue and project in your life. If you notice a pervasive pessimism then it is time to shake up your attitude. Seeing negatives can help avoid disappointment, but there really are no other advantages. Try tweaking your mindset with the ‘[attitude of gratitude](/how-to-cultivate-an-attitude-of-gratitude)‘. Each time you notice a negative thought, try to see something there for which you can be grateful.
+Take a good hard look at yourself and your attitude to each situation, relationship, issue and project in your life. If you notice a pervasive pessimism then it is time to shake up your attitude. Seeing negatives can help avoid disappointment, but there really are no other advantages. Try tweaking your mindset with the ‘[attitude of gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude)‘. Each time you notice a negative thought, try to see something there for which you can be grateful.
 
-For example “You hate your job and most of your colleagues”. Try changing this to “You’re lucky enough to have a job and Mary in accounting is a nice person”. Accepting the present as it is right now can be very rewarding. Regularly finding even the smallest things for which to be grateful (such as a nice sky or a beautiful tree) will gradually [develop a positive attitude](/easy-ways-to-develop-a-positive-attitude) to a more optimistic [winning mindset](/how-to-develop-a-winning-mindset).
+For example “You hate your job and most of your colleagues”. Try changing this to “You’re lucky enough to have a job and Mary in accounting is a nice person”. Accepting the present as it is right now can be very rewarding. Regularly finding even the smallest things for which to be grateful (such as a nice sky or a beautiful tree) will gradually [develop a positive attitude](https://selfsaid.30tools.com/easy-ways-to-develop-a-positive-attitude) to a more optimistic [winning mindset](https://selfsaid.30tools.com/how-to-develop-a-winning-mindset).
 
 ## Final Thoughts
 
-By making small consistent changes to your attitude, over time you will be able to [make the most of the time](/take-back-time-for-yourself), energy, and resources you have. Boosting your well-being, confidence, optimism, productivity, and satisfaction in all areas of your life. All it takes is a little self-awareness and a few small changes to have a [mindset that is positive](/always-keep-a-positive-mindset) and stable, and able to withstand everything that life throws at you.
+By making small consistent changes to your attitude, over time you will be able to [make the most of the time](https://selfsaid.30tools.com/take-back-time-for-yourself), energy, and resources you have. Boosting your well-being, confidence, optimism, productivity, and satisfaction in all areas of your life. All it takes is a little self-awareness and a few small changes to have a [mindset that is positive](https://selfsaid.30tools.com/always-keep-a-positive-mindset) and stable, and able to withstand everything that life throws at you.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fseven-signs-that-its-time-to-change-your-mindset%2F)
 
@@ -79,3 +79,5 @@ Pin5
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/seven-signs-that-its-time-to-change-your-mindset/

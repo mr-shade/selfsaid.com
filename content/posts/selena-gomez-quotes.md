@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/selena-gomez-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/selena-gomez-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Selena Gomez is not only a talented singer and actress but also a source of inspiration. Her quotes resonate with many people, offering wisdom and encouragement. Here are some of her best quotes that reflect her thoughts on life, love, and self-worth. Read more [quotes by famous singers](/quotes-by-famous-people) here.
+Selena Gomez is not only a talented singer and actress but also a source of inspiration. Her quotes resonate with many people, offering wisdom and encouragement. Here are some of her best quotes that reflect her thoughts on life, love, and self-worth. Read more [quotes by famous singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 1.  “You have every right to a beautiful life.” – Selena Gomez
 2.  “The people who put you down don’t have to stop you from chasing your dreams.” – Selena Gomez
@@ -27,7 +27,7 @@ Selena Gomez is not only a talented singer and actress but also a source of insp
 9.  “You are who you surround yourself with. I know that’s such a cliche quote, but it’s true.” – Selena Gomez
 10.  “I try my best to be a good person and be the best I can be.” – Selena Gomez
 11.  “You can’t be afraid of what people are going to say because you’re never going to make everyone happy.” – Selena Gomez
-12.  “I’ve learned [the power of saying no](/learn-how-to-say-no). I’ve learned that when I’m not comfortable, I don’t have to give in.” – Selena Gomez
+12.  “I’ve learned [the power of saying no](https://selfsaid.30tools.com/learn-how-to-say-no). I’ve learned that when I’m not comfortable, I don’t have to give in.” – Selena Gomez
 13.  “I’ve discovered that anxiety, panic attacks, and depression can be side effects of lupus, which can present their own challenges.” – Selena Gomez
 14.  “I’m going to hang out with people, and I’m going to explore myself, and I’m okay with that.” – Selena Gomez
 15.  “I’m so young, and I’m going to keep changing, and no one has the right to tell me that I’m wrong for being who I am.” – Selena Gomez
@@ -62,7 +62,7 @@ Selena Gomez is not only a talented singer and actress but also a source of insp
 44.  “I’m learning that you can be comfortable and still look beautiful.” – Selena Gomez
 45.  “I’m learning to embrace the imperfections.” – Selena Gomez
 46.  “I’m not really ashamed of a lot in my past.” – Selena Gomez
-47.  I believe in taking chances and [living your life with no regrets.”](/ways-to-live-life-without-regrets) – Selena Gomez
+47.  I believe in taking chances and [living your life with no regrets.”](https://selfsaid.30tools.com/ways-to-live-life-without-regrets) – Selena Gomez
 48.  “I’m a sucker for love.” – Selena Gomez
 49.  “I love to laugh and have a good time.” – Selena Gomez
 50.  “I want to be known for my heart.” – Selena Gomez
@@ -80,3 +80,5 @@ Selena Gomez is not only a talented singer and actress but also a source of insp
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/selena-gomez-quotes/

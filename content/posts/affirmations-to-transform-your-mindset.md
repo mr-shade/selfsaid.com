@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/affirmations-to-transform-your-minds
 
 ![](https://seffsaid.com/wp-content/uploads/affirmations-mindset.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## What Are Affirmations and How Do They Work?
 
@@ -22,7 +22,7 @@ When practicing affirmations, it’s essential to focus on the present tense and
 
 ## How to Practice Affirmations
 
-*   **Consistency:** Make them a [daily habit](/5-simple-daily-habits-that-can-actually-change-your-life). Choose a specific time each day to focus on your affirmations, such as during your [morning routine](/morning-routine-ideas) or before bedtime.
+*   **Consistency:** Make them a [daily habit](https://selfsaid.30tools.com/5-simple-daily-habits-that-can-actually-change-your-life). Choose a specific time each day to focus on your affirmations, such as during your [morning routine](https://selfsaid.30tools.com/morning-routine-ideas) or before bedtime.
 *   **Focus:** Be present and intentional. Avoid distractions and give your full attention to the affirmations.
 *   **Emotion:** Say each statement with belief and enthusiasm. Imagine how it feels when the affirmation becomes a reality.
 *   **Personalization:** Tailor the affirmations to suit your needs and goals. This makes them more meaningful and effective.
@@ -34,7 +34,7 @@ When practicing affirmations, it’s essential to focus on the present tense and
 2.  **I choose to focus on what brings me happiness and peace.**  
     It helps shift your attention away from negativity and toward positivity.
 3.  **I am resilient and can handle whatever comes my way.**  
-    This statement builds inner strength and reassures you during [difficult times](/quotes-about-being-strong).
+    This statement builds inner strength and reassures you during [difficult times](https://selfsaid.30tools.com/quotes-about-being-strong).
 4.  **My potential is limitless.**  
     Remind yourself that there are no boundaries to what you can achieve.
 5.  **I attract opportunities that help me grow and thrive.**  
@@ -48,7 +48,7 @@ When practicing affirmations, it’s essential to focus on the present tense and
 9.  **I trust in my ability to make the best decisions for myself.**  
     This promotes self-reliance and confidence in your judgment.
 10.  **I am grateful for all that I have and all that is yet to come.**  
-     Gratitude fosters a [positive mindset](/always-keep-a-positive-mindset) and attracts more good things into your life.
+     Gratitude fosters a [positive mindset](https://selfsaid.30tools.com/always-keep-a-positive-mindset) and attracts more good things into your life.
 11.  **I am at peace with who I am.**  
      This affirmation helps you accept and appreciate yourself as you are.
 12.  **I welcome change as an opportunity to grow.**  
@@ -56,7 +56,7 @@ When practicing affirmations, it’s essential to focus on the present tense and
 13.  **My mind is clear, focused, and full of creative ideas.**  
      Encourage productivity and creativity with this statement.
 14.  **I am surrounded by people who support and inspire me.**  
-     [Cultivate gratitude](/cultivate-more-gratitude) for your relationships and focus on their positive aspects.
+     [Cultivate gratitude](https://selfsaid.30tools.com/cultivate-more-gratitude) for your relationships and focus on their positive aspects.
 15.  **I am in control of my thoughts, feelings, and actions.**  
      Empower yourself to take responsibility for your mindset and behavior.
 
@@ -75,3 +75,5 @@ Affirmations are a simple yet powerful way to shape your perspective. By practic
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/affirmations-to-transform-your-mindset/

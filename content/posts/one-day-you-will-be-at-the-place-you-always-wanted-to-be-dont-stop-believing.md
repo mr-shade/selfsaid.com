@@ -14,7 +14,7 @@ original_url: >-
 
 ![One day you will be at the place you always wanted to be. Don't stop believing.](https://seffsaid.com/wp-content/uploads/One-day-you-will-be-at-the-place-you-always-wanted-to-be-Dont-stop-believing.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## One Day You Will Be At The Place You Always Wanted To Be. Don’t Stop Believing
 
@@ -27,7 +27,7 @@ Overall, the quote is an uplifting message that aims to inspire persistence and 
 
 ## A Note From The Author
 
-Thank you for taking the time to read this post. I hope my explanation of the quote has been insightful and helpful to you. If you’ve found value in this, please consider subscribing to my [newsletter](/newsletter). Also, feel free to share this post with others who might appreciate it. Don’t forget to bookmark SEFFSAID and visit us again for more updates and insights.
+Thank you for taking the time to read this post. I hope my explanation of the quote has been insightful and helpful to you. If you’ve found value in this, please consider subscribing to my [newsletter](https://selfsaid.30tools.com/newsletter). Also, feel free to share this post with others who might appreciate it. Don’t forget to bookmark SEFFSAID and visit us again for more updates and insights.
 
 Warm regards,
 
@@ -46,3 +46,5 @@ Seff Bray
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/one-day-you-will-be-at-the-place-you-always-wanted-to-be-dont-stop-believing/

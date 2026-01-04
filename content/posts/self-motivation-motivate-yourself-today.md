@@ -12,15 +12,15 @@ original_url: 'https://selfsaid.30tools.com/self-motivation-motivate-yourself-to
 
 ![Motivated woman about to start a workout at the gym](https://seffsaid.com/wp-content/uploads/Motivate-Yourself-Today.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-We all have big hopes and dreams, life goals, and personal challenges. We’d all love to wake up feeling motivated and ready to attack the day, but life isn’t like that. Sometimes we lack energy or enthusiasm and wonder how we will make it through to bedtime, let alone regaining our motivation and working towards our life dreams. Well that’s when you need a good old-fashioned boost of self-motivation and a good way to [get self-motivated](/how-to-motivate-yourself) is to follow the 5 simple ways listed below.
+We all have big hopes and dreams, life goals, and personal challenges. We’d all love to wake up feeling motivated and ready to attack the day, but life isn’t like that. Sometimes we lack energy or enthusiasm and wonder how we will make it through to bedtime, let alone regaining our motivation and working towards our life dreams. Well that’s when you need a good old-fashioned boost of self-motivation and a good way to [get self-motivated](https://selfsaid.30tools.com/how-to-motivate-yourself) is to follow the 5 simple ways listed below.
 
 ## 1\. Improve your posture.
 
 A subtle change in your posture can immediately change your outlook on life and give your motivational levels a welcome surge. Try this… stand tall as if there is a wire pulling you gently upward from the top of your head, this will straighten your back. Next, bring your shoulders back and realign your head and neck.
 
-Avoid crossing your arms or legs and make sure to look people directly in the eye (although small breaks from this are important to avoid appearing aggressive) and take up as much body space as you need. You will soon be projecting confidence and energy and your [self-motivation](/12-proven-self-motivation-techniques) will soar.
+Avoid crossing your arms or legs and make sure to look people directly in the eye (although small breaks from this are important to avoid appearing aggressive) and take up as much body space as you need. You will soon be projecting confidence and energy and your [self-motivation](https://selfsaid.30tools.com/12-proven-self-motivation-techniques) will soar.
 
 ## 2\. Make a fresh start.
 
@@ -61,3 +61,5 @@ Pin16
 [More](#)
 
 16 Shares
+
+Source: https://selfsaid.30tools.com/self-motivation-motivate-yourself-today/

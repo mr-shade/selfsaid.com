@@ -12,25 +12,25 @@ original_url: 'https://selfsaid.30tools.com/the-26-best-short-life-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/best-short-life-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Here’s a collection of the 26 best short ‘Life Quotes’ that will fill you with inspiration and brighten your day.
 
 1.  “Whatever you are, be a good one.” – Abraham Lincoln
 2.  “Life must be lived forwards, but can only be understood backwards.” – Kierkegaard
 3.  “The trouble is you think you have time.” – Buddha
-4.  “Life begins at the end of your [comfort zone](/50-best-comfort-zone-quotes).” – Neale Donald Walsch
+4.  “Life begins at the end of your [comfort zone](https://selfsaid.30tools.com/50-best-comfort-zone-quotes).” – Neale Donald Walsch
 5.  “So it goes.” – Kurt Vonnegut
 6.  “Life is a shipwreck, but we must not forget to sing in the lifeboats.” – Voltaire
 7.  “This is your life, and it’s ending one minute at a time”. – Chuck Palahniuk
 8.  “Everything happens for a reason.” – Unknown
 9.  “Be the change you wish to see in the world.” – Mahatma Gandhi
-10.  “The key to immortality is first living a life worth remembering.” – [Bruce Lee](/bruce-lee-quotes)
-11.  “To succeed in life, you need two things: ignorance and confidence”. – [Mark Twain](/25-inspirational-mark-twain-quotes)
+10.  “The key to immortality is first living a life worth remembering.” – [Bruce Lee](https://selfsaid.30tools.com/bruce-lee-quotes)
+11.  “To succeed in life, you need two things: ignorance and confidence”. – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 12.  “I don’t want to earn my living; I want to live.” – Oscar Wilde
 13.  “Live for yourself.” – Unknown
 14.  “Live each day as if it’s your last.” – Unknown
-15.  “There are [no regrets](/no-regrets-quotes) in life, just lessons.” – Jennifer Aniston
+15.  “There are [no regrets](https://selfsaid.30tools.com/no-regrets-quotes) in life, just lessons.” – Jennifer Aniston
 16.  “Life is wasted on the living.” – Douglas Adams
 17.  “Try and fail, but never fail to try”. – Jared Leto
 18.  “Die with memories, not dreams.” – Unknown
@@ -39,7 +39,7 @@ Here’s a collection of the 26 best short ‘Life Quotes’ that will fill you 
 21.  “Life is a one-time offer, use it well.” – Unknown
 22.  “Work hard. Dream big.” – Unknown
 23.  “Live for each second without hesitation.” – Elton John
-24.  “Love the life you live. Live the life you love.” – [Bob Marley](/bob-marley-quotes)
+24.  “Love the life you live. Live the life you love.” – [Bob Marley](https://selfsaid.30tools.com/bob-marley-quotes)
 25.  “Youth is counted sweetest by those who are no longer young.” – John Green
 26.  “What a wonderful life I’ve had! I only wish I’d realized it sooner.” – Colette
 
@@ -56,3 +56,5 @@ Here’s a collection of the 26 best short ‘Life Quotes’ that will fill you 
 [More](#)
 
 101 Shares
+
+Source: https://selfsaid.30tools.com/the-26-best-short-life-quotes/

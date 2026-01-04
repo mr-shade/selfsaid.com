@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/simple-living-how-to-live-a-simple-l
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Live-A-Simple-Life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A simple life is not about having less just for the sake of it. It is about having more of what matters. More time. More peace. More space to breathe.
 
@@ -33,7 +33,7 @@ Let go slowly, and let go with kindness. Choose what stays with care. Keep what 
 
 Many of us fill our days out of habit. Appointments, emails, errands, noise. A full calendar can sometimes distract us from what we actually need. Choose to leave open space in your day. Protect your time the way you protect your energy.
 
-[Say no](/how-to-say-no-without-guilt) to what feels unnecessary. Say yes to rest. Say yes to quiet. Simple living is not about doing less for the sake of less. It is about doing less so you can be more present with what matters.
+[Say no](https://selfsaid.30tools.com/how-to-say-no-without-guilt) to what feels unnecessary. Say yes to rest. Say yes to quiet. Simple living is not about doing less for the sake of less. It is about doing less so you can be more present with what matters.
 
 ## 3\. Focus on what matters most
 
@@ -47,7 +47,7 @@ Simple living begins within. Even if your home feels calm, your thoughts might s
 
 ### 5\. Build steady, quiet routines
 
-Simplicity is supported by rhythm. You do not need a perfect schedule, but you do need consistency that feels grounding. Wake at the same time each day. [Drink water](/grounding-power-of-drinking-water) before checking your phone. Take a walk in the afternoon. These small rituals help your mind settle and your body feel safe. They become anchors, reminding you of your intention to live with care.
+Simplicity is supported by rhythm. You do not need a perfect schedule, but you do need consistency that feels grounding. Wake at the same time each day. [Drink water](https://selfsaid.30tools.com/grounding-power-of-drinking-water) before checking your phone. Take a walk in the afternoon. These small rituals help your mind settle and your body feel safe. They become anchors, reminding you of your intention to live with care.
 
 ## 6\. Let yourself slow down
 
@@ -69,7 +69,7 @@ Simple living often draws you back to what is real and grounding. Spend time out
 
 Simple living is not a goal to be reached. It is a return. A return to what matters. A return to yourself.  
   
-You do not need to get everything right. You just need to make room for more calm, more clarity, and more [care in your daily life](/self-care-routine).  
+You do not need to get everything right. You just need to make room for more calm, more clarity, and more [care in your daily life](https://selfsaid.30tools.com/self-care-routine).  
   
 Start small. Clear one shelf. Take one slow breath. Leave one empty space on your calendar.
 
@@ -88,3 +88,5 @@ Pin13
 [More](#)
 
 13 Shares
+
+Source: https://selfsaid.30tools.com/simple-living-how-to-live-a-simple-life/

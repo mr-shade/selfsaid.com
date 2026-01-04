@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-grat
 
 ![](https://seffsaid.com/wp-content/uploads/attitude-of-gratitude.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 It has often annoyed me when we are told that all experiences, especially bad ones, are an opportunity to learn, that we all have times when life seems to go smoothly, and more challenging times when nothing goes right. And we’re supposed to be thankful for the latter? I wasn’t convinced, not at all.
 
@@ -28,7 +28,7 @@ In consequence of the cheque going in and out of my account on different dates, 
 
 To compound these problems, the advisor who deals with my account, a guy everyone at the bank calls ‘Charlie’, was on holiday for four weeks and no one else seemed able to help me other than by looking very stressed and logging what had happened in a small notebook. They assured me that they were almost completely confident that the cheque amount would now remain on the account and that the elusive Charlie would be informed of everything that had transpired. All I had to do now was, on his return, contact him each time I noticed a bank charge that I felt was unwarranted and he would deal with it.
 
-I was beside myself. I had had weeks of [stress](/how-to-stay-calm-in-stressful-situations), weeks of taking time out of my day to go into the bank and explain the latest mistake that I had noticed. No one apologized. No one was willing to just take responsibility and sort this out for me. It was up to me to watch my account regularly and go begging (or at least that’s how it felt) each time I noticed something wrong.
+I was beside myself. I had had weeks of [stress](https://selfsaid.30tools.com/how-to-stay-calm-in-stressful-situations), weeks of taking time out of my day to go into the bank and explain the latest mistake that I had noticed. No one apologized. No one was willing to just take responsibility and sort this out for me. It was up to me to watch my account regularly and go begging (or at least that’s how it felt) each time I noticed something wrong.
 
 Spain is a very different country from many Anglophone countries. The concept of banging on the desk, demanding compensation, or threatening legal action is barely known here. I spoke with a few Spanish friends and received a sympathetic smile, a shrug, and a heartfelt c’est la vie. They’d all dealt with mistakes by their banks and had all learned to accept that it really was part of life.
 
@@ -94,3 +94,5 @@ For now, I have the smugness of feeling just a little wiser. And for that, I’m
 [More](#)
 
 11 Shares
+
+Source: https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude/

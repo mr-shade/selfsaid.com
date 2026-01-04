@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/overthinking-break-the-loop/'
 
 ![](https://seffsaid.com/wp-content/uploads/overthinking-break-the-loop.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 You know the feeling.
 
-You replay a conversation in your head. You go over a decision from every angle. You imagine [everything that could go wrong](/how-to-stay-strong). You try to figure out how to feel better by thinking it through, but somehow, it only makes things worse.
+You replay a conversation in your head. You go over a decision from every angle. You imagine [everything that could go wrong](https://selfsaid.30tools.com/how-to-stay-strong). You try to figure out how to feel better by thinking it through, but somehow, it only makes things worse.
 
-Overthinking feels like you’re trying to solve something. Like if you just think hard enough, you’ll find the answer and [feel calm again](/calming-quotes). But instead of clarity, you get stuck. The thoughts loop. Your energy drains. And still, nothing feels resolved.
+Overthinking feels like you’re trying to solve something. Like if you just think hard enough, you’ll find the answer and [feel calm again](https://selfsaid.30tools.com/calming-quotes). But instead of clarity, you get stuck. The thoughts loop. Your energy drains. And still, nothing feels resolved.
 
 That used to be my default.
 
@@ -50,9 +50,9 @@ Move your body in a small way. Stand up. Stretch your arms. Walk into a differen
 
 Then try to name what you’re really trying to manage with all that thinking. Are you looking for certainty? Trying to avoid a feeling? Hoping to prevent something from going wrong? You don’t need to solve it. Just acknowledging it can interrupt the cycle.
 
-Now give yourself something small and real to focus on. Make a cup of tea. Run warm water over your hands. Step outside and look at the sky. These aren’t distractions. They are ways to come back to the present, to remind your mind that it doesn’t need to [fix everything](/you-dont-have-to-fix-everything) right now.
+Now give yourself something small and real to focus on. Make a cup of tea. Run warm water over your hands. Step outside and look at the sky. These aren’t distractions. They are ways to come back to the present, to remind your mind that it doesn’t need to [fix everything](https://selfsaid.30tools.com/you-dont-have-to-fix-everything) right now.
 
-Repeat as needed. This isn’t about [stopping overthinking](/stop-overthinking-everything) forever. It’s about learning how to step out of it when it’s no longer helping you.
+Repeat as needed. This isn’t about [stopping overthinking](https://selfsaid.30tools.com/stop-overthinking-everything) forever. It’s about learning how to step out of it when it’s no longer helping you.
 
 And that begins with one small shift back toward yourself.
 
@@ -69,3 +69,5 @@ And that begins with one small shift back toward yourself.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/overthinking-break-the-loop/

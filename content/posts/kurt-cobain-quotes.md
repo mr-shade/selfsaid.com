@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/kurt-cobain-quotes/'
 
 ![Kurt Cobain on stage with Nirvana](https://seffsaid.com/wp-content/uploads/kurt-cobain-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
   
 Kurt Cobain’s quotes often reflect the raw emotion and unfiltered thoughts of a rock legend. This article brings together 52 of his best quotes, each offering a glimpse into his perspective on life, art, and fame. Whether you’re a longtime Nirvana fan or just discovering Cobain’s impactful words, his quotes resonate with honesty and depth.
@@ -65,12 +65,12 @@ Kurt Cobain’s quotes often reflect the raw emotion and unfiltered thoughts of 
 46.  “Our generation has had no Great Depression, no Great War. Our war is spiritual. Our depression is our lives.” – Kurt Cobain
 47.  “It’s okay to eat fish because they don’t have any feelings.” – Kurt Cobain
 48.  “The only difference between me and a madman is that I’m not mad.” – Kurt Cobain
-49.  “I learned [how to be happy](/how-to-live-a-happy-life) because I know what unhappiness felt like.” – Kurt Cobain
+49.  “I learned [how to be happy](https://selfsaid.30tools.com/how-to-live-a-happy-life) because I know what unhappiness felt like.” – Kurt Cobain
 50.  “I’m not afraid of the dark; I’m more afraid of not finding that creative spark.” – Kurt Cobain
 51.  “Sometimes I feel as if I should have a punch-in time clock before I walk out on stage.” – Kurt Cobain
 52.  “I never wanted to sing. I just wanted to play rhythm guitar – hide in the back and just play.” – Kurt Cobain
 
-Enjoyed this page? Discover more [famous people quotes](/quotes-by-famous-people) here!
+Enjoyed this page? Discover more [famous people quotes](https://selfsaid.30tools.com/quotes-by-famous-people) here!
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fkurt-cobain-quotes%2F)
 
@@ -85,3 +85,5 @@ Enjoyed this page? Discover more [famous people quotes](/quotes-by-famous-people
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/kurt-cobain-quotes/

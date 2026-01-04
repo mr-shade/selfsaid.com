@@ -13,11 +13,11 @@ original_url: >-
 
 ![](https://seffsaid.com/wp-content/uploads/Stop-Expecting.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We all want to enjoy happy, successful relationships with people throughout life whether they’re friends, life partners, or work colleagues. Of course, we all hope for certain traits such as respect and loyalty, but we often have unreasonable expectations of other people’s behavior and end up disappointed by their actions.
 
-If you want to enjoy better [relationships](/how-to-make-long-distance-relationships-work) there are some things, that at least in the early stages of a relationship, you should stop expecting from everyone. Lowering your expectations will greatly reduce unnecessary friction and frustration both for you and them and will also help you focus on the positive aspects of your new friendship.
+If you want to enjoy better [relationships](https://selfsaid.30tools.com/how-to-make-long-distance-relationships-work) there are some things, that at least in the early stages of a relationship, you should stop expecting from everyone. Lowering your expectations will greatly reduce unnecessary friction and frustration both for you and them and will also help you focus on the positive aspects of your new friendship.
 
 Here are five things you should stop expecting from others.
 
@@ -31,7 +31,7 @@ You probably hope that your friends would stay the person they are now forever, 
 
 ## 3\. **Stop Expecting People To Treat You The Same As You Treat Them**
 
-Ideally everybody would treat their fellow humans honestly and with [kindness](/simple-acts-of-kindness-that-can-make-us-live-longer) and respect, but we don’t live in a perfect world. No matter how well we treat people, not everyone will return the same kindness you show them. Smile, ignore them, and just carry spending time with those who truly value you.
+Ideally everybody would treat their fellow humans honestly and with [kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) and respect, but we don’t live in a perfect world. No matter how well we treat people, not everyone will return the same kindness you show them. Smile, ignore them, and just carry spending time with those who truly value you.
 
 ## 4\. **Stop Expecting People To Be Perfect**
 
@@ -58,3 +58,5 @@ People very rarely behave and act in the way you expect them to, so just hope fo
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/5-things-you-should-stop-expecting-from-other-people/

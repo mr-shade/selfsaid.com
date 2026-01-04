@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/transform-your-day/'
 
 ![](https://seffsaid.com/wp-content/uploads/life-hacks.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Sometimes, small adjustments to your daily routine can lead to significant changes in your productivity and overall happiness. These practical tips can make your day more manageable and fulfilling.
 
@@ -26,7 +26,7 @@ If a task takes less than two minutes to complete, tackle it right away. This si
 
 #### 3\. Declutter Your Workspace
 
-A tidy environment can clear your mind and [boost focus](/how-i-cultivated-a-focused-state-of-mind). Spend five minutes tidying your desk before starting work to [improve your productivity](/slay-the-day).
+A tidy environment can clear your mind and [boost focus](https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind). Spend five minutes tidying your desk before starting work to [improve your productivity](https://selfsaid.30tools.com/slay-the-day).
 
 #### 4\. Automate Repetitive Tasks
 
@@ -54,7 +54,7 @@ Choose three key tasks to complete each day. Accomplishing these goals will give
 
 #### 10\. Practice Gratitude
 
-Spend a moment each day reflecting on what you’re thankful for. This simple habit can shift your mindset and [improve your overall mood](/easy-ways-to-quickly-improve-your-mood).
+Spend a moment each day reflecting on what you’re thankful for. This simple habit can shift your mindset and [improve your overall mood](https://selfsaid.30tools.com/easy-ways-to-quickly-improve-your-mood).
 
 Incorporating these ideas into your routine doesn’t require drastic effort. Each tip serves as a step toward making your day smoother, more productive, and more enjoyable. By trying them out, you’re likely to discover which ones work best for your lifestyle and needs.
 
@@ -71,3 +71,5 @@ Incorporating these ideas into your routine doesn’t require drastic effort. Ea
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/transform-your-day/

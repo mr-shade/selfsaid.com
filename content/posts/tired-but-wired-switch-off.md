@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/tired-but-wired-switch-off/'
 
 ![](https://seffsaid.com/wp-content/uploads/tired-but-wired-switch-off.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 It’s a strange feeling, being exhausted but unable to rest.
 
 Your body is tired. Your eyes are heavy. You want to lie down, to slow down, to switch off. But your mind won’t let you. It keeps going. Thoughts keep circling. Tension stays in your shoulders. You lie still, but nothing inside you feels still.
 
-I used to fight it. I’d scroll. I’d get up and try to do something useful. Or I’d lie there frustrated, wondering why I couldn’t just [fall asleep](/how-to-fall-asleep-fast) like a normal person.
+I used to fight it. I’d scroll. I’d get up and try to do something useful. Or I’d lie there frustrated, wondering why I couldn’t just [fall asleep](https://selfsaid.30tools.com/how-to-fall-asleep-fast) like a normal person.
 
 What helped was not another trick or routine. It was changing how I approached that wired state.
 
@@ -38,7 +38,7 @@ At first, it felt strange. My mind still raced. But after a few minutes, somethi
 
 It reminded me that rest isn’t always immediate. It sometimes needs a little space to land.
 
-Now, when I [feel tired](/reasons-feel-tired) but wired, I give myself that space. I don’t push for sleep or stillness. I invite it. I prepare the conditions and let it come when it’s ready.
+Now, when I [feel tired](https://selfsaid.30tools.com/reasons-feel-tired) but wired, I give myself that space. I don’t push for sleep or stillness. I invite it. I prepare the conditions and let it come when it’s ready.
 
 If you’ve been stuck in that in-between state, where your body is worn out but your mind refuses to slow down, try this.
 
@@ -61,3 +61,5 @@ Sometimes, rest arrives quietly, once you stop trying to force it. And sometimes
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/tired-but-wired-switch-off/

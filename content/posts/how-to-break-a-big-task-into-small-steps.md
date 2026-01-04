@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-s
 
 ![](https://seffsaid.com/wp-content/uploads/task-decomposition.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We’ve all been there – faced with a daunting, seemingly insurmountable task that leaves us feeling overwhelmed and paralyzed. Whether it’s tackling a complex work project, embarking on a home improvement venture, or pursuing a personal goal, breaking down a big task into smaller, manageable steps is the key to success. This article will explore the art and science of task decomposition, providing actionable advice on how to break a big task into small, achievable steps.
 
@@ -20,7 +20,7 @@ We’ve all been there – faced with a daunting, seemingly insurmountable task 
 
 Let’s first understand why breaking down a big task into small steps offers several advantages:
 
-1.  **Reduces Overwhelm:** Large tasks can be intimidating, leading to [procrastination](/eliminate-disguised-procrastination) and [anxiety](/48-simple-ways-to-reduce-stress-and-anxiety). Breaking them into smaller pieces makes them feel more manageable and less intimidating.
+1.  **Reduces Overwhelm:** Large tasks can be intimidating, leading to [procrastination](https://selfsaid.30tools.com/eliminate-disguised-procrastination) and [anxiety](https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety). Breaking them into smaller pieces makes them feel more manageable and less intimidating.
 2.  **Enhances Focus:** Smaller steps allow you to concentrate on one aspect of the task at a time, improving your focus and attention to detail.
 3.  **Measurable Progress:** Achieving small milestones provides a sense of accomplishment and motivates you to continue working on the larger goal.
 4.  **Clearer Planning:** Breaking tasks into smaller steps helps you create a clear roadmap, making it easier to allocate time and resources effectively.
@@ -76,7 +76,7 @@ Starting with the first sub-task helps you build momentum and confidence. As you
 
 ## **Step 7: Monitor Progress**
 
-Regularly monitor your progress as you work through the sub-tasks. Tracking your achievements not only helps you [stay motivated](/how-to-motivate-yourself) but also allows you to make necessary adjustments to your plan.
+Regularly monitor your progress as you work through the sub-tasks. Tracking your achievements not only helps you [stay motivated](https://selfsaid.30tools.com/how-to-motivate-yourself) but also allows you to make necessary adjustments to your plan.
 
 *   **Checklists:** Use your checklist or to-do list to mark off completed sub-tasks. It’s satisfying to see your list of accomplishments grow.
 *   **Time Tracking:** Keep track of the time you spend on each sub-task to ensure you’re staying on schedule. Time management tools and apps can be helpful for this.
@@ -124,3 +124,5 @@ Pin3
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps/

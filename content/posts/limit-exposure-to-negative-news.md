@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/limit-exposure-to-negative-news/'
 
 ![](https://seffsaid.com/wp-content/uploads/negative-news.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When headlines feel heavy and the flow of stories never seems to stop, even the thought of switching off can feel impossible. News is everywhere — on our phones, in conversations, in the background while we cook or commute. Staying informed matters, but so does protecting your peace of mind.
 
@@ -22,7 +22,7 @@ Here are ten reasons to take a step back and give yourself more space from the c
 
 ## 1\. Reduces Stress
 
-Your body reacts to bad news as if you were directly in danger. Heart rate increases, muscles tighten, and the stress response switches on. Consuming negative stories all day keeps you in that state of alertness, leaving you restless and tense. By limiting your intake, you give your body space to relax, lowering [stress levels](/stress-levels-out-of-control) and creating room for calm.
+Your body reacts to bad news as if you were directly in danger. Heart rate increases, muscles tighten, and the stress response switches on. Consuming negative stories all day keeps you in that state of alertness, leaving you restless and tense. By limiting your intake, you give your body space to relax, lowering [stress levels](https://selfsaid.30tools.com/stress-levels-out-of-control) and creating room for calm.
 
 ## 2\. Improves Sleep
 
@@ -79,3 +79,5 @@ Over time, these choices add up. Less exposure to negativity means more space fo
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/limit-exposure-to-negative-news/

@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/productive-things-to-do-when-bored/'
 
 ![Bored girl trying to think of something productive to do](https://seffsaid.com/wp-content/uploads/Productive-Things-To-Do-When-Bored.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 What is boredom? Boredom is a sign that your life is maybe too comfortable or too easy. You probably feel that you don’t have anything in particular to do, or maybe life is just too tedious.
 
@@ -25,7 +25,7 @@ So with the goal of becoming a better, more productive person, here is a compreh
 
 Feeling bored? This could be the perfect opportunity to start planning a new and exciting life! But wondering where to begin? Try planners and trackers. If you’re looking to better manage your time or set up a productivity schedule, these tools can be really helpful.
 
-Whether it’s keeping track of your passwords, meal planning, monitoring online purchases, or organizing your daily tasks, printable planners are becoming more and more popular. They’re a great way to manage your schedule more effectively and boost your productivity. Discover some [planner ideas](/planner-ideas) here.
+Whether it’s keeping track of your passwords, meal planning, monitoring online purchases, or organizing your daily tasks, printable planners are becoming more and more popular. They’re a great way to manage your schedule more effectively and boost your productivity. Discover some [planner ideas](https://selfsaid.30tools.com/planner-ideas) here.
 
 ## 2\. Become A Volunteer.
 
@@ -69,7 +69,7 @@ Plus, it’s a satisfying way to use your time productively, it’s a straightfo
 
 ## 11\. Back Up Your Files.
 
-When was the last time you backed up all the important files on your phone, tablet, or laptop? At the very least, most of us have photos that we’ve taken with our phones that we don’t want to lose. Don’t waste boredom by [doing nothing](/reasons-to-do-nothing)! Back up your files today!
+When was the last time you backed up all the important files on your phone, tablet, or laptop? At the very least, most of us have photos that we’ve taken with our phones that we don’t want to lose. Don’t waste boredom by [doing nothing](https://selfsaid.30tools.com/reasons-to-do-nothing)! Back up your files today!
 
 ## 12\. Unsubscribe From Mailing Lists.
 
@@ -83,7 +83,7 @@ It’s a productive way to use your free time, offering both personal and financ
 
 ## 14\. Read A Book.
 
-I love reading! It’s a great way to relax and reduce stress. You can increase your vocabulary and improve your memory. Develop improved focus and concentration and expand your knowledge. Read more on the [benefits of reading books](/8-benefits-of-reading-books) in this article.
+I love reading! It’s a great way to relax and reduce stress. You can increase your vocabulary and improve your memory. Develop improved focus and concentration and expand your knowledge. Read more on the [benefits of reading books](https://selfsaid.30tools.com/8-benefits-of-reading-books) in this article.
 
 ## 15\. Make A To-Do List.
 
@@ -99,7 +99,7 @@ Visit your local swimming pool this week and take a swim! Good fun, great for yo
 
 Too much clutter in your life can cause exhaustion, despair, and a feeling of being overwhelmed. Eliminating the possessions you don’t need can reduce stress and anxiety, improve your sleep, rid the home of allergens, and boost productivity.
 
-Looking for inspiration on what to throw out or give away? Read my article on [decluttering your home](/declutter-your-home) with a list of 70 things you won’t miss at all!
+Looking for inspiration on what to throw out or give away? Read my article on [decluttering your home](https://selfsaid.30tools.com/declutter-your-home) with a list of 70 things you won’t miss at all!
 
 ## 18\. Organise Your Login Details.
 
@@ -134,3 +134,5 @@ So next time you are skulking around bored and wondering what to do, don’t swi
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/productive-things-to-do-when-bored/

@@ -10,7 +10,7 @@ original_url: 'https://selfsaid.30tools.com/habits-you-must-quit-to-be-happy/'
 
 ![](https://seffsaid.com/wp-content/uploads/habits-you-must-quit-to-be-happy.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Welcome to the latest [SEFFSAID](/) article, where the focus is on habits that might be keeping you from living your happiest life. Sometimes, it’s not about adding more to your life but letting go of the things that hold you back. Here are 12 habits you should consider quitting to create more room for genuine happiness.
 
@@ -40,7 +40,7 @@ Constantly replaying scenarios in your mind can be overwhelming. Trust yourself 
 
 ## Neglecting Your Health
 
-Ignoring your physical and mental well-being often leads to burnout and unhappiness. Take time to exercise, eat well, and rest. These small [acts of self-care](/56-self-care-ideas-for-a-healthy-mind-and-body) make a big difference in how you feel.
+Ignoring your physical and mental well-being often leads to burnout and unhappiness. Take time to exercise, eat well, and rest. These small [acts of self-care](https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-mind-and-body) make a big difference in how you feel.
 
 ## Being Afraid to Fail
 
@@ -48,7 +48,7 @@ Fear of failure can stop you from trying new things or reaching for your dreams.
 
 ## Overcommitting
 
-Saying yes to everything might feel like the right thing to do, but it can leave you drained. [Learn how to say no](/learn-how-to-say-no) or [set boundaries](/define-your-boundaries) and protect your time for the things that truly matter.
+Saying yes to everything might feel like the right thing to do, but it can leave you drained. [Learn how to say no](https://selfsaid.30tools.com/learn-how-to-say-no) or [set boundaries](https://selfsaid.30tools.com/define-your-boundaries) and protect your time for the things that truly matter.
 
 ## Dwelling on Negativity
 
@@ -77,3 +77,5 @@ By quitting these habits, you can create more space for happiness to thrive. Sma
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/habits-you-must-quit-to-be-happy/

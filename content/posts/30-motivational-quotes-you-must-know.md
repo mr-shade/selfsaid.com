@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/30-motivational-quotes-you-must-know
 
 ![](https://seffsaid.com/wp-content/uploads/motivational-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 In need of some motivation? Well, aren’t we all! Read the list below of possibly the 30 greatest motivational quotes, adopt them into your life and you’ll soon be on your way to new found greatness. These epic quotes will help inspire you to achieve greater things.
 
@@ -30,11 +30,11 @@ In need of some motivation? Well, aren’t we all! Read the list below of possib
 *   “Discipline is doing what you know needs to be done, even if you don’t want to do it.” – Unknown
 *   “They told me I couldn’t. That’s why I did.” – Unknown
 *   “You only fail when you stop trying.” – Unknown
-*   “Don’t be afraid to fail. Be afraid not to try.” _–_ [Michael Jordan](/michael-jordan-quotes)
+*   “Don’t be afraid to fail. Be afraid not to try.” _–_ [Michael Jordan](https://selfsaid.30tools.com/michael-jordan-quotes)
 *   “We learn from failure not from success.” – Bram Stoker
-*   The secret to getting ahead is getting started.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+*   The secret to getting ahead is getting started.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 *   “When you know what you want, and you want it bad enough, you’ll find a way to get it.” – Jim Rohn
-*   “The best way to predict the [future is to create it](/how-to-create-an-exciting-future).” – Peter Drucker
+*   “The best way to predict the [future is to create it](https://selfsaid.30tools.com/how-to-create-an-exciting-future).” – Peter Drucker
 *   “You are confined only by the walls you build yourself.” – Andrew Murphy
 *   “One finds limits by pushing them.” – Herbert Simon.
 *   “Time is more value than money. You can get more money, but you cannot get more time.” – Jim Rohn
@@ -59,3 +59,5 @@ In need of some motivation? Well, aren’t we all! Read the list below of possib
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/30-motivational-quotes-you-must-know/

@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/stop-chasing-goals/'
 
 ![](https://seffsaid.com/wp-content/uploads/stop-chasing-goals.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-For most of my life, I believed progress meant having goals. Big ones. Detailed ones. Carefully mapped out. There was always something to work toward, something to plan, measure, and pursue. That’s what we’re taught, isn’t it? Set a target. [Stay focused](/cant-focus-5-minute-fix). Don’t stop until you get there.
+For most of my life, I believed progress meant having goals. Big ones. Detailed ones. Carefully mapped out. There was always something to work toward, something to plan, measure, and pursue. That’s what we’re taught, isn’t it? Set a target. [Stay focused](https://selfsaid.30tools.com/cant-focus-5-minute-fix). Don’t stop until you get there.
 
 And for a while, it worked. Until it didn’t.
 
-I wasn’t failing at my goals. I was just [tired all the time](/reasons-feel-tired). Every day became a series of checkboxes. Even when I reached the end of one thing, I was already thinking about the next. I started noticing that no matter how much I got done, calm still felt far away.
+I wasn’t failing at my goals. I was just [tired all the time](https://selfsaid.30tools.com/reasons-feel-tired). Every day became a series of checkboxes. Even when I reached the end of one thing, I was already thinking about the next. I started noticing that no matter how much I got done, calm still felt far away.
 
 Eventually, I stopped chasing goals. Not because I gave up, but because I realized I was chasing the wrong thing.
 
@@ -38,7 +38,7 @@ There was always a way to fall short. A reason to feel not quite enough. If I fi
 
 And even when I hit a milestone, it didn’t bring the peace I thought it would. Just more pressure to maintain it, improve it, or prove it wasn’t a fluke.
 
-Chasing goals made me [feel productive](/slay-the-day), but rarely peaceful.
+Chasing goals made me [feel productive](https://selfsaid.30tools.com/slay-the-day), but rarely peaceful.
 
 ## Letting go didn’t mean letting life drift
 
@@ -84,7 +84,7 @@ Now, a good day isn’t about how much I got done. It’s about how I felt doing
 
 Did I move with intention?  
 Did I give my mind space?  
-Did I [say yes](/say-yes-to-yourself) because I meant it, not because I felt I had to?  
+Did I [say yes](https://selfsaid.30tools.com/say-yes-to-yourself) because I meant it, not because I felt I had to?  
 Did I have a moment of quiet, even for a minute?
 
 These aren’t the kinds of things you put on a vision board. But they’re what make a life feel whole.
@@ -118,3 +118,5 @@ I stopped chasing goals. And what I found was a quieter kind of progress. One th
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/stop-chasing-goals/

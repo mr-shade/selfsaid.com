@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/kim-kardashian-quotes/'
 
 ![Kim Kardashian](https://seffsaid.com/wp-content/uploads/Kim-Kardashian-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A collection of quotes from Kim Kardashian, one of today’s most recognizable figures in entertainment and business. Each quote reflects her unique perspective on life, work, and personal growth. Whether you admire her entrepreneurial spirit or her approach to life in the public eye, there’s something here for you to enjoy.
 
@@ -22,7 +22,7 @@ A collection of quotes from Kim Kardashian, one of today’s most recognizable f
 4.  “I think you have different soulmates throughout your life.” – Kim Kardashian
 5.  “I hate to talk about myself.” – Kim Kardashian
 6.  “My career is based on openness and honesty.” – Kim Kardashian
-7.  At the end of the day, [life is about being happy](/how-to-live-a-happy-life) being who you are.” – Kim Kardashian
+7.  At the end of the day, [life is about being happy](https://selfsaid.30tools.com/how-to-live-a-happy-life) being who you are.” – Kim Kardashian
 8.  “If I look at the message I’m portraying, I think it definitely is be who you are, but be your best you.” – Kim Kardashian
 9.  “I’m an entrepreneur. ‘Ambitious’ is my middle name.” – Kim Kardashian
 10.  “I always want to be a better version of myself.” – Kim Kardashian
@@ -31,8 +31,8 @@ A collection of quotes from Kim Kardashian, one of today’s most recognizable f
 13.  “I’m totally growing up.” – Kim Kardashian
 14.  “People don’t understand the pressure on me to look perfect.” – Kim Kardashian
 15.  “When you have so much visibility, you don’t want to put out something that’s not 100 percent perfect.” – Kim Kardashian
-16.  “I promote a [healthy lifestyle](/56-self-care-ideas-for-a-healthy-mind-and-body).” – Kim Kardashian
-17.  “[You make mistakes](/5-common-life-mistakes-to-avoid), but I don’t have any regrets. I’m the kind of person who takes responsibility for it and deals with it.” – Kim Kardashian
+16.  “I promote a [healthy lifestyle](https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-mind-and-body).” – Kim Kardashian
+17.  “[You make mistakes](https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid), but I don’t have any regrets. I’m the kind of person who takes responsibility for it and deals with it.” – Kim Kardashian
 18.  “I think as long as you learn from your mistakes, and don’t make them over and over again, you’re on the right path.” – Kim Kardashian
 19.  “It’s fun to have a partner who understands your life and lets you be you.” – Kim Kardashian
 20.  “I don’t like to gamble, but if there’s one thing I’m willing to bet on, it’s myself.” – Kim Kardashian
@@ -80,3 +80,5 @@ A collection of quotes from Kim Kardashian, one of today’s most recognizable f
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/kim-kardashian-quotes/

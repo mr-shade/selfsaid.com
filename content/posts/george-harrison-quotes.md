@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/george-harrison-quotes/'
 
 ![George Harrison on stage with The Beatles](https://seffsaid.com/wp-content/uploads/George-Harrison-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Welcome to this collection of George Harrison’s 50 Best Quotes. [George Harrison](https://www.georgeharrison.com/), known as the quiet Beatle, left behind a legacy filled with wisdom, humor, and a deep sense of spirituality. His words continue to inspire and resonate with fans all around the world.
 
-This article compiles 50 of his most memorable quotes, covering topics from love and life to music and spirituality. Whether you’re a lifelong fan of The Beatles or just someone seeking some inspiration, these [quotes by The Beatles](/beatles-quotes)‘ lead guitarist will surely strike a chord. So, if you’re ready to see the world through George Harrison’s eyes, read on and discover the timeless wisdom he shared through his words.
+This article compiles 50 of his most memorable quotes, covering topics from love and life to music and spirituality. Whether you’re a lifelong fan of The Beatles or just someone seeking some inspiration, these [quotes by The Beatles](https://selfsaid.30tools.com/beatles-quotes)‘ lead guitarist will surely strike a chord. So, if you’re ready to see the world through George Harrison’s eyes, read on and discover the timeless wisdom he shared through his words.
 
 ## George Harrison Quotes
 
@@ -55,7 +55,7 @@ This article compiles 50 of his most memorable quotes, covering topics from love
 33.  “The only thing we really have to work at in this life is how to manifest love.” – George Harrison
 34.  “The farther one travels, the less one knows.” – George Harrison
 35.  “We were the Spice Boys.” – George Harrison, joking about The Beatles’ early image
-36.  “I’m a Pisces, and they say that Pisces are very [sensitive people](/life-changing-tips-for-sensitive-people). If men were only sensitive, they would go somewhere and meditate and find out the truth.” – George Harrison
+36.  “I’m a Pisces, and they say that Pisces are very [sensitive people](https://selfsaid.30tools.com/life-changing-tips-for-sensitive-people). If men were only sensitive, they would go somewhere and meditate and find out the truth.” – George Harrison
 37.  “I get confused when I look around at the world, and I see everybody’s running around, and to me, it seems like they’re running in the wrong direction.” – George Harrison
 38.  “There’s nothing wrong with making mistakes, just don’t make the same ones.” – George Harrison
 39.  “The best thing anyone can do is to try to live in a way that contributes to self-improvement and self-understanding.” – George Harrison
@@ -84,3 +84,5 @@ This article compiles 50 of his most memorable quotes, covering topics from love
 [More](#)
 
 14 Shares
+
+Source: https://selfsaid.30tools.com/george-harrison-quotes/

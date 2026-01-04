@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-make-long-distance-relationsh
 
 ![Two people about to start a long distance relationship](https://seffsaid.com/wp-content/uploads/long-distance-relationship.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Maintaining a long-distance relationship can be challenging, but with the right strategies, you can keep the connection strong. Here are 10 practical tips that can help you and your partner thrive despite the miles between you.
 
@@ -71,3 +71,5 @@ By employing these strategies, you can maintain a loving and fulfilling relation
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/how-to-make-long-distance-relationships-work/

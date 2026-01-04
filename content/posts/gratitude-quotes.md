@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/gratitude-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/gratitude-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Gratitude has a special way of bringing positivity into daily life, helping you appreciate even the simplest things around you. Whether it’s acknowledging kindness or savoring moments of joy, thankfulness can create a lasting impact on your outlook. These gratitude quotes offer inspiration to help you reflect on all there is to be grateful for, encouraging a more thankful mindset each day.
 
@@ -37,7 +37,7 @@ Gratitude has a special way of bringing positivity into daily life, helping you 
 17.  “Gratitude is the heart’s memory.” – French Proverb
 18.  “Joy is the simplest form of gratitude.” – Karl Barth
 19.  “Gratitude is the wine for the soul. Go on. Get drunk.” – Rumi
-20.  “Let gratitude be the pillow upon which you kneel to say your nightly prayer.” – [Maya Angelou](/maya-angelou-quotes)
+20.  “Let gratitude be the pillow upon which you kneel to say your nightly prayer.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 21.  “It is not joy that makes us grateful; it is gratitude that makes us joyful.” – David Steindl-Rast
 22.  “Gratitude and attitude are not challenges; they are choices.” – Robert Braathe
 23.  “If the only prayer you said was thank you, that would be enough.” – Meister Eckhart
@@ -49,14 +49,14 @@ Gratitude has a special way of bringing positivity into daily life, helping you 
 29.  “Let us rise up and be thankful, for if we didn’t learn a lot today, at least we learned a little.” – Buddha
 30.  “Give thanks for a little, and you will find a lot.” – Hausa Proverb
 31.  “Gratitude is the closest thing to beauty manifested in an emotion.” – Mindy Kaling
-32.  “An [attitude of gratitude](/how-to-cultivate-an-attitude-of-gratitude) brings great things.” – Yogi Bhajan
+32.  “An [attitude of gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) brings great things.” – Yogi Bhajan
 33.  “We can complain because rose bushes have thorns, or rejoice because thorns have roses.” – Alphonse Karr
 34.  “Be present in all things and thankful for all things.” – Maya Angelou
 35.  “Nothing is more honorable than a grateful heart.” – Seneca
 36.  “The soul that gives thanks can find comfort in everything; the soul that complains can find comfort in nothing.” – Hannah Whitall Smith
 37.  “Gratitude makes us feel good and proud, for it is the heart’s memory.” – Ralph Waldo Emerson
 38.  “Gratitude paints little smiley faces on everything it touches.” – Richelle E. Goodrich
-39.  “We often [take for granted](/things-we-should-never-take-for-granted) the very things that most deserve our gratitude.” – Cynthia Ozick
+39.  “We often [take for granted](https://selfsaid.30tools.com/things-we-should-never-take-for-granted) the very things that most deserve our gratitude.” – Cynthia Ozick
 40.  “Gratitude is the foundation of joy.” – Anonymous
 41.  “Gratitude is the antidote to bitterness and resentment.” – Anonymous
 42.  “Gratitude, like faith, is a muscle. The more you use it, the stronger it grows.” – Alan Cohen
@@ -82,3 +82,5 @@ Gratitude has a special way of bringing positivity into daily life, helping you 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/gratitude-quotes/

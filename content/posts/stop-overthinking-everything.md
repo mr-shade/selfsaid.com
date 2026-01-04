@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/stop-overthinking-everything/'
 
 ![](https://seffsaid.com/wp-content/uploads/Stop-Overthinking-Everything.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Everyone overthinks sometimes, and some do it all the time. There’s a connection between stress, anxiety, and overthinking, but it’s unclear if they cause overthinking or are symptoms of an overactive mind.
 
 How can you stop overthinking? Wherever this cycle starts, the key is to break it and find ways to become more objective, confident, and relaxed.
 
-Fortunately, slowing down or [overcoming overthinking](/overthinking-break-the-loop) is quite simple. The techniques below can quickly [reduce stress and anxiety](/48-simple-ways-to-reduce-stress-and-anxiety), helping you sleep better and feel calmer.
+Fortunately, slowing down or [overcoming overthinking](https://selfsaid.30tools.com/overthinking-break-the-loop) is quite simple. The techniques below can quickly [reduce stress and anxiety](https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety), helping you sleep better and feel calmer.
 
 With these methods, you’ll gradually feel more refreshed, less anxious, and more capable of creating new habits that will help you stop overthinking.
 
@@ -26,7 +26,7 @@ With these methods, you’ll gradually feel more refreshed, less anxious, and mo
 
 In this case, we’re not talking about the mind, we’re talking about screens and technology. Blue light from screens, a barrage of news and information, too much stress from work and even messages from family and friends all come mostly from our phones, tablets, computers and televisions.
 
-Make a habit of [unplugging](/quotes-about-unplugging) for a few hours of the day, especially in the evening, and find more relaxing ways to spend some free time. This allows your brain to have regular breaks with less input and, over time, this will allow you to relax and slow the pace of your mind.
+Make a habit of [unplugging](https://selfsaid.30tools.com/quotes-about-unplugging) for a few hours of the day, especially in the evening, and find more relaxing ways to spend some free time. This allows your brain to have regular breaks with less input and, over time, this will allow you to relax and slow the pace of your mind.
 
 ## 2\. Stretch
 
@@ -36,7 +36,7 @@ Getting up out of your chair and stretching for ten minutes a few times a day wi
 
 ## 3\. Breathe
 
-Taking some [deep mindful breaths](/breath-a-bridge-to-conscious-and-mindful-living) will almost instantly calm your overactive mind. When we are stressed our breath becomes shallow and high, our shoulders get tense and pull upwards with contracted muscles. A few deep breaths, allowing the air to go deep down into the lower part of the lungs, and letting the shoulders relax downwards, can be a strong signal to the [body and mind](/56-self-care-ideas-for-a-healthy-mind-and-body) that it’s time to relax.
+Taking some [deep mindful breaths](https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-mindful-living) will almost instantly calm your overactive mind. When we are stressed our breath becomes shallow and high, our shoulders get tense and pull upwards with contracted muscles. A few deep breaths, allowing the air to go deep down into the lower part of the lungs, and letting the shoulders relax downwards, can be a strong signal to the [body and mind](https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-mind-and-body) that it’s time to relax.
 
 This will help to slow those racing thoughts and lower stress hormones such as adrenaline and cortisol. Build the habit of stopping what you’re doing, closing your eyes and taking some good deep breaths several times a day and you will certainly notice an improvement in your overactive mind. These breaths can be enhanced from time to time by taking them outdoors in a green space such as a garden, park or forest.
 
@@ -56,9 +56,9 @@ Try not to get involved emotionally with the thoughts or situations, just quickl
 
 ## 6\. Embrace specific gratitude
 
-[Gratitude](/how-to-cultivate-an-attitude-of-gratitude) is a powerful thing and we should embrace it every day. The use of “specific gratitude” is especially powerful for a racing mind. Think of something for which you are grateful such as your health. Now think of something more specific within that such as your gratitude to be able to walk to the shops or being pain-free.
+[Gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) is a powerful thing and we should embrace it every day. The use of “specific gratitude” is especially powerful for a racing mind. Think of something for which you are grateful such as your health. Now think of something more specific within that such as your gratitude to be able to walk to the shops or being pain-free.
 
-This will be different for everyone but we can all find small specific things for which we are grateful. The act of stopping and thinking about them can calm a racing anxious mind and foster a more [positive outlook](/how-to-keep-a-positive-outlook-in-life).
+This will be different for everyone but we can all find small specific things for which we are grateful. The act of stopping and thinking about them can calm a racing anxious mind and foster a more [positive outlook](https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-life).
 
 ## Final thoughts
 
@@ -77,3 +77,5 @@ A mind that overthinks is very common but we can all use small habits every day 
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/stop-overthinking-everything/

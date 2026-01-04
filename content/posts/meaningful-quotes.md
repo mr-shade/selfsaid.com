@@ -12,19 +12,19 @@ original_url: 'https://selfsaid.30tools.com/meaningful-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/meaningful-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Meaningful quotes offer inspiration and wisdom that resonate with us on many levels. They capture truths about life, success, happiness, and resilience, each bringing a fresh perspective. Here is a collection of quotes with meaning that can serve as thoughtful reminders in any season of life.
 
 ## Meaningful Quotes
 
 1.  “Life is what happens when you’re busy making other plans.” – John Lennon
-2.  Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](/winston-churchill-quotes)
+2.  Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 3.  “The best way to predict the future is to invent it.” – Alan Kay
 4.  “In the end, it’s not the years in your life that count, it’s the life in your years.” – Abraham Lincoln
 5.  “Don’t watch the clock; do what it does. Keep going.” – Sam Levenson
 6.  “Do not go where the path may lead, go instead where there is no path and leave a trail.” – Ralph Waldo Emerson
-7.  “Happiness is not something ready made. It comes from your own actions.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
+7.  “Happiness is not something ready made. It comes from your own actions.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 8.  “The only limit to our realization of tomorrow is our doubts of today.” – Franklin D. Roosevelt
 9.  “Life is 10% what happens to us and 90% how we react to it.” – Charles R. Swindoll
 10.  “Believe you can and you’re halfway there.” – Theodore Roosevelt
@@ -34,10 +34,10 @@ Meaningful quotes offer inspiration and wisdom that resonate with us on many lev
 14.  “What lies behind us and what lies before us are tiny matters compared to what lies within us.” – Ralph Waldo Emerson
 15.  “Go confidently in the direction of your dreams! Live the life you’ve imagined.” – Henry David Thoreau
 16.  “Strive not to be a success, but rather to be of value.” – Albert Einstein
-17.  If you want to [live a happy life](/how-to-live-a-happy-life), tie it to a goal, not to people or things.” – Albert Einstein
-18.  The only way to do great work is to love what you do.” – [Steve Jobs](/steve-jobs-quotes)
+17.  If you want to [live a happy life](https://selfsaid.30tools.com/how-to-live-a-happy-life), tie it to a goal, not to people or things.” – Albert Einstein
+18.  The only way to do great work is to love what you do.” – [Steve Jobs](https://selfsaid.30tools.com/steve-jobs-quotes)
 19.  “Success usually comes to those who are too busy to be looking for it.” – Henry David Thoreau
-20.  It is our choices, that show what we truly are, far more than our abilities.” – [J.K. Rowling](/j-k-rowling-quotes)
+20.  It is our choices, that show what we truly are, far more than our abilities.” – [J.K. Rowling](https://selfsaid.30tools.com/j-k-rowling-quotes)
 21.  “Hardships often prepare ordinary people for an extraordinary destiny.” – C.S. Lewis
 22.  “If you want to fly, give up everything that weighs you down.” – Buddha
 23.  “Do what you can, with what you have, where you are.” – Theodore Roosevelt
@@ -49,11 +49,11 @@ Meaningful quotes offer inspiration and wisdom that resonate with us on many lev
 29.  “Life isn’t about finding yourself. Life is about creating yourself.” – George Bernard Shaw
 30.  “Don’t let yesterday take up too much of today.” – Will Rogers
 31.  “If you want to lift yourself up, lift up someone else.” – Booker T. Washington
-32.  When we strive to become better than we are, everything around us becomes better too.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
-33.  Our lives begin to end the day we become silent about things that matter.” – [Martin Luther King](/martin-luther-king-quotes) Jr.
+32.  When we strive to become better than we are, everything around us becomes better too.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
+33.  Our lives begin to end the day we become silent about things that matter.” – [Martin Luther King](https://selfsaid.30tools.com/martin-luther-king-quotes) Jr.
 34.  “Perfection is not attainable, but if we chase perfection we can catch excellence.” – Vince Lombardi
 35.  “Don’t judge each day by the harvest you reap but by the seeds that you plant.” – Robert Louis Stevenson
-36.  Twenty years from now you will be more disappointed by the things you didn’t do than by the ones you did do.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+36.  Twenty years from now you will be more disappointed by the things you didn’t do than by the ones you did do.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 37.  “Keep your face always toward the sunshine-and shadows will fall behind you.” – Walt Whitman
 38.  “Do not wait to strike till the iron is hot; but make it hot by striking.” – William Butler Yeats
 39.  “The only impossible journey is the one you never begin.” – Tony Robbins
@@ -61,7 +61,7 @@ Meaningful quotes offer inspiration and wisdom that resonate with us on many lev
 41.  “Life becomes easier and more beautiful when we can see the good in other people.” – Roy T. Bennett
 42.  “The purpose of our lives is to be happy.” – Dalai Lama
 43.  “The only journey is the one within.” – Rainer Maria Rilke
-44.  Don’t count the days, make the days count.” – [Muhammad Ali](/muhammad-ali-quotes)
+44.  Don’t count the days, make the days count.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 45.  “There is only one way to avoid criticism: do nothing, say nothing, and be nothing.” – Aristotle
 46.  “A year from now you may wish you had started today.” – Karen Lamb
 47.  “The greatest glory in living lies not in never falling, but in rising every time we fall.” – Nelson Mandela
@@ -83,3 +83,5 @@ Meaningful quotes offer inspiration and wisdom that resonate with us on many lev
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/meaningful-quotes/

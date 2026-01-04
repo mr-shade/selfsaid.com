@@ -12,24 +12,24 @@ original_url: 'https://selfsaid.30tools.com/productivity-advice/'
 
 ![](https://seffsaid.com/wp-content/uploads/productivity-advice.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Productivity is key to achieving your goals and managing your time effectively. Sometimes, the simplest tips can have the greatest impact. Here are 50 pieces of productivity advice, all in five words or less, to help you work smarter and [get more done](/getting-more-done-in-less-time):
+Productivity is key to achieving your goals and managing your time effectively. Sometimes, the simplest tips can have the greatest impact. Here are 50 pieces of productivity advice, all in five words or less, to help you work smarter and [get more done](https://selfsaid.30tools.com/getting-more-done-in-less-time):
 
 ## Productivity Advice
 
 1.  Prioritize tasks by importance first.
 2.  Focus on one task only.
-3.  [Break big projects into steps](/how-to-break-a-big-task-into-small-steps).
+3.  [Break big projects into steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps).
 4.  Set clear, achievable daily goals.
-5.  [Eliminate unnecessary distractions](/how-to-eliminate-distractions-at-work) around you.
+5.  [Eliminate unnecessary distractions](https://selfsaid.30tools.com/how-to-eliminate-distractions-at-work) around you.
 6.  Take regular breaks for focus.
 7.  Use a timer while working.
 8.  Plan tomorrow’s tasks today.
 9.  Declutter your workspace for clarity.
 10.  Limit social media during work.
 11.  Delegate what you can’t manage.
-12.  [Learn to say “no” politely](/learn-how-to-say-no).
+12.  [Learn to say “no” politely](https://selfsaid.30tools.com/learn-how-to-say-no).
 13.  Avoid multitasking for better efficiency.
 14.  Use time-blocking for better scheduling.
 15.  Start with the hardest task.
@@ -40,7 +40,7 @@ Productivity is key to achieving your goals and managing your time effectively. 
 20.  Create and follow a routine.
 21.  Use a to-do list consistently.
 22.  Track your time for awareness.
-23.  Practice mindfulness to [reduce stress](/how-to-reduce-stress).
+23.  Practice mindfulness to [reduce stress](https://selfsaid.30tools.com/how-to-reduce-stress).
 24.  Minimize decision fatigue with planning.
 25.  Limit meetings to essentials only.
 26.  Set deadlines for every task.
@@ -57,7 +57,7 @@ Productivity is key to achieving your goals and managing your time effectively. 
 37.  Work offline for deeper focus.
 38.  Stay hydrated to maintain productivity.
 39.  Celebrate small wins to stay motivated.
-40.  Learn shortcuts to [save time](/simplify-your-life-and-save-time).
+40.  Learn shortcuts to [save time](https://selfsaid.30tools.com/simplify-your-life-and-save-time).
 41.  Reduce commitments to free time.
 42.  Use apps to track progress.
 43.  Listen to instrumental music while working.
@@ -84,3 +84,5 @@ With these tips, you can improve your productivity and make the most out of your
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/productivity-advice/

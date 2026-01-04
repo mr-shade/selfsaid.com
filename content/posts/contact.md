@@ -25,7 +25,7 @@ Hello and thank you for visiting SEFFSAID! I’m Seff Bray, the founder of this 
 *   **[TikTok](https://www.tiktok.com/@seffsaid)**
 *   [**Facebook**](https://www.facebook.com/people/SeffSaid/61555854665352/)
 
-**Subscribe to My Newsletter** For an extra sprinkle of motivation, don’t forget to subscribe to my [newsletter](/newsletter). It’s not just a newsletter; it’s a gateway to stories, tips, and quotes that can transform your everyday life into an extraordinary journey. You’ll gain insights and wisdom that can ignite your inner spark and guide you towards your best self.
+**Subscribe to My Newsletter** For an extra sprinkle of motivation, don’t forget to subscribe to my [newsletter](https://selfsaid.30tools.com/newsletter). It’s not just a newsletter; it’s a gateway to stories, tips, and quotes that can transform your everyday life into an extraordinary journey. You’ll gain insights and wisdom that can ignite your inner spark and guide you towards your best self.
 
 **Bookmark & Visit Again** Don’t forget to bookmark SEFFSAID and make it your daily pit stop for inspiration. Every visit brings new perspectives and ideas to help you thrive in life.
 
@@ -52,3 +52,5 @@ Founder, SEFFSAID
 [More](#)
 
 0 Shares
+
+Source: https://selfsaid.30tools.com/contact/

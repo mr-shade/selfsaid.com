@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/ringo-starr-quotes/'
 
 ![Ringo Starr on stage with The Beatles](https://seffsaid.com/wp-content/uploads/Ringo-Starr-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Ringo Starr, the legendary drummer of [The Beatles](/beatles-quotes), has shared plenty of wisdom, humor, and insights over the years. Whether you’re a Beatles fan or just looking for a little inspiration, Ringo’s words have a unique way of striking a chord. This article gathers 50 of his most memorable quotes, covering life, love, and the magic of music. Read more [quotes from famous musicians](/quotes-by-famous-people) here.
+Ringo Starr, the legendary drummer of [The Beatles](https://selfsaid.30tools.com/beatles-quotes), has shared plenty of wisdom, humor, and insights over the years. Whether you’re a Beatles fan or just looking for a little inspiration, Ringo’s words have a unique way of striking a chord. This article gathers 50 of his most memorable quotes, covering life, love, and the magic of music. Read more [quotes from famous musicians](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 1.  “I get by with a little help from my friends.” – Ringo Starr
 2.  “Everything government touches turns to crap.” – Ringo Starr
@@ -44,7 +44,7 @@ Ringo Starr, the legendary drummer of [The Beatles](/beatles-quotes), has shared
 26.  “I was the new boy. It was like joining a new class at school where everybody knows everybody except for you.” – Ringo Starr
 27.  “The Beatles were just four guys that loved each other. That’s all they’ll ever be.” – Ringo Starr
 28.  “Of course I’m ambitious. What’s wrong with that? Otherwise you sleep all day.” – Ringo Starr
-29.  “Liverpool I left you, said goodbye to Madryn Street. I always [followed my heart](/follow-your-heart-quotes), and I never missed a beat.” – Ringo Starr
+29.  “Liverpool I left you, said goodbye to Madryn Street. I always [followed my heart](https://selfsaid.30tools.com/follow-your-heart-quotes), and I never missed a beat.” – Ringo Starr
 30.  “I like Beethoven, especially the poems.” – Ringo Starr
 31.  “Whenever I feel bad, I go to my garden, get down on my knees, and dig. Then I feel alright.” – Ringo Starr
 32.  “The cool part of being an entertainer is getting the opportunity to get your feet wet in all areas.” – Ringo Starr
@@ -60,7 +60,7 @@ Ringo Starr, the legendary drummer of [The Beatles](/beatles-quotes), has shared
 42.  “I’m probably the most emotional person you’ll ever meet.” – Ringo Starr
 43.  “I like crazy people, especially those who don’t see the risk.” – Ringo Starr
 44.  “Music is in my DNA.” – Ringo Starr
-45.  “I don’t have to be in the spotlight, I’m cool with being in the background, as long as [I’m doing something I’m passionate about](/quotes-about-passion-and-purpose).” – Ringo Starr
+45.  “I don’t have to be in the spotlight, I’m cool with being in the background, as long as [I’m doing something I’m passionate about](https://selfsaid.30tools.com/quotes-about-passion-and-purpose).” – Ringo Starr
 46.  “It’s a love that had no past.” – Ringo Starr
 47.  “I’m a musician. I’m not really good at advice. Like, if somebody has a problem, I’m more likely to play them a song than to tell them what to do.” – Ringo Starr
 48.  “I think people who create and write, it actually does flow—just flows from into their head, into their hand, and they write it down. It’s simple.” – Ringo Starr
@@ -80,3 +80,5 @@ Ringo Starr, the legendary drummer of [The Beatles](/beatles-quotes), has shared
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/ringo-starr-quotes/

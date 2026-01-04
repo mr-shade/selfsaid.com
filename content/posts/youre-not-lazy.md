@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/youre-not-lazy/'
 
 ![](https://seffsaid.com/wp-content/uploads/youre-not-lazy.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There are days when everything feels heavy.
 
@@ -76,7 +76,7 @@ Then, choose one place to lower the pressure today. That might be leaving someth
 
 You can also give yourself a checkpoint, a short moment of stillness during the day when you do nothing at all. Just sit, breathe, and let yourself stop. Even a few minutes without stimulation or obligation can help your nervous system begin to reset.
 
-Finally, speak to yourself the way you would speak to someone else who [feels overwhelmed](/why-you-still-feel-overwhelmed). Would you call them lazy? Or would you say, “You’ve been carrying a lot. No wonder you’re tired.”
+Finally, speak to yourself the way you would speak to someone else who [feels overwhelmed](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed). Would you call them lazy? Or would you say, “You’ve been carrying a lot. No wonder you’re tired.”
 
 You deserve the same kindness. There is nothing wrong with you. You are not falling behind. You are coming up for air.
 
@@ -103,3 +103,5 @@ And that is not laziness. That is healing.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/youre-not-lazy/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-be-likeable/'
 
 ![](https://seffsaid.com/wp-content/uploads/Feel-More-At-Ease.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We often think of “likeability” as something we have to earn by being entertaining, agreeable, or impressive. But being truly likeable doesn’t require you to change who you are. It’s about being grounded in yourself, kind in your presence, and open to real connection.
 
@@ -24,7 +24,7 @@ Here are some calm, human ways to feel more connected with others, without tryin
 
 When you’re really there with someone, not half-distracted or rushing to respond, people notice. You don’t need to say all the right things. Just being present makes others feel heard and valued.
 
-[Put your phone away](/phone-free-hour). Let your shoulders drop. Listen without thinking about what to say next. Being present is more magnetic than any polished conversation.
+[Put your phone away](https://selfsaid.30tools.com/phone-free-hour). Let your shoulders drop. Listen without thinking about what to say next. Being present is more magnetic than any polished conversation.
 
 ## 2\. Let go of needing to impress
 
@@ -34,7 +34,7 @@ You don’t have to prove your worth in every interaction. Speak naturally. Laug
 
 ## 3\. Be kind, but not at your own expense
 
-Kindness builds connection. But kindness doesn’t mean always [saying yes](/say-yes-to-yourself) or hiding your feelings. You’re allowed to care about others and still protect your peace.
+Kindness builds connection. But kindness doesn’t mean always [saying yes](https://selfsaid.30tools.com/say-yes-to-yourself) or hiding your feelings. You’re allowed to care about others and still protect your peace.
 
 Being likeable doesn’t mean being selfless. It means being respectful of others and of yourself. When you respect your own boundaries, people often respect you more too.
 
@@ -81,3 +81,5 @@ Pin110
 [More](#)
 
 110 Shares
+
+Source: https://selfsaid.30tools.com/how-to-be-likeable/

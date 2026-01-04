@@ -12,12 +12,12 @@ original_url: 'https://selfsaid.30tools.com/morning-reminders/'
 
 ![](https://seffsaid.com/wp-content/uploads/morning-reminders.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Mornings are quiet beginnings. The light is soft, your thoughts are still unformed, and the world has not yet asked anything of you.  
 In this space, before emails, noise, or urgency, you have a chance to choose your mindset. Not with pressure, but with care.
 
-These are not goals or [affirmations](/morning-affirmations).  
+These are not goals or [affirmations](https://selfsaid.30tools.com/morning-affirmations).  
 They are gentle reminders.  
 Things to hold close when the day feels too big, or when your inner voice begins to rush you forward.
 
@@ -73,3 +73,5 @@ Begin again, with care.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/morning-reminders/

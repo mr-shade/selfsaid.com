@@ -13,11 +13,11 @@ original_url: 'https://selfsaid.30tools.com/how-to-stay-calm-in-stressful-situat
 
 ![Woman meditating on top of a mountain](https://seffsaid.com/wp-content/uploads/how-to-stay-calm.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 No one moves through life untouched by stress. It shows up in small moments, like running late or misplacing something important, and in larger ways, like conflict, pressure, or uncertainty about the future. We can’t remove stress completely, but we can learn to meet it differently. Calm isn’t the absence of pressure, it’s the ability to find steady ground when everything feels uncertain.
 
-When you learn how to return to calm, even briefly, you give your mind and body a chance to reset. Each time you practice it, your sense of control grows a little stronger. Here are a few ways to [stay calm when life feels overwhelming](/calming-quotes).
+When you learn how to return to calm, even briefly, you give your mind and body a chance to reset. Each time you practice it, your sense of control grows a little stronger. Here are a few ways to [stay calm when life feels overwhelming](https://selfsaid.30tools.com/calming-quotes).
 
 ## 1\. Slow Your Breathing
 
@@ -47,7 +47,7 @@ You don’t have to solve everything immediately. Often, calm grows from doing o
 
 In stressful situations, your inner voice often turns harsh. You might hear thoughts like “Why can’t I handle this?” or “I should be stronger.” These words don’t help. They add more pressure when what you really need is reassurance.
 
-When things feel hard, talk to yourself as you would to a close friend. Remind yourself that it’s okay to [feel overwhelmed](/why-you-still-feel-overwhelmed). You’re doing your best. Self-compassion doesn’t make you weaker, it makes you steadier. The kinder your inner voice becomes, the quicker calm returns.
+When things feel hard, talk to yourself as you would to a close friend. Remind yourself that it’s okay to [feel overwhelmed](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed). You’re doing your best. Self-compassion doesn’t make you weaker, it makes you steadier. The kinder your inner voice becomes, the quicker calm returns.
 
 ## 6\. Create Space Before Responding
 
@@ -69,7 +69,7 @@ Calm is a skill. The more often you practice it in quiet times, the easier it is
 
 ## A Final Thought
 
-[Staying calm](/how-to-stay-calm-under-pressure) in stressful situations doesn’t mean you’ll never feel overwhelmed again. It means you’ll recognise when tension rises and know how to meet it with awareness. Some days, calm will feel effortless. Other days, it will take work. Both are normal.
+[Staying calm](https://selfsaid.30tools.com/how-to-stay-calm-under-pressure) in stressful situations doesn’t mean you’ll never feel overwhelmed again. It means you’ll recognise when tension rises and know how to meet it with awareness. Some days, calm will feel effortless. Other days, it will take work. Both are normal.
 
 Start with one small step. Slow your breathing, name what you feel, or simply pause before reacting. Every time you choose calm, you strengthen it. Over time, it becomes less of a practice and more of a way of living, a steady thread running quietly through your days.
 
@@ -86,3 +86,5 @@ Pin455
 [More](#)
 
 456 Shares
+
+Source: https://selfsaid.30tools.com/how-to-stay-calm-in-stressful-situations/

@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/madonna-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Madonna-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Madonna has been a cultural icon for decades, and her words often reflect her bold personality and unapologetic attitude. Below, you’ll find some of her best quotes that capture her unique perspective and wisdom. Read more [quotes from famous people](/quotes-by-famous-people) here.
+Madonna has been a cultural icon for decades, and her words often reflect her bold personality and unapologetic attitude. Below, you’ll find some of her best quotes that capture her unique perspective and wisdom. Read more [quotes from famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 ## 50 Madonna Quotes
 
@@ -36,7 +36,7 @@ Madonna has been a cultural icon for decades, and her words often reflect her bo
 16.  “I always felt a vulnerability about being an artist and not being able to show what I’m really made of.” — Madonna
 17.  “The most important thing is to have a sense of responsibility, commitment, and respect.” — Madonna
 18.  “I always thought I should be treated like a star.” — Madonna
-19.  I want to be like Gandhi and [Martin Luther King](/martin-luther-king-quotes) and [John Lennon](/john-lennon-quotes), but I want to stay alive.” — Madonna
+19.  I want to be like Gandhi and [Martin Luther King](https://selfsaid.30tools.com/martin-luther-king-quotes) and [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes), but I want to stay alive.” — Madonna
 20.  “My work is a reflection of my soul.” — Madonna
 21.  “I won’t be happy till I’m as famous as God.” — Madonna
 22.  “I’m a very disciplined person when it comes to working out.” — Madonna
@@ -82,3 +82,5 @@ Madonna has been a cultural icon for decades, and her words often reflect her bo
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/madonna-quotes/

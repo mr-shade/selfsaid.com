@@ -12,19 +12,19 @@ original_url: 'https://selfsaid.30tools.com/putting-yourself-first/'
 
 ![Putting Yourself First](https://seffsaid.com/wp-content/uploads/putting-yourself-first.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-[Taking care of yourself](/what-taking-care-of-yourself-really-means) isn’t selfish. It’s necessary. But for many, choosing rest, saying no, or making space for personal needs can come with guilt. These quotes are here to help you release that guilt and remind you that your well-being matters too.
+[Taking care of yourself](https://selfsaid.30tools.com/what-taking-care-of-yourself-really-means) isn’t selfish. It’s necessary. But for many, choosing rest, saying no, or making space for personal needs can come with guilt. These quotes are here to help you release that guilt and remind you that your well-being matters too.
 
 This collection is divided into six calm and steady sections. Each one offers a different kind of reassurance that putting yourself first is not only okay, but often essential.
 
 ## When You Need Permission to Prioritise Yourself
 
 1.  “You are allowed to put yourself first.” – Seff Bray
-2.  “Self-care isn’t a reward. It’s how you [stay strong.”](/how-to-stay-strong) – Unknown
+2.  “Self-care isn’t a reward. It’s how you [stay strong.”](https://selfsaid.30tools.com/how-to-stay-strong) – Unknown
 3.  “Choosing yourself isn’t selfish. It’s survival.” – Seff Bray
 4.  “You don’t need to earn rest.” – Seff Bray
-5.  “[Saying yes](/say-yes-to-yourself) to yourself sometimes means saying no to others.” – Unknown
+5.  “[Saying yes](https://selfsaid.30tools.com/say-yes-to-yourself) to yourself sometimes means saying no to others.” – Unknown
 6.  “Your needs matter. Full stop.” – Seff Bray
 7.  “You can’t show up for others if you’ve abandoned yourself.” – Seff Bray
 8.  “It’s okay to take a step back to take care of yourself.” – Unknown
@@ -37,7 +37,7 @@ This collection is divided into six calm and steady sections. Each one offers a 
 12.  “Guilt has no place in self-preservation.” – Unknown
 13.  “It’s okay to put yourself before someone else’s expectations.” – Seff Bray
 14.  “You don’t owe anyone an explanation for your boundaries.” – Unknown
-15.  “[Feeling guilty](/how-to-prioritize-self-care) doesn’t mean you’ve done something wrong.” – Seff Bray
+15.  “[Feeling guilty](https://selfsaid.30tools.com/how-to-prioritize-self-care) doesn’t mean you’ve done something wrong.” – Seff Bray
 16.  “Guilt is a signal, not a sentence.” – Seff Bray
 17.  “You can be kind and still choose yourself.” – Unknown
 18.  “Self-respect begins where people-pleasing ends.” – Seff Bray
@@ -61,7 +61,7 @@ This collection is divided into six calm and steady sections. Each one offers a 
 
 31.  “You don’t need permission to choose yourself.” – Seff Bray
 32.  “Others may not understand your choices. That’s okay.” – Unknown
-33.  “Your life doesn’t need to match other [people’s expectations](/5-things-you-should-stop-expecting-from-other-people).” – Seff Bray
+33.  “Your life doesn’t need to match other [people’s expectations](https://selfsaid.30tools.com/5-things-you-should-stop-expecting-from-other-people).” – Seff Bray
 34.  “You are the only one who can take care of your needs from the inside out.” – Seff Bray
 35.  “Don’t shrink yourself to make others comfortable.” – Unknown
 36.  “Choosing yourself may disappoint others, but it will strengthen you.” – Seff Bray
@@ -109,3 +109,5 @@ This collection is divided into six calm and steady sections. Each one offers a 
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/putting-yourself-first/

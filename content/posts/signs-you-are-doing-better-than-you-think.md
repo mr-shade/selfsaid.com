@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/signs-you-are-doing-better-than-you-
 
 ![](https://seffsaid.com/wp-content/uploads/closer-to-okay.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 It’s easy to feel like you’re falling behind. We compare ourselves to others, measure our worth by our productivity, and forget that growth often looks like quiet, steady effort. But even if your progress doesn’t feel obvious, it’s still real.
 
@@ -46,7 +46,7 @@ Feeling is not a weakness, it’s a sign of strength. You’re building emotiona
 
 ## 5\. You show up for yourself in small but steady ways
 
-You [drink water](/grounding-power-of-drinking-water) when you remember. You move your body, even just a little. You choose nourishing food more often than not. You check in with yourself. You say kind things in your mind.
+You [drink water](https://selfsaid.30tools.com/grounding-power-of-drinking-water) when you remember. You move your body, even just a little. You choose nourishing food more often than not. You check in with yourself. You say kind things in your mind.
 
 These small, gentle acts of care might not feel like much, but they add up. They signal to your nervous system that you’re safe, and to your spirit that you’re loved. Every tiny act of kindness toward yourself matters.
 
@@ -85,3 +85,5 @@ You’re already on your way.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/signs-you-are-doing-better-than-you-think/

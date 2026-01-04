@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/jack-antonoff-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Jack-Antonoff-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 These Jack Antonoff quotes encompass themes of vulnerability, creativity, authenticity, self-discovery, emotional connection, the power of art and music, embracing imperfections, and the importance of staying true to oneself.
 
@@ -69,7 +69,7 @@ These Jack Antonoff quotes encompass themes of vulnerability, creativity, authen
 49.  “I think we spend too much time trying to fit in, when we should be embracing what makes us different.” — Jack Antonoff
 50.  “The most fulfilling thing in the world is creating something that moves people.” — Jack Antonoff
 
-Read more quotes from [famous people](/quotes-by-famous-people) here.
+Read more quotes from [famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fjack-antonoff-quotes%2F)
 
@@ -84,3 +84,5 @@ Read more quotes from [famous people](/quotes-by-famous-people) here.
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/jack-antonoff-quotes/

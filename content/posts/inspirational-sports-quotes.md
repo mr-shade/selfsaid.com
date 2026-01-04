@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/inspirational-sports-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Inspirational-Sports-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Inspirational sports quotes hold a unique and powerful position. They are not mere letters and sounds; they embody perseverance, the triumph of will over adversity, and the beauty of pursuing excellence. The quotes below are a collection of wisdom gleaned from the best and brightest in the world of athletics.
 
 1.  “You miss 100% of the shots you don’t take.” – Wayne Gretzky
 2.  “The only way to prove that you’re a good sport is to lose.” – Ernie Banks
-3.  “Never say never because limits, like fears, are often just an illusion.” – [Michael Jordan](/michael-jordan-quotes)
+3.  “Never say never because limits, like fears, are often just an illusion.” – [Michael Jordan](https://selfsaid.30tools.com/michael-jordan-quotes)
 4.  “It’s hard to beat a person who never gives up.” – Babe Ruth
 5.  “The strength of the team is each individual member. The strength of each member is the team.” – Phil Jackson
 6.  “Winning isn’t everything, it’s the only thing.” – Vince Lombardi
@@ -39,7 +39,7 @@ Inspirational sports quotes hold a unique and powerful position. They are not me
 21.  “What you lack in talent can be made up with desire, hustle and giving 110% all the time.” – Don Zimmer
 22.  “Wisdom is always an overmatch for strength.” – Phil Jackson
 23.  “It’s not the will to win that matters—everyone has that. It’s the will to prepare to win that matters.” – Paul Bryant
-24.  “The mind is the limit. As long as the mind can envision the fact that you can do something, you can do it.” – [Arnold Schwarzenegger](/arnold-schwarzenegger-quotes)
+24.  “The mind is the limit. As long as the mind can envision the fact that you can do something, you can do it.” – [Arnold Schwarzenegger](https://selfsaid.30tools.com/arnold-schwarzenegger-quotes)
 25.  “A trophy carries dust. Memories last forever.” – Mary Lou Retton
 26.  “If you can’t outplay them, outwork them.” – Ben Hogan
 27.  “The principle is competing against yourself. It’s about self-improvement, about being better than you were the day before.” – Steve Young
@@ -66,7 +66,7 @@ Inspirational sports quotes hold a unique and powerful position. They are not me
 48.  “The best way to predict your future is to create it.” – Abraham Lincoln
 49.  “You are never really playing an opponent. You are playing yourself.” – Arthur Ashe
 50.  “You can’t get much done in life if you only work on the days when you feel good.” – Jerry West
-51.  The man who has no imagination has no wings.” – [Muhammad Ali](/muhammad-ali-quotes)
+51.  The man who has no imagination has no wings.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 52.  “I’ve missed more than 9000 shots in my career. I’ve lost almost 300 games. 26 times I’ve been trusted to take the game winning shot and missed. I’ve failed over and over and over again in my life. And that is why I succeed.” – Michael Jordan
 53.  “Only he who can see the invisible can do the impossible.” – Frank L. Gaines
 54.  “You have to expect things of yourself before you can do them.” – Michael Jordan
@@ -128,7 +128,7 @@ Inspirational sports quotes hold a unique and powerful position. They are not me
 110.  “The only way to prove that you’re a good sport is to lose.” – Ernie Banks
 111.  “You have to expect things of yourself before you can do them.” – Michael Jordan
 112.  “It’s not whether you get knocked down; it’s whether you get up.” – Vince Lombardi
-113.  The man who has no imagination has no wings.” – [Muhammad Ali](/muhammad-ali-quotes)
+113.  The man who has no imagination has no wings.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 114.  “You miss 100% of the shots you don’t take.” – Wayne Gretzky
 115.  “Winners never quit and quitters never win.” – Vince Lombardi
 116.  “It’s not the will to win that matters—everyone has that. It’s the will to prepare to win that matters.” – Paul Bryant
@@ -146,7 +146,7 @@ Inspirational sports quotes hold a unique and powerful position. They are not me
 128.  “I can accept failure, everyone fails at something. But I can’t accept not trying.” – Michael Jordan
 129.  “The road to Easy Street goes through the sewer.” – John Madden
 130.  “The only one who can tell you ‘you can’t’ is you. And you don’t have to listen.” – Nike
-131.  “You can motivate by fear, and you can motivate by reward. But both those methods are only temporary. The only lasting thing is [self-motivation.”](/self-motivation-motivate-yourself-today) – Homer Rice
+131.  “You can motivate by fear, and you can motivate by reward. But both those methods are only temporary. The only lasting thing is [self-motivation.”](https://selfsaid.30tools.com/self-motivation-motivate-yourself-today) – Homer Rice
 132.  “One man practicing sportsmanship is far better than 50 preaching it.” – Knute Rockne
 133.  “An athlete cannot run with money in his pockets. He must run with hope in his heart and dreams in his head.” – Emil Zatopek
 134.  “If you can’t outplay them, outwork them.” – Ben Hogan
@@ -164,7 +164,7 @@ Inspirational sports quotes hold a unique and powerful position. They are not me
 146.  “The difference between a successful person and others is not a lack of strength, not a lack of knowledge, but rather a lack in will.” – Vince Lombardi
 147.  “The strength of the group is the strength of the leaders.” – Vince Lombardi
 148.  “It is not the strongest of the species that survive, nor the most intelligent, but the one most responsive to change.” – Charles Darwin
-149.  Continuous effort — not strength or intelligence — is the key to unlocking our potential.” – [Winston Churchill](/winston-churchill-quotes)
+149.  Continuous effort — not strength or intelligence — is the key to unlocking our potential.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 150.  “Good is not good when better is expected.” – Vin Scully
 151.  “The only way to prove that you’re a good sport is to lose.” – Ernie Banks
 152.  “You can’t put a limit on anything. The more you dream, the farther you get.” – Michael Phelps
@@ -217,7 +217,7 @@ Inspirational sports quotes hold a unique and powerful position. They are not me
 199.  “I don’t count my sit-ups; I only start counting when it starts hurting because they’re the only ones that count.” – Muhammad Ali
 200.  “You have to believe in yourself when no one else does – that makes you a winner right there.” – Venus Williams
 
-If you like sports quotes, you might like to check out this collection of [Inky Johnson quotes](/inky-johnson-quotes). Powerful lessons on resilience, hard work, and personal growth from a [motivational quotes](/30-motivational-quotes-you-must-know) sports icon. Get inspired!
+If you like sports quotes, you might like to check out this collection of [Inky Johnson quotes](https://selfsaid.30tools.com/inky-johnson-quotes). Powerful lessons on resilience, hard work, and personal growth from a [motivational quotes](https://selfsaid.30tools.com/30-motivational-quotes-you-must-know) sports icon. Get inspired!
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Finspirational-sports-quotes%2F)
 
@@ -232,3 +232,5 @@ If you like sports quotes, you might like to check out this collection of [Inky 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/inspirational-sports-quotes/

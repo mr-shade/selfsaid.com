@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-perseverance/'
 
 ![Quotes About Perseverance](https://seffsaid.com/wp-content/uploads/quotes-about-perseverance.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Welcome to this collection of 135 quotes about perseverance and never giving up. These words are more than just sentences; they’re powerful reminders of the strength you possess to face challenges head-on. Each one of these perseverance quotes is a testament to the unyielding human spirit, encouraging you to keep pushing forward and achieve your [personal best](/michael-jordan-quotes), no matter the obstacles. They emphasize the importance of [being strong](/quotes-about-being-strong), resilient, and persistent.
+Welcome to this collection of 135 quotes about perseverance and never giving up. These words are more than just sentences; they’re powerful reminders of the strength you possess to face challenges head-on. Each one of these perseverance quotes is a testament to the unyielding human spirit, encouraging you to keep pushing forward and achieve your [personal best](https://selfsaid.30tools.com/michael-jordan-quotes), no matter the obstacles. They emphasize the importance of [being strong](https://selfsaid.30tools.com/quotes-about-being-strong), resilient, and persistent.
 
 1.  “Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.” – Thomas Edison
 2.  “I think the key is for women not to set any limits.” – Martina Navratilova
-3.  Continuous effort – not strength or intelligence – is the key to unlocking our potential.” – [Winston Churchill](/winston-churchill-quotes)
+3.  Continuous effort – not strength or intelligence – is the key to unlocking our potential.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 4.  “The road to success is dotted with many tempting parking spaces.” – Will Rogers
 5.  “In the realm of ideas everything depends on enthusiasm… in the real world all rests on perseverance.” – Johann Wolfgang von Goethe
 6.  “Fall seven times, stand up eight.” – Japanese Proverb
@@ -37,7 +37,7 @@ Welcome to this collection of 135 quotes about perseverance and never giving up.
 19.  “Life is not easy for any of us. But what of that? We must have perseverance and above all confidence in ourselves.” – Marie Curie
 20.  “Great difficulties may be surmounted by patience and perseverance.” – Abigail Adams
 21.  “A river cuts through rock, not because of its power, but because of its persistence.” – Jim Watkins
-22.  Perseverance can [overcome all obstacles](/proven-ways-to-overcome-obstacles). Even the laws of nature cannot stop it.” – Jeffrey Fry
+22.  Perseverance can [overcome all obstacles](https://selfsaid.30tools.com/proven-ways-to-overcome-obstacles). Even the laws of nature cannot stop it.” – Jeffrey Fry
 23.  “There is no armor like perseverance.” – Sogyal Rinpoche
 24.  “It always seems impossible until it’s done.” – Nelson Mandela
 25.  “Many of life’s failures are people who did not realize how close they were to success when they gave up.” – Thomas A. Edison
@@ -47,13 +47,13 @@ Welcome to this collection of 135 quotes about perseverance and never giving up.
 29.  “The key to everything is patience. You get the chicken by hatching the egg, not by smashing it.” – Arnold H. Glasow
 30.  “I am a great believer in luck, and I find the harder I work, the more I have of it.” – Thomas Jefferson
 31.  “If you can dream it, you can do it.” – Walt Disney
-32.  I’m convinced that about half of what separates successful entrepreneurs from the non-successful ones is pure perseverance.” – [Steve Jobs](/steve-jobs-quotes)
+32.  I’m convinced that about half of what separates successful entrepreneurs from the non-successful ones is pure perseverance.” – [Steve Jobs](https://selfsaid.30tools.com/steve-jobs-quotes)
 33.  “Perseverance is an active principle, and cannot continue to operate but under the influence of desire.” – William Godwin
 34.  “Never, never, never give up.” – Winston Churchill
 35.  “Success is not the absence of failure; it’s the persistence through failure.” – Aisha Tyler
 36.  “Perseverance is not a long race; it is many short races one after the other.” – Walter Elliott
 37.  “The only limit to our realization of tomorrow will be our doubts of today.” – Franklin D. Roosevelt
-38.  Just because you fail once doesn’t mean you’re gonna fail at everything.” – [Marilyn Monroe](/marilyn-monroe-quotes)
+38.  Just because you fail once doesn’t mean you’re gonna fail at everything.” – [Marilyn Monroe](https://selfsaid.30tools.com/marilyn-monroe-quotes)
 39.  “Persistence is to the character of man as carbon is to steel.” – Napoleon Hill
 40.  “It’s not that I’m so smart; I just stay with problems longer.” – Albert Einstein
 41.  “The secret of our success is that we never, never give up.” – Wilma Mankiller
@@ -165,3 +165,5 @@ Welcome to this collection of 135 quotes about perseverance and never giving up.
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-perseverance/

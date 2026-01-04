@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/marilyn-monroe-quotes/'
 
 ![Marilyn Monroe](https://seffsaid.com/wp-content/uploads/Marilyn-Monroe-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Marilyn Monroe remains a captivating figure decades after her time, known not just for her glamour but also for her insightful reflections on life and love. Here are 50 quotes from Monroe that shed light on her personal philosophy and the wisdom she gained through her experiences. These quotes also offer a glimpse into her thoughts on [relationships](/how-to-make-long-distance-relationships-work), self-worth, and navigating the challenges of everyday life.
+Marilyn Monroe remains a captivating figure decades after her time, known not just for her glamour but also for her insightful reflections on life and love. Here are 50 quotes from Monroe that shed light on her personal philosophy and the wisdom she gained through her experiences. These quotes also offer a glimpse into her thoughts on [relationships](https://selfsaid.30tools.com/how-to-make-long-distance-relationships-work), self-worth, and navigating the challenges of everyday life.
 
 1.  “Imperfection is beauty, madness is genius and it’s better to be absolutely ridiculous than absolutely boring.” – Marilyn Monroe
 2.  “Give a girl the right shoes, and she can conquer the world.” – Marilyn Monroe
@@ -36,13 +36,13 @@ Marilyn Monroe remains a captivating figure decades after her time, known not ju
 18.  “Just because you fail once doesn’t mean you’re gonna fail at everything.” – Marilyn Monroe
 19.  “The real lover is the man who can thrill you by kissing your forehead or smiling into your eyes or just staring into space.” – Marilyn Monroe
 20.  “I don’t mind living in a man’s world, as long as I can be a woman in it.” – Marilyn Monroe
-21.  “[Success](/why-some-people-are-more-successful-than-others) makes so many people hate you. I wish it wasn’t that way. It would be wonderful to enjoy success without seeing envy in the eyes of those around you.” – Marilyn Monroe
+21.  “[Success](https://selfsaid.30tools.com/why-some-people-are-more-successful-than-others) makes so many people hate you. I wish it wasn’t that way. It would be wonderful to enjoy success without seeing envy in the eyes of those around you.” – Marilyn Monroe
 22.  “Ever notice how ‘What the hell’ is always the right decision to make?” – Marilyn Monroe
 23.  “Women who seek to be equal with men lack ambition.” – Marilyn Monroe
 24.  “I don’t want to make money. I just want to be wonderful.” – Marilyn Monroe
 25.  “It’s all make believe, isn’t it?” – Marilyn Monroe
 26.  “If I’m a star, then the people made me a star.” – Marilyn Monroe
-27.  “[Dogs](/7-amazing-benefits-of-adopting-a-dog) never bite me. Just humans.” – Marilyn Monroe
+27.  “[Dogs](https://selfsaid.30tools.com/7-amazing-benefits-of-adopting-a-dog) never bite me. Just humans.” – Marilyn Monroe
 28.  “I don’t stop when I’m tired. I only stop when I’m done.” – Marilyn Monroe
 29.  “Sex is a part of nature. I go along with nature.” – Marilyn Monroe
 30.  “I learned to walk as a baby, and I haven’t had a lesson since.” – Marilyn Monroe
@@ -67,7 +67,7 @@ Marilyn Monroe remains a captivating figure decades after her time, known not ju
 49.  “You believe lies so you eventually learn to trust no one but yourself.” – Marilyn Monroe
 50.  “I always have a full-length mirror next to the camera when I’m doing publicity stills. That way, I know how I look.” – Marilyn Monroe
 
-Enjoyed these quotes? You can read more [quotes from famous people](/quotes-by-famous-people) here!
+Enjoyed these quotes? You can read more [quotes from famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here!
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmarilyn-monroe-quotes%2F)
 
@@ -82,3 +82,5 @@ Enjoyed these quotes? You can read more [quotes from famous people](/quotes-by-f
 [More](#)
 
 7 Shares
+
+Source: https://selfsaid.30tools.com/marilyn-monroe-quotes/

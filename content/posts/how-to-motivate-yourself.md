@@ -10,13 +10,13 @@ original_url: 'https://selfsaid.30tools.com/how-to-motivate-yourself/'
 
 ![Motivated man running a race](https://seffsaid.com/wp-content/uploads/How-To-Motivate-Yourself.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Do you ever wake up feeling that you simply can’t face the day? Maybe you don’t feel like doing anything but you know that spending the day sitting on the couch watching TV just isn’t an option.
 
 Sometimes it can be hard to get ourselves up and out of a chair, working through our tasks and achieving everything we want to achieve. No matter how strong a work ethic we have, some days we just need a little help to get going. It’s at these times you need to know how to motivate yourself.
 
-A lack of motivation can occur for a number of reasons such as boredom, being overwhelmed by a large workload, lack of sleep, personal issues, lack of direction or a failure to set goals. Even the prospect of venturing out to an office on a cold [rainy day](/rainy-day-quotes) can quickly dampen our enthusiasm. This is when we need a few tricks to get us out of a slump and back on our feet. Here are ten [self-motivation techniques](/12-proven-self-motivation-techniques) to help motivate yourself back to work.
+A lack of motivation can occur for a number of reasons such as boredom, being overwhelmed by a large workload, lack of sleep, personal issues, lack of direction or a failure to set goals. Even the prospect of venturing out to an office on a cold [rainy day](https://selfsaid.30tools.com/rainy-day-quotes) can quickly dampen our enthusiasm. This is when we need a few tricks to get us out of a slump and back on our feet. Here are ten [self-motivation techniques](https://selfsaid.30tools.com/12-proven-self-motivation-techniques) to help motivate yourself back to work.
 
 ## 1\. Focus on one goal at a time.
 
@@ -26,7 +26,7 @@ Working on more than one task at a time can be intimidating, tiring and can curb
 
 Preparing to undertake a large overwhelming project can make it feel like it’s a good time to stop work and go do something more fun! You know you should get started but you just can’t quite motivate yourself to begin. It’s all too easy to lose sight of your goal when you are being psychologically crushed in the details of how to achieve your objective. The manner in which a task is presented has a significant impact on how motivated you will be to take action.
 
-The solution? Break the task down into [small manageable steps](/how-to-break-a-big-task-into-small-steps). When a large project may appear completely overwhelming, breaking it down into smaller steps can be calming and make it seem less intimidating and far more manageable. Try it and you’ll soon find your motivation increasing.
+The solution? Break the task down into [small manageable steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps). When a large project may appear completely overwhelming, breaking it down into smaller steps can be calming and make it seem less intimidating and far more manageable. Try it and you’ll soon find your motivation increasing.
 
 ## 3\. Listen to inspirational music.
 
@@ -34,7 +34,7 @@ This is a simple technique but can be very effective, as long as your work allow
 
 ## 4\. Write down your goals.
 
-It’s not easy to motivate yourself if you’re not clear on your objectives. Get yourself a sheet of paper and write down your goals and how you are going to achieve them. Having a plan of action can [focus your mind](/how-i-cultivated-a-focused-state-of-mind) and motivate you to get started.
+It’s not easy to motivate yourself if you’re not clear on your objectives. Get yourself a sheet of paper and write down your goals and how you are going to achieve them. Having a plan of action can [focus your mind](https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind) and motivate you to get started.
 
 ## 5\. Keep track of your progress.
 
@@ -79,3 +79,5 @@ Try these techniques until you find your personal formula for self-motivation. Y
 [More](#)
 
 10 Shares
+
+Source: https://selfsaid.30tools.com/how-to-motivate-yourself/

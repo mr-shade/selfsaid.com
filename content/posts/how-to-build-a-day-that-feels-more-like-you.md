@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-build-a-day-that-feels-more-l
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-build-a-day.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Some days don’t feel like yours. They move quickly, filled with noise, pressure, and expectations. You get through them, but by the end, it’s hard to remember what you needed, wanted, or even felt.
 
@@ -35,9 +35,9 @@ And then: what would feel more like me?
 
 This doesn’t mean designing the perfect routine. It means creating moments that reflect who you are and what helps you feel steady. These can be small things. A five-minute pause with a warm drink. A quiet start to the morning before anyone needs you. Moving your body in a way that feels good instead of forcing yourself through something you hate.
 
-It could be turning your [phone off for one hour](/phone-free-hour).  
+It could be turning your [phone off for one hour](https://selfsaid.30tools.com/phone-free-hour).  
 Eating lunch at the table instead of the screen.  
-Playing music that makes you [feel calm](/calming-quotes) or clear or comforted.  
+Playing music that makes you [feel calm](https://selfsaid.30tools.com/calming-quotes) or clear or comforted.  
 Saying no to something that drains you, even if just once.
 
 None of this is about doing more. It’s about doing things that feel right for you. Things that bring you back to yourself, even briefly.
@@ -68,3 +68,5 @@ Because even one honest moment in your day can make the rest of it feel differen
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/how-to-build-a-day-that-feels-more-like-you/

@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-li
 
 ![](https://seffsaid.com/wp-content/uploads/positive-outlook-in-life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Did you know that there are numerous health benefits to having a positive outlook in life? Optimists have been shown to have fewer strokes, lower levels of cardiovascular disease, [better sleep](/how-to-fall-asleep-fast), and a longer life span than pessimists.
+Did you know that there are numerous health benefits to having a positive outlook in life? Optimists have been shown to have fewer strokes, lower levels of cardiovascular disease, [better sleep](https://selfsaid.30tools.com/how-to-fall-asleep-fast), and a longer life span than pessimists.
 
 In recent studies, self-professed optimists had 35% fewer strokes and lived up to 15% longer on average. On the other hand, the dangers of pessimism include career impairment, poor general health, and earlier death.
 
-But can we change our disposition and outlook? Can we actually learn [how to be optimistic](/how-to-be-optimistic)? Or are we born or made the way we are with no choice for the future?
+But can we change our disposition and outlook? Can we actually learn [how to be optimistic](https://selfsaid.30tools.com/how-to-be-optimistic)? Or are we born or made the way we are with no choice for the future?
 
 Well, it’s looking increasingly likely that, with a little effort, we can all raise our levels of optimism. Thereby increasing our general well-being and helping our health in numerous ways. Below you’ll find 5 powerful strategies that you start implementing into your life to start cultivating and keeping a positive outlook in life today.
 
@@ -32,11 +32,11 @@ Versions vary – in one study participants were then asked to write this down a
 
 Increasing positiveness can be as simple as keeping a journal. It has to be a special kind of journal and includes only positive thoughts. Noting at the end of each day at least three things that went well and anything for which you feel grateful.
 
-This has the effect of training the brain to look for the positive and ignore the negative. [An attitude of gratitude](/how-to-cultivate-an-attitude-of-gratitude) journal is the perfect solution, spending at least five minutes a day focusing on and writing about all the good things that happened in your day and in life in general.
+This has the effect of training the brain to look for the positive and ignore the negative. [An attitude of gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) journal is the perfect solution, spending at least five minutes a day focusing on and writing about all the good things that happened in your day and in life in general.
 
 ## 3\. Use Optimistic Affirmations
 
-The use and repetition of [positive affirmations](/100-positive-affirmations-that-will-change-your-life) during the day have proved effective. Simply choose a mantra that resonates for you and your goals and repeat it regularly throughout the day, aloud or silently in your mind. Some examples of such mantras are:
+The use and repetition of [positive affirmations](https://selfsaid.30tools.com/100-positive-affirmations-that-will-change-your-life) during the day have proved effective. Simply choose a mantra that resonates for you and your goals and repeat it regularly throughout the day, aloud or silently in your mind. Some examples of such mantras are:
 
 *   Every day may not be good but there is something good in every day.
 *   I start this day with optimism. I am happy, confident, and optimistic.
@@ -60,7 +60,7 @@ When you are dealing with adversity or any kind of setback, check your self-talk
 
 An [attention training tool](https://baldwinlab.mcgill.ca/labmaterials/materials_BBC_2.html) in the form of an online game was developed and tested to see its effect on optimism. The game consisted of looking at rows of photos of faces, most scowling or unfriendly in some way, and finding as quickly as possible the one single smiling, accepting face.
 
-In doing this, the mind was trained to drag attention away from the frowning faces, building a mental habit of moving quickly away from the negative and seeking out the positive. A hundred or more trials would make the habit automatic so that rejection and criticism could be [let go of](/things-to-let-go-of-before-your-next-birthday) more easily.
+In doing this, the mind was trained to drag attention away from the frowning faces, building a mental habit of moving quickly away from the negative and seeking out the positive. A hundred or more trials would make the habit automatic so that rejection and criticism could be [let go of](https://selfsaid.30tools.com/things-to-let-go-of-before-your-next-birthday) more easily.
 
 ## Final Thoughts
 
@@ -79,3 +79,5 @@ Pin10
 [More](#)
 
 10 Shares
+
+Source: https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-life/

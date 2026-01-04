@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/powerful-karma-quotes/'
 
 ![Statue of Buddha symbolizing Karma](https://seffsaid.com/wp-content/uploads/karma-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Karma, the belief that what goes around comes around, impacts every aspect of your life. It’s a simple yet powerful concept that teaches us the importance of our actions, thoughts, and words.
 
-This collection of 96 karma quotes is here to inspire you to [live your best life](/how-to-live-your-best-life) full of positive actions and good vibes. [Each quote has been carefully picked to make you think](/quotes-that-make-you-think), to motivate you, and to encourage you to make choices that lead to a happier, more fulfilling life.
+This collection of 96 karma quotes is here to inspire you to [live your best life](https://selfsaid.30tools.com/how-to-live-your-best-life) full of positive actions and good vibes. [Each quote has been carefully picked to make you think](https://selfsaid.30tools.com/quotes-that-make-you-think), to motivate you, and to encourage you to make choices that lead to a happier, more fulfilling life.
 
-So, whether you need [a pick-me-up for a tough day](/pick-me-up-quotes-when-feeling-down) or are looking for a sign to make a positive change, let these karma quotes be your nudge towards living your very best life.
+So, whether you need [a pick-me-up for a tough day](https://selfsaid.30tools.com/pick-me-up-quotes-when-feeling-down) or are looking for a sign to make a positive change, let these karma quotes be your nudge towards living your very best life.
 
 ## Karma Quotes
 
@@ -132,3 +132,5 @@ So, whether you need [a pick-me-up for a tough day](/pick-me-up-quotes-when-feel
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/powerful-karma-quotes/

@@ -12,15 +12,15 @@ original_url: 'https://selfsaid.30tools.com/struggling-to-focus-what-finally-wor
 
 ![](https://seffsaid.com/wp-content/uploads/struggling-to-focus.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-There was a time when I thought focus meant forcing myself to work harder. I believed that if I just tried more, pushed more, or made longer [to-do lists](/too-many-to-dos-how-to-get-through-your-list), I would be able to stay on track. But instead, the harder I tried, the more my mind wandered. By the end of the day, I felt drained and guilty, wondering why I couldn’t seem to stay present with what mattered.
+There was a time when I thought focus meant forcing myself to work harder. I believed that if I just tried more, pushed more, or made longer [to-do lists](https://selfsaid.30tools.com/too-many-to-dos-how-to-get-through-your-list), I would be able to stay on track. But instead, the harder I tried, the more my mind wandered. By the end of the day, I felt drained and guilty, wondering why I couldn’t seem to stay present with what mattered.
 
 If you have been struggling to focus, I want to share what finally started to make a difference for me. It wasn’t a big productivity system or a complicated method. It was a series of small changes that worked together to make focusing easier, even on the busiest days.
 
 The first shift was lowering background noise. I used to keep multiple tabs open, notifications switched on, and my phone within arm’s reach. Every ping, every unread badge, every open screen was a tiny pull away from what I was doing. I began closing what I wasn’t using, putting my phone in another room, and keeping just one tab open when I worked. It felt strange at first, but my mind began to feel quieter.
 
-The second shift was setting shorter focus times. I stopped telling myself I had to work for hours [without a break](/why-taking-breaks-is-part-of-the-work). Instead, I started with twenty to thirty minutes at a time. Knowing a pause was coming helped me commit more fully to the task in front of me. Often, I found I could keep going once I got started.
+The second shift was setting shorter focus times. I stopped telling myself I had to work for hours [without a break](https://selfsaid.30tools.com/why-taking-breaks-is-part-of-the-work). Instead, I started with twenty to thirty minutes at a time. Knowing a pause was coming helped me commit more fully to the task in front of me. Often, I found I could keep going once I got started.
 
 The third shift was paying attention to when I worked best. I realised my focus was naturally stronger in the morning, so I began reserving that time for my most important work. Emails, errands, and less demanding tasks moved to the afternoon. Matching my work to my natural energy made everything feel less like a fight.
 
@@ -43,3 +43,5 @@ Focus is not about willpower alone. It is about making it easier for your mind t
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/struggling-to-focus-what-finally-worked/

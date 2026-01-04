@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/7-ways-to-be-a-happier-person/'
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-be-happy.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Most of us struggle at some time with the conundrum of how to be happy. There are things that happy people seem to know, just simple things that we really should _all_ know.
 
@@ -20,7 +20,7 @@ The truth is that we _do_ know, we just forget! There’s no big secret, just a 
 
 ## 1\. Show gratitude
 
-A simple thank you, to God, the sky, Mother Earth, to the universe or to no one in particular, is all it takes to ramp up your happiness levels. The simple gesture of [gratitude](/how-to-cultivate-an-attitude-of-gratitude) is a sure way to make you notice the small but wonderful things that happen hundreds of times each day  
+A simple thank you, to God, the sky, Mother Earth, to the universe or to no one in particular, is all it takes to ramp up your happiness levels. The simple gesture of [gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) is a sure way to make you notice the small but wonderful things that happen hundreds of times each day  
   
 A smile from your friendly neighbour, a rainbow on a cloudy day, a bird on your windowsill, the colour of the trees, the stars in the sky. Happy people know that we’re all blessed and lucky in special ways and that acknowledging it will bring more blessings and more luck their way.
 
@@ -28,17 +28,17 @@ A smile from your friendly neighbour, a rainbow on a cloudy day, a bird on your 
 
 The world is over-flowing with opportunities, and happy people know this deep in their souls. To take an optimistic spin on every occurrence is not always easy but certainly a wonderful habit to cultivate.
 
-When things go wrong, some see failure, some see an opportunity to learn and grown. Decide that your glass is always half full, never half empty and see how opportunities and happiness multiply! Discover ten easy ways to boost your optimism in my article on [how to be optimistic](/how-to-be-optimistic).
+When things go wrong, some see failure, some see an opportunity to learn and grown. Decide that your glass is always half full, never half empty and see how opportunities and happiness multiply! Discover ten easy ways to boost your optimism in my article on [how to be optimistic](https://selfsaid.30tools.com/how-to-be-optimistic).
 
 ## 3\. Look after yourself
 
-There’s an expression that if you don’t look after yourself then no one else will. While not entirely true, it really is important that you love yourself by getting enough exercise, enough fun and relaxation, [sleeping well](/how-to-fall-asleep-fast) and eating healthily. These are gifts you can give yourself each and every day to help you relearn how to be happy, investments in your present and future that will pay off with massive increases in self-esteem, energy and happiness.
+There’s an expression that if you don’t look after yourself then no one else will. While not entirely true, it really is important that you love yourself by getting enough exercise, enough fun and relaxation, [sleeping well](https://selfsaid.30tools.com/how-to-fall-asleep-fast) and eating healthily. These are gifts you can give yourself each and every day to help you relearn how to be happy, investments in your present and future that will pay off with massive increases in self-esteem, energy and happiness.
 
 ## 4\. Slow down
 
 If you’re rushing through life, multi-tasking and trying to get everything done as fast as possible, your life is flying past you and you’re simply not appreciating each beautiful moment of it.
 
-Take a few deep breaths. Slow down. Look around, smell the air, listen for the tiniest sounds and get into the present moment. You’ll free yourself from the stress of rushing and find a deeper satisfaction and a [happy life](/how-to-live-a-happy-life).
+Take a few deep breaths. Slow down. Look around, smell the air, listen for the tiniest sounds and get into the present moment. You’ll free yourself from the stress of rushing and find a deeper satisfaction and a [happy life](https://selfsaid.30tools.com/how-to-live-a-happy-life).
 
 ## 5\. Enjoy absorbing hobbies
 
@@ -73,3 +73,5 @@ Pin1.87K
 [More](#)
 
 1.87K Shares
+
+Source: https://selfsaid.30tools.com/7-ways-to-be-a-happier-person/

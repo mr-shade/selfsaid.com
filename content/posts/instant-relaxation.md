@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/instant-relaxation/'
 
 ![](https://seffsaid.com/wp-content/uploads/instant-relaxation.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When your day feels non-stop, it can be hard to slow down. Stress builds, your mind keeps running, and your body feels heavy. The idea of rest can seem far away, but calm is never out of reach. Sometimes all it takes is a small shift, a few minutes, or a simple practice to bring you back to balance.
 
@@ -32,7 +32,7 @@ Stand up, roll your shoulders, and gently stretch your arms and back. After hour
 
 ## 4\. Drink a glass of water
 
-Hydration refreshes both mind and body. Stress can leave you feeling drained, and even slight dehydration adds to that feeling. Take a slow sip, notice the coolness, and let it remind you that small [acts of care](/simple-acts-of-kindness-that-can-make-us-live-longer) matter.
+Hydration refreshes both mind and body. Stress can leave you feeling drained, and even slight dehydration adds to that feeling. Take a slow sip, notice the coolness, and let it remind you that small [acts of care](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) matter.
 
 ## 5\. Make a cup of herbal tea
 
@@ -76,7 +76,7 @@ Rub your shoulders, neck, or temples with gentle pressure. Use small circular mo
 
 ## Final Thought
 
-Relaxation does not have to wait for a holiday, a weekend, or the perfect setting. Calm can be created in small ways, even on busy days. Try one or two of these hacks the next time you [feel overwhelmed](/calming-quotes). Small pauses like these remind you that rest is always possible, and that you can choose calm even in the middle of stress.
+Relaxation does not have to wait for a holiday, a weekend, or the perfect setting. Calm can be created in small ways, even on busy days. Try one or two of these hacks the next time you [feel overwhelmed](https://selfsaid.30tools.com/calming-quotes). Small pauses like these remind you that rest is always possible, and that you can choose calm even in the middle of stress.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Finstant-relaxation%2F)
 
@@ -91,3 +91,5 @@ Relaxation does not have to wait for a holiday, a weekend, or the perfect settin
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/instant-relaxation/

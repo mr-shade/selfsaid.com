@@ -12,17 +12,17 @@ original_url: 'https://selfsaid.30tools.com/slay-the-day/'
 
 ![](https://seffsaid.com/wp-content/uploads/slay-the-day.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Everyone has experienced it at some point—delays that throw off plans and cause frustration. Whether it’s procrastination or external factors slowing things down, delay can hinder progress. Here are 18 strategies to tackle delays and keep moving forward and slay the day, every day:
 
 ## 1\. Break Tasks into Smaller Steps
 
-Tackling large tasks can feel overwhelming, which can lead to delays. [Break your goals down into smaller, manageable steps](/how-to-break-a-big-task-into-small-steps). This makes progress feel more achievable and helps you maintain focus.
+Tackling large tasks can feel overwhelming, which can lead to delays. [Break your goals down into smaller, manageable steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps). This makes progress feel more achievable and helps you maintain focus.
 
 ## 2\. Set Clear Deadlines
 
-Deadlines create a sense of urgency. Assign specific timelines to tasks, even for personal projects. Having a clear endpoint can help [eliminate the temptation to postpone work](/how-to-eliminate-distractions-at-work).
+Deadlines create a sense of urgency. Assign specific timelines to tasks, even for personal projects. Having a clear endpoint can help [eliminate the temptation to postpone work](https://selfsaid.30tools.com/how-to-eliminate-distractions-at-work).
 
 ## 3\. Prioritize Tasks
 
@@ -34,7 +34,7 @@ Set a timer for 25-30 minutes and focus on one task during that time. This techn
 
 ## 5\. Remove Distractions
 
-Identify what commonly distracts you—whether it’s your phone, social media, or background noise—and [remove those distractions while working](/how-to-eliminate-distractions-at-work). Creating an environment conducive to focus can drastically reduce delays.
+Identify what commonly distracts you—whether it’s your phone, social media, or background noise—and [remove those distractions while working](https://selfsaid.30tools.com/how-to-eliminate-distractions-at-work). Creating an environment conducive to focus can drastically reduce delays.
 
 ## 6\. Get Started, Even If It’s Small
 
@@ -42,7 +42,7 @@ Getting started is often the hardest part of any task. Even if you only have a f
 
 ## 7.Limit Perfectionism
 
-[Perfectionism](/how-i-cheated-my-need-for-perfectionism) can be a major cause of delay. Striving for flawless results can prevent you from completing tasks in a timely manner. Aim for progress, not perfection, and make improvements later if needed.
+[Perfectionism](https://selfsaid.30tools.com/how-i-cheated-my-need-for-perfectionism) can be a major cause of delay. Striving for flawless results can prevent you from completing tasks in a timely manner. Aim for progress, not perfection, and make improvements later if needed.
 
 ## 8\. Use a To-Do List
 
@@ -50,7 +50,7 @@ Writing down tasks can help keep you accountable. Use a to-do list to organize w
 
 ## 9\. Set Boundaries
 
-Sometimes, delays happen because you take on too much. [Learn how to say no](/learn-how-to-say-no) to tasks or requests that don’t align with your priorities. This helps you focus on what truly matters and avoid overcommitting.
+Sometimes, delays happen because you take on too much. [Learn how to say no](https://selfsaid.30tools.com/learn-how-to-say-no) to tasks or requests that don’t align with your priorities. This helps you focus on what truly matters and avoid overcommitting.
 
 ## 10\. Break the Task Cycle
 
@@ -86,9 +86,9 @@ Working without rest can lead to burnout and ultimately more delays. Plan short 
 
 ## 18\. Commit Publicly
 
-Accountability is a [powerful motivator](/motivational-quotes-success). Tell someone you trust about your goals or tasks. The external pressure of someone knowing your commitments can help you stay on track and push through delays.
+Accountability is a [powerful motivator](https://selfsaid.30tools.com/motivational-quotes-success). Tell someone you trust about your goals or tasks. The external pressure of someone knowing your commitments can help you stay on track and push through delays.
 
-Using these strategies can help reduce delays, make tasks more manageable, and keep you moving forward. Implementing even a few of these steps can make a big difference in [staying productive](/tips-for-productive-living) and on schedule.
+Using these strategies can help reduce delays, make tasks more manageable, and keep you moving forward. Implementing even a few of these steps can make a big difference in [staying productive](https://selfsaid.30tools.com/tips-for-productive-living) and on schedule.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fslay-the-day%2F)
 
@@ -103,3 +103,5 @@ Using these strategies can help reduce delays, make tasks more manageable, and k
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/slay-the-day/

@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-passion-and-purpose/'
 
 ![Classical guitarist playing his guitar with intense passion](https://seffsaid.com/wp-content/uploads/quotes-about-passion-and-purpose.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
   
 Finding your passion and understanding your purpose can often feel like a puzzle. You might wonder how others have managed to find that sweet spot where what they love meets what they’re meant to do. This collection of quotes gathers wisdom from various people, each sharing perspectives on discovering and living with passion and purpose.
 
 1.  “Passion is energy. Feel the power that comes from focusing on what excites you.” – Oprah Winfrey
-2.  “The only way to do great work is to love what you do.” – [Steve Jobs](/steve-jobs-quotes)
+2.  “The only way to do great work is to love what you do.” – [Steve Jobs](https://selfsaid.30tools.com/steve-jobs-quotes)
 3.  “There is no end. There is no beginning. There is only the passion of life.” – Federico Fellini
 4.  “Purpose is the reason you journey. Passion is the fire that lights your way.” – Anonymous
 5.  “Don’t ask yourself what the world needs; ask yourself what makes you come alive. And then go and do that. Because what the world needs is people who have come alive.” – Howard Thurman
@@ -38,7 +38,7 @@ Finding your passion and understanding your purpose can often feel like a puzzle
 19.  “Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.” – Harriet Tubman
 20.  “One person with passion is better than forty people merely interested.” – E.M. Forster
 21.  “A great leader’s courage to fulfill his vision comes from passion, not position.” – John Maxwell
-22.  “Without passion, you don’t have energy. Without energy, you have nothing.” – [Warren Buffett](/warren-buffett-quotes)
+22.  “Without passion, you don’t have energy. Without energy, you have nothing.” – [Warren Buffett](https://selfsaid.30tools.com/warren-buffett-quotes)
 23.  “The most powerful weapon on earth is the human soul on fire.” – Ferdinand Foch
 24.  “You have to be burning with an idea, or a problem, or a wrong that you want to right. If you’re not passionate enough from the start, you’ll never stick it out.” – Steve Jobs
 25.  “Our passions are the true phoenixes; when the old one is burnt out, a new one rises from its ashes.” – Johann Wolfgang von Goethe
@@ -46,7 +46,7 @@ Finding your passion and understanding your purpose can often feel like a puzzle
 27.  “Whatever you do, do it with all your might. Work at it, early and late, in season and out of season, not leaving a stone unturned, and never deferring for a single hour that which can be done just as well now.” – P.T. Barnum
 28.  “The things you are passionate about are not random, they are your calling.” – Fabienne Fredrickson
 29.  “A powerful passion, like a storm, fulfills your whole being.” – Anonymous
-30.  “You can have a spiritual awakening and discover a new side of you at any age. And best of all, love can happen at any age. Life can just start to get exciting when you’re in your 40s and 50s. You have to believe that.” – [Keanu Reeves](/keanu-reeves-quotes)
+30.  “You can have a spiritual awakening and discover a new side of you at any age. And best of all, love can happen at any age. Life can just start to get exciting when you’re in your 40s and 50s. You have to believe that.” – [Keanu Reeves](https://selfsaid.30tools.com/keanu-reeves-quotes)
 31.  “True passion is not just about enthusiasm or excitement. It’s about putting in the work to master your craft and make a difference.” – Anonymous
 32.  “Follow your passion; it will lead you to your purpose.” – Oprah Winfrey
 33.  “Passion will move men beyond themselves, beyond their shortcomings, beyond their failures.” – Joseph Campbell
@@ -64,7 +64,7 @@ Finding your passion and understanding your purpose can often feel like a puzzle
 45.  “Passion is the fuel that drives us to succeed, the fire in our hearts that lights the way.” – Anonymous
 46.  “I would rather die of passion than of boredom.” – Vincent van Gogh
 47.  “Passion is not a job, a sport, or a hobby. It is the full force of your attention and energy that you give to whatever is right in front of you.” – Thich Nhat Hanh
-48.  “Let us live so that when we come to die even the undertaker will be sorry.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+48.  “Let us live so that when we come to die even the undertaker will be sorry.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 49.  “It is a beautiful thing when a career and a passion come together.” – Anonymous
 50.  “The only great thing in this world is to love and to be loved.” – George Sand
 51.  “You can do anything as long as you have the passion, the drive, the focus, and the support.” – Sabrina Bryan
@@ -121,3 +121,5 @@ Finding your passion and understanding your purpose can often feel like a puzzle
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-passion-and-purpose/

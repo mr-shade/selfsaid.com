@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/lana-del-rey-quotes/'
 
 ![Lana Del Rey in concert](https://seffsaid.com/wp-content/uploads/Lana-Del-Rey-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Lana Del Rey’s quotes offer a glimpse into her unique perspective on life and art. Below, you’ll discover some of her most memorable and thought-provoking sayings. These quotes reflect the depth and originality that make her such an intriguing artist.
 
@@ -28,7 +28,7 @@ Lana Del Rey’s quotes offer a glimpse into her unique perspective on life and 
 10.  “I think there’s a lot of people out there who make their art and make their money and don’t really think about the people who are buying their music.” – Lana Del Rey
 11.  “I’m always just trying to do what I do. I don’t really care who comes out of the woodwork to try to steal my thunder.” – Lana Del Rey
 12.  “I used to be a singer for the money. I was just singing in bars and clubs because I wanted to sing.” – Lana Del Rey
-13.  “I just want to have a [good life](/how-to-live-the-good-life), and be the person that I am.” – Lana Del Rey
+13.  “I just want to have a [good life](https://selfsaid.30tools.com/how-to-live-the-good-life), and be the person that I am.” – Lana Del Rey
 14.  “It’s hard to just stop one day and say, ‘I won’t do it anymore.’ But I have to learn to prioritize.” – Lana Del Rey
 15.  “I’m not a perfectionist, but I like to feel that things are done well.” – Lana Del Rey
 16.  “My baby lives in shades of blue.” – Lana Del Rey
@@ -48,7 +48,7 @@ Lana Del Rey’s quotes offer a glimpse into her unique perspective on life and 
 30.  “I’m just a normal girl.” – Lana Del Rey
 31.  “I like a lot of classic movies, like old-time black and white ones.” – Lana Del Rey
 32.  “I’ve got nothing but love for my fans.” – Lana Del Rey
-33.  I’ve made a lot of [mistakes in my life](/5-common-life-mistakes-to-avoid). But I’m proud of them. I wouldn’t be who I am if I hadn’t made them.” – Lana Del Rey
+33.  I’ve made a lot of [mistakes in my life](https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid). But I’m proud of them. I wouldn’t be who I am if I hadn’t made them.” – Lana Del Rey
 34.  “I think people can appreciate someone who’s just trying to be themselves.” – Lana Del Rey
 35.  “I try to live my life with the same respect that I give to others.” – Lana Del Rey
 36.  “I don’t think I’ve ever had a true friend.” – Lana Del Rey
@@ -67,7 +67,7 @@ Lana Del Rey’s quotes offer a glimpse into her unique perspective on life and 
 49.  “I’m just really grateful to be able to make music for a living.” – Lana Del Rey
 50.  “I’m a dreamer. And I always will be.” – Lana Del Rey
 
-Read more [quotes by famous singers](/quotes-by-famous-people) here.
+Read more [quotes by famous singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flana-del-rey-quotes%2F)
 
@@ -82,3 +82,5 @@ Read more [quotes by famous singers](/quotes-by-famous-people) here.
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/lana-del-rey-quotes/

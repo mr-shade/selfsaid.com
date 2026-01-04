@@ -11,7 +11,7 @@ featured_image: >-
 original_url: 'https://selfsaid.30tools.com/live-your-best-life/'
 ---
 
-All [Printable Quotes](/printable-quotes)
+All [Printable Quotes](https://selfsaid.30tools.com/printable-quotes)
 
 # Live Your Best Life Printable Quote
 
@@ -76,3 +76,5 @@ $4.99 – Instant Download
 [More](#)
 
 0 Shares
+
+Source: https://selfsaid.30tools.com/live-your-best-life/

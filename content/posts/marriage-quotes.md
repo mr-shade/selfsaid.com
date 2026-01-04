@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/marriage-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/marriage-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Marriage is a bond built on love, trust, and the promise to stand by each other through life’s ups and downs. Quotes about marriage can offer a glimpse into the beauty and strength that come from a true partnership. Here, you’ll find words that celebrate the commitment and joy of sharing life with someone special.
 
@@ -34,7 +34,7 @@ Marriage is a bond built on love, trust, and the promise to stand by each other 
 *   “Let there be spaces in your togetherness, and let the winds of the heavens dance between you.” — Kahlil Gibran
 *   “Being married is like having somebody permanently in your corner. It feels limitless, not limited.” — Gloria Steinem
 *   “Marriage is a mosaic you build with your spouse. Millions of tiny moments that create your love story.” — Jennifer Smith
-*   “There is no more lovely, friendly, and charming relationship, communion, or company than a good marriage.” — [Martin Luther King Jr.](/martin-luther-king-quotes)
+*   “There is no more lovely, friendly, and charming relationship, communion, or company than a good marriage.” — [Martin Luther King Jr.](https://selfsaid.30tools.com/martin-luther-king-quotes)
 *   “Marriage is not just spiritual communion; it is also remembering to take out the trash.” — Joyce Brothers
 *   “In a great marriage, each person plays a part in keeping love alive.” — Ann Landers
 *   “Marriage is a journey, and the journey is never-ending.” — Anonymous
@@ -44,7 +44,7 @@ Marriage is a bond built on love, trust, and the promise to stand by each other 
 *   “Marriage stands the test of time when two people come together as one, despite their individual differences.” — Daphne Rose Kingma
 *   “True love stands by each other’s side on good days and stands closer on bad days.” — Unknown
 *   “Marriage is not about finding someone to live with; it’s about finding someone you can’t live without.” — Rafael Ortiz
-*   To get the full value of joy, you must have someone to divide it with.” — [Mark Twain](/25-inspirational-mark-twain-quotes)
+*   To get the full value of joy, you must have someone to divide it with.” — [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 *   “The bonds of matrimony are like any other bonds—they mature slowly.” — Peter De Vries
 *   “The goal in marriage is not to think alike, but to think together.” — Robert C. Dodds
 *   “You don’t marry someone you can live with – you marry someone you cannot live without.” — Unknown
@@ -92,3 +92,5 @@ Marriage is a bond built on love, trust, and the promise to stand by each other 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/marriage-quotes/

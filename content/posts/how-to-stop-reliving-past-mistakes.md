@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-stop-reliving-past-mistakes/'
 
 ![](https://seffsaid.com/wp-content/uploads/stop-reliving-past-mistakes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Dwelling on past mistakes can weigh you down, affecting your emotional well-being and even your ability to focus on the present. While it’s natural to reflect on experiences to learn from them, excessive rumination can trap you in a cycle of regret. Breaking free from this loop is essential to move forward with a clearer mindset. Here’s a practical guide to help you stop reliving those moments and regain control.
 
@@ -46,11 +46,11 @@ Reflection is valuable but should have limits. Allocate specific times to think 
 
 ## Surround Yourself With Positive Influences
 
-The people you spend time with can influence your mindset. Seek out those who encourage you to focus on the present and inspire you to make [positive changes](/easy-ways-to-develop-a-positive-attitude). Positive influences can help you keep perspective and reinforce your progress.
+The people you spend time with can influence your mindset. Seek out those who encourage you to focus on the present and inspire you to make [positive changes](https://selfsaid.30tools.com/easy-ways-to-develop-a-positive-attitude). Positive influences can help you keep perspective and reinforce your progress.
 
 ## Develop Healthy Coping Mechanisms
 
-[Stress or anxiety](/48-simple-ways-to-reduce-stress-and-anxiety) about past mistakes often leads to unhealthy coping strategies, such as avoidance or self-blame. Instead, find healthier ways to manage these emotions, like journaling, meditation, or talking to someone you [trust](/quotes-about-trust). These methods can provide relief and clarity.
+[Stress or anxiety](https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety) about past mistakes often leads to unhealthy coping strategies, such as avoidance or self-blame. Instead, find healthier ways to manage these emotions, like journaling, meditation, or talking to someone you [trust](https://selfsaid.30tools.com/quotes-about-trust). These methods can provide relief and clarity.
 
 ## Set New Goals
 
@@ -75,3 +75,5 @@ By taking these steps, you can stop reliving past mistakes and begin living in t
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/how-to-stop-reliving-past-mistakes/

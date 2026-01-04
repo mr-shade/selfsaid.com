@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-be-optimistic/'
 
 ![Optimistic woman smiling at the camera](https://seffsaid.com/wp-content/uploads/How-To-Be-Optimistic.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Thinking in an optimistic and constructive way is a life-skill that will improve anybody’s life. Optimism is a habit, as is pessimism, and we can actually train ourselves on how to be optimistic.
 
@@ -20,7 +20,7 @@ By changing our way of thinking through small tweaks of self-talk and outlook, w
 
 ## 1\. Meditate daily
 
-[Meditation](/benefits-of-meditation) doesn’t have to be lengthy and arduous. You can use a short session of, say, ten to twenty minutes to clear your mind, lower stress hormones and set your mood for the day. First thing in the morning is the absolute ideal time for this as you can ensure a good starting point for the rest of your day, feeling in control and positive.
+[Meditation](https://selfsaid.30tools.com/benefits-of-meditation) doesn’t have to be lengthy and arduous. You can use a short session of, say, ten to twenty minutes to clear your mind, lower stress hormones and set your mood for the day. First thing in the morning is the absolute ideal time for this as you can ensure a good starting point for the rest of your day, feeling in control and positive.
 
 ## 2\. Put your mind on a “diet” of positive input
 
@@ -36,7 +36,7 @@ When faced with a difficult issue, whether it be personal or professional, chall
 
 ## 4\. Go for a walk
 
-Walking has been shown to [calm the mind](/anxiety-quotes) and encourage positivity. The alternating actions of the arms and legs, the light aerobic activity, the fresh air and the sensory input of changing scenery as you move have all been shown to have beneficial and soothing effects on the mind.
+Walking has been shown to [calm the mind](https://selfsaid.30tools.com/anxiety-quotes) and encourage positivity. The alternating actions of the arms and legs, the light aerobic activity, the fresh air and the sensory input of changing scenery as you move have all been shown to have beneficial and soothing effects on the mind.
 
 In a [study](https://bjsm.bmj.com/content/35/2/114.full) on 12 patients with depression, participants walked on a treadmill for 30 minutes a day for 10 days. At the end of the program, all participants reported a significant reduction in their symptoms of depression. The conclusion was that aerobic exercise can produce substantial improvements in mood. It seems that a brisk walk, preferably amongst greenery or by water, can be one of the best antidotes to a pessimistic outlook.
 
@@ -46,7 +46,7 @@ It’s perhaps a cliché but often, when you are immersed in a problem, especial
 
 ## 6\. Attitude of Gratitude
 
-The [attitude of gratitude](/how-to-cultivate-an-attitude-of-gratitude) is a fantastic and sure-fire path to incredible optimism. In fact, possibly the most important step in how to be optimistic. It entails dwelling exclusively on the things for which you can be grateful in your life or in the world in general. At first, it may be difficult, especially if you’ve been in the habit for a long time of grumbling or noticing only the negative things. But with minimal effort, you will find endless lists of wonderful things for which you are grateful.
+The [attitude of gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) is a fantastic and sure-fire path to incredible optimism. In fact, possibly the most important step in how to be optimistic. It entails dwelling exclusively on the things for which you can be grateful in your life or in the world in general. At first, it may be difficult, especially if you’ve been in the habit for a long time of grumbling or noticing only the negative things. But with minimal effort, you will find endless lists of wonderful things for which you are grateful.
 
 Start by concentrating on small things such as a glass of cool water on a hot day, a comfortable chair or a good cup of tea or coffee. Or maybe an enjoyable meal (however modest), a ray of sunlight or moonlight, a smile or a helping hand from a stranger, a funny-shaped cloud or a refreshing rainstorm. If you’re lucky enough to have a comfortable home, family, friends, enough money in the bank to pay your bills and reasonable health then you have an enormous amount for which to express gratitude.
 
@@ -54,7 +54,7 @@ We can always take the negative and spin it to our advantage and nurture the fee
 
 ## 7\. Come into the now
 
-Pessimism is more often than not cultivated through dwelling on disappointments of the past or fears for the future. If you are stricter with your mind, you can catch it doing this many times during the day. When you notice your mind wandering into these darker thoughts of the past and the future, firmly bring your attention into the [present moment](/how-to-live-in-the-moment). Concentrate on your breath or the sensation of your clothes on your skin. Listen to the sounds around you and notice every detail of your surroundings to bring yourself squarely into the now and out of your thoughts.
+Pessimism is more often than not cultivated through dwelling on disappointments of the past or fears for the future. If you are stricter with your mind, you can catch it doing this many times during the day. When you notice your mind wandering into these darker thoughts of the past and the future, firmly bring your attention into the [present moment](https://selfsaid.30tools.com/how-to-live-in-the-moment). Concentrate on your breath or the sensation of your clothes on your skin. Listen to the sounds around you and notice every detail of your surroundings to bring yourself squarely into the now and out of your thoughts.
 
 The more you do this, the easier it becomes, and you will be able to increase the amount of time spent in the here and now where positivity thrives. This is known as mindfulness and is an incredible stress-buster that cultivates optimism and clarity of thought.
 
@@ -64,7 +64,7 @@ Keeping a daily journal can have invaluable benefits – some claim that is as g
 
 ## 9\. Be kind
 
-There is no better feeling than that of helping others. [Acts of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer) have been shown to affect people’s psychology in many positive ways, lifting depression, easing anxiety and generally increasing happiness. There are endless ways and opportunities for helping others, from giving donations to charity and volunteering, to simply being a good friend or neighbor.
+There is no better feeling than that of helping others. [Acts of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) have been shown to affect people’s psychology in many positive ways, lifting depression, easing anxiety and generally increasing happiness. There are endless ways and opportunities for helping others, from giving donations to charity and volunteering, to simply being a good friend or neighbor.
 
 ## 10\. Slow down
 
@@ -85,3 +85,5 @@ Pin24
 [More](#)
 
 24 Shares
+
+Source: https://selfsaid.30tools.com/how-to-be-optimistic/

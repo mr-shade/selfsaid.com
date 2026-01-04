@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/tough-times-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/tough-times-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Life often throws challenges your way, and staying positive can feel like an uphill climb. During tough times, a simple quote can provide the inspiration or perspective you need to keep going. This collection of 50 quotes is meant to encourage and uplift, offering strength and hope no matter the situation.
 
@@ -22,9 +22,9 @@ Life often throws challenges your way, and staying positive can feel like an uph
 *   “It’s not whether you get knocked down, it’s whether you get up.” – Vince Lombardi
 *   “The best way out is always through.” – Robert Frost
 *   “Believe you can and you’re halfway there.” – Theodore Roosevelt
-*   You may encounter many defeats, but you must not be defeated.” – [Maya Angelou](/maya-angelou-quotes)
+*   You may encounter many defeats, but you must not be defeated.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 *   “Out of difficulties grow miracles.” – Jean de La Bruyère
-*   “[Hard times](/quotes-about-strength) may have held you down, but they will not last forever.” – Roy T. Bennett
+*   “[Hard times](https://selfsaid.30tools.com/quotes-about-strength) may have held you down, but they will not last forever.” – Roy T. Bennett
 *   “The darkest hour has only sixty minutes.” – Morris Mandel
 *   “Sometimes adversity is what you need to face in order to become successful.” – Zig Ziglar
 *   “Life isn’t about waiting for the storm to pass; it’s about learning to dance in the rain.” – Vivian Greene
@@ -38,12 +38,12 @@ Life often throws challenges your way, and staying positive can feel like an uph
 *   “Never let the odds keep you from doing what you know in your heart you were meant to do.” – H. Jackson Brown Jr.
 *   “Courage is not having the strength to go on; it is going on when you don’t have the strength.” – Theodore Roosevelt
 *   “Do not be afraid of tomorrow; for God is already there.” – Charles Spurgeon
-*   “Turn your wounds into [wisdom](/discover-your-inner-wisdom).” – Oprah Winfrey
+*   “Turn your wounds into [wisdom](https://selfsaid.30tools.com/discover-your-inner-wisdom).” – Oprah Winfrey
 *   “Even if happiness forgets you a little bit, never completely forget about it.” – Jacques Prévert
 *   “Our greatest glory is not in never falling, but in rising every time we fall.” – Confucius
 *   “Stars can’t shine without darkness.” – D.H. Sidebottom
 *   “When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.” – Henry Ford
-*   “You have power over your mind, not outside events. Realize this, and you will find strength.” – [Marcus Aurelius](/marcus-aurelius-quotes)
+*   “You have power over your mind, not outside events. Realize this, and you will find strength.” – [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)
 *   “It is during our darkest moments that we must focus to see the light.” – Aristotle Onassis
 *   “Strength doesn’t come from what you can do. It comes from overcoming the things you once thought you couldn’t.” – Rikki Rogers
 *   “Perseverance is not a long race; it is many short races one after the other.” – Walter Elliot
@@ -52,8 +52,8 @@ Life often throws challenges your way, and staying positive can feel like an uph
 *   “A problem is a chance for you to do your best.” – Duke Ellington
 *   “Adversity causes some men to break; others to break records.” – William Arthur Ward
 *   “Things turn out best for the people who make the best of the way things turn out.” – John Wooden
-*   Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](/winston-churchill-quotes)
-*   “Don’t quit. Suffer now and live the rest of your life as a champion.” – [Muhammad Ali](/muhammad-ali-quotes)
+*   Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
+*   “Don’t quit. Suffer now and live the rest of your life as a champion.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 *   “Fall seven times, stand up eight.” – Japanese Proverb
 *   “A diamond is a chunk of coal that did well under pressure.” – Henry Kissinger
 *   “The only way to make sense out of change is to plunge into it, move with it, and join the dance.” – Alan Watts
@@ -62,7 +62,7 @@ Life often throws challenges your way, and staying positive can feel like an uph
 *   “You cannot swim for new horizons until you have courage to lose sight of the shore.” – William Faulkner
 *   “The greater the obstacle, the more glory in overcoming it.” – Molière
 *   “Pain is inevitable. Suffering is optional.” – Haruki Murakami
-*   Rock bottom became the solid foundation on which I rebuilt my life.” – [J.K. Rowling](/j-k-rowling-quotes)
+*   Rock bottom became the solid foundation on which I rebuilt my life.” – [J.K. Rowling](https://selfsaid.30tools.com/j-k-rowling-quotes)
 *   “Challenges are gifts that force us to search for a new center of gravity. Don’t fight them. Just find a new way to stand.” – Oprah Winfrey
 *   “Success is stumbling from failure to failure with no loss of enthusiasm.” – Winston Churchill
 *   “The only thing that overcomes hard luck is hard work.” – Harry Golden
@@ -80,3 +80,5 @@ Life often throws challenges your way, and staying positive can feel like an uph
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/tough-times-quotes/

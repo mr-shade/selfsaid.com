@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/mental-health-journey/'
 
 ![](https://seffsaid.com/wp-content/uploads/Mental-Health-Journey.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Your [mental health](/mental-health-quotes) journey is deeply personal. Some days feel light, others feel heavy, and in between there are moments that ask for strength, softness, and quiet courage. These quotes are here to remind you that you are not alone, that healing is not linear, and that small steps are still progress.
+Your [mental health](https://selfsaid.30tools.com/mental-health-quotes) journey is deeply personal. Some days feel light, others feel heavy, and in between there are moments that ask for strength, softness, and quiet courage. These quotes are here to remind you that you are not alone, that healing is not linear, and that small steps are still progress.
 
 This collection is divided into six sections to meet you wherever you are. Let them be small reminders of care, perspective, and support.
 
@@ -109,3 +109,5 @@ This collection is divided into six sections to meet you wherever you are. Let t
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/mental-health-journey/

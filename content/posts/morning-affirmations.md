@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/morning-affirmations/'
 
 ![Woman reciting her morning affirmations](https://seffsaid.com/wp-content/uploads/morning-affirmations-600x333-1.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Affirmations are not just phrases, they are personal declarations that can reshape your thinking and guide your day toward positivity and purpose. When you affirm your strengths and intentions at the start of your day, you lay a foundation of confidence and clarity. This practice is similar to planting seeds of positivity that gradually grow and flourish throughout your day.
 
-To effectively use affirmations, it’s essential to choose words that resonate deeply with you. These will be your most [powerful affirmations](/50-powerful-affirmations-that-can-change-life). Whether it’s about nurturing self-love, cultivating resilience, or sparking creativity, your affirmations should be a reflection of what you aspire to manifest in your life. Speak them out loud, write them down, or meditate on them; the key is consistent and mindful practice.
+To effectively use affirmations, it’s essential to choose words that resonate deeply with you. These will be your most [powerful affirmations](https://selfsaid.30tools.com/50-powerful-affirmations-that-can-change-life). Whether it’s about nurturing self-love, cultivating resilience, or sparking creativity, your affirmations should be a reflection of what you aspire to manifest in your life. Speak them out loud, write them down, or meditate on them; the key is consistent and mindful practice.
 
-Remember, the practice of morning affirmations is not just about saying words; it’s about creating a [mindset that embraces positivity](/always-keep-a-positive-mindset) and possibility. As you make this practice a regular part of your morning, you’ll begin to notice subtle yet significant shifts in your outlook and interactions throughout the day.
+Remember, the practice of morning affirmations is not just about saying words; it’s about creating a [mindset that embraces positivity](https://selfsaid.30tools.com/always-keep-a-positive-mindset) and possibility. As you make this practice a regular part of your morning, you’ll begin to notice subtle yet significant shifts in your outlook and interactions throughout the day.
 
 1.  Asking for help is a sign of self-respect and self-awareness
 2.  Every challenge I face is an opportunity to grow.
@@ -254,3 +254,5 @@ Remember, the practice of morning affirmations is not just about saying words; i
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/morning-affirmations/

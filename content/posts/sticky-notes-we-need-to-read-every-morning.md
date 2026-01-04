@@ -12,29 +12,29 @@ original_url: 'https://selfsaid.30tools.com/sticky-notes-we-need-to-read-every-m
 
 ![](https://seffsaid.com/wp-content/uploads/sticky-notes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 In a world packed with distractions and obligations, it’s easy to lose sight of what truly matters. But amidst the chaos, small reminders can serve as beacons of inspiration and guidance. This is where sticky notes come in – unassuming yet powerful tools that can shape our day-to-day perspective. Here are ten sticky notes that, when read every morning, can significantly influence our mindset, productivity, and overall well-being.
 
 ## 1\. **“Today is a New Opportunity”**
 
-Starting each day with the awareness that it offers a new opportunity is vital. This note serves as a reminder that no matter what yesterday was like, today presents a fresh start. It’s a chance to tackle challenges, learn something new, or make progress in personal goals. This reminder helps in [cultivating a beginner’s mindset](/beginners-mindset) of growth and possibility.
+Starting each day with the awareness that it offers a new opportunity is vital. This note serves as a reminder that no matter what yesterday was like, today presents a fresh start. It’s a chance to tackle challenges, learn something new, or make progress in personal goals. This reminder helps in [cultivating a beginner’s mindset](https://selfsaid.30tools.com/beginners-mindset) of growth and possibility.
 
 ## 2\. **“Focus on What You Can Control”**
 
-In a world filled with uncertainties and variables beyond our control, this note brings our attention back to the aspects of our lives where we have agency. It’s a reminder to spend energy and time on actions and thoughts within our control, thereby [reducing stress](/proven-ways-to-reduce-stress) and enhancing our sense of empowerment.
+In a world filled with uncertainties and variables beyond our control, this note brings our attention back to the aspects of our lives where we have agency. It’s a reminder to spend energy and time on actions and thoughts within our control, thereby [reducing stress](https://selfsaid.30tools.com/proven-ways-to-reduce-stress) and enhancing our sense of empowerment.
 
 ## 3\. **“Gratitude Changes Everything”**
 
-By reminding ourselves to [be thankful](/how-to-cultivate-an-attitude-of-gratitude) for the big and small things in life, we shift our focus from what we lack to what we have. This change in perspective is known to enhance mental health, improve relationships, and even boost physical well-being.
+By reminding ourselves to [be thankful](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) for the big and small things in life, we shift our focus from what we lack to what we have. This change in perspective is known to enhance mental health, improve relationships, and even boost physical well-being.
 
 ## 4\. **“Be Kind to Yourself and Others”**
 
-This simple note encourages compassion. In a fast-paced world, it’s easy to be hard on ourselves and inadvertently on those around us. A reminder to [practice kindness](/simple-acts-of-kindness-that-can-make-us-live-longer) can make a world of difference in how we treat ourselves and interact with others.
+This simple note encourages compassion. In a fast-paced world, it’s easy to be hard on ourselves and inadvertently on those around us. A reminder to [practice kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) can make a world of difference in how we treat ourselves and interact with others.
 
 ## 5\. **“One Step at a Time”**
 
-Ambitions and goals are essential, but they can also be overwhelming. This sticky note is a gentle reminder that progress is a series of [small actions](/how-small-actions-can-make-a-huge-difference). Whether it’s a project at work, a personal goal, or overcoming a challenge, taking one step at a time makes the journey manageable and less daunting.
+Ambitions and goals are essential, but they can also be overwhelming. This sticky note is a gentle reminder that progress is a series of [small actions](https://selfsaid.30tools.com/how-small-actions-can-make-a-huge-difference). Whether it’s a project at work, a personal goal, or overcoming a challenge, taking one step at a time makes the journey manageable and less daunting.
 
 ## 6\. **“Embrace Change”**
 
@@ -54,13 +54,13 @@ This piece of wisdom is timeless. Listening – truly listening – to others fo
 
 ## 10\. **“Action Beats Perfection”**
 
-[Perfectionism](/how-i-cheated-my-need-for-perfectionism) can be a significant barrier to progress. This note is a motivator to take action, even if conditions aren’t perfect. It’s a call to value progress over perfection, to learn from doing, and to embrace the imperfections that come with growth and learning.
+[Perfectionism](https://selfsaid.30tools.com/how-i-cheated-my-need-for-perfectionism) can be a significant barrier to progress. This note is a motivator to take action, even if conditions aren’t perfect. It’s a call to value progress over perfection, to learn from doing, and to embrace the imperfections that come with growth and learning.
 
 ## Integrating These Reminders into Your Routine
 
 Reading these notes every morning can set the tone for the day, but their true power lies in how they are internalized and acted upon. Here’s how you can make the most of these daily reminders:
 
-*   **Place Them Strategically**: put these notes where you’re most likely to see them in the morning – on the bathroom mirror, the fridge, next to your coffee machine, or inside your [personal planner](/planner-ideas). The key is visibility at a time when you’re gearing up for the day.
+*   **Place Them Strategically**: put these notes where you’re most likely to see them in the morning – on the bathroom mirror, the fridge, next to your coffee machine, or inside your [personal planner](https://selfsaid.30tools.com/planner-ideas). The key is visibility at a time when you’re gearing up for the day.
 *   **Reflect Briefly on Each One**: – don’t just read; pause and reflect. Even a few seconds of contemplation on each note can help internalize the message and set the intention for the day.
 *   **Change Them Up**: occasionally, rotate these notes or add new ones. This prevents them from becoming part of the background and keeps the messages fresh and impactful.
 *   **Share the Practice**: – encourage family members or roommates to engage with these notes. Sometimes discussing them or seeing others resonate with the messages can deepen their significance.
@@ -84,3 +84,5 @@ While these sticky notes are small and simple, they hold immense power to reshap
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/sticky-notes-we-need-to-read-every-morning/

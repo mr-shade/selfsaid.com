@@ -12,15 +12,15 @@ original_url: 'https://selfsaid.30tools.com/6-things-successful-people-never-do/
 
 ![](https://seffsaid.com/wp-content/uploads/Things-Successful-People-Never-Do.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Successful people often seem to have achieved success without breaking a sweat. These people have realized their goals and ambitions while we work ourselves to exhaustion, feeling like we have been left behind and getting nowhere, unable to come even close to realizing our dreams.
 
-What are the secrets of success? Well, hard work, determination and perseverance are all vital components as well as a strong [mindset](/seven-signs-that-its-time-to-change-your-mindset), [positive attitude](/easy-ways-to-develop-a-positive-attitude) and the necessary skills. These values are clear, but what should we ‘not’ be doing if we want to [succeed at anything](/essential-life-skills) in life? Here’s a list of 6 things highly successful people never ever do.
+What are the secrets of success? Well, hard work, determination and perseverance are all vital components as well as a strong [mindset](https://selfsaid.30tools.com/seven-signs-that-its-time-to-change-your-mindset), [positive attitude](https://selfsaid.30tools.com/easy-ways-to-develop-a-positive-attitude) and the necessary skills. These values are clear, but what should we ‘not’ be doing if we want to [succeed at anything](https://selfsaid.30tools.com/essential-life-skills) in life? Here’s a list of 6 things highly successful people never ever do.
 
 ## 1\. They never stay in their comfort zone
 
-Successful people didn’t achieve their success without taking risks. Learning new skills, starting a business, following your dreams, setting new goals, these all require [moving out of your comfort zone](/50-best-comfort-zone-quotes).
+Successful people didn’t achieve their success without taking risks. Learning new skills, starting a business, following your dreams, setting new goals, these all require [moving out of your comfort zone](https://selfsaid.30tools.com/50-best-comfort-zone-quotes).
 
 ## 2\. They don’t insist on perfection
 
@@ -55,3 +55,5 @@ You can’t say yes to everything all the time. It’s not possible to please ev
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/6-things-successful-people-never-do/

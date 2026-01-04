@@ -12,20 +12,20 @@ original_url: 'https://selfsaid.30tools.com/quotes-that-take-your-breath-away/'
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-That-Take-Your-Breath-Away.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Sometimes, quotes can just hit different, stop you in your tracks, and make you think in a new way. This collection of quotes are so poignant and profound that they will take your breath away.
 
 ## Quotes That Take Your Breath Away
 
 *   “Out of suffering have emerged the strongest souls; the most massive characters are seared with scars.” — Khalil Gibran
-*   In the end, we will remember not the words of our enemies, but the silence of our friends.” — [Martin Luther King](/martin-luther-king-quotes) Jr.
+*   In the end, we will remember not the words of our enemies, but the silence of our friends.” — [Martin Luther King](https://selfsaid.30tools.com/martin-luther-king-quotes) Jr.
 *   “It is not the length of life, but the depth.” — Ralph Waldo Emerson
-*   The two most important days in your life are the day you are born and the day you find out why.” — [Mark Twain](/25-inspirational-mark-twain-quotes)
+*   The two most important days in your life are the day you are born and the day you find out why.” — [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 *   “Do not go where the path may lead, go instead where there is no path and leave a trail.” — Ralph Waldo Emerson
 *   “Life is what happens when you’re busy making other plans.” — John Lennon
 *   “To love and be loved is to feel the sun from both sides.” — David Viscott
-*   “You have power over your mind, not outside events. Realize this, and you will find strength.” — [Marcus Aurelius](/marcus-aurelius-quotes)
+*   “You have power over your mind, not outside events. Realize this, and you will find strength.” — [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)
 *   “Everything can be taken from a man but one thing: the last of the human freedoms—to choose one’s attitude in any given set of circumstances.” — Viktor Frankl
 *   “We are what we repeatedly do. Excellence, then, is not an act, but a habit.” — Aristotle
 *   “Our greatest glory is not in never falling, but in rising every time we fall.” — Confucius
@@ -41,7 +41,7 @@ Sometimes, quotes can just hit different, stop you in your tracks, and make you 
 *   “That which does not kill us makes us stronger.” — Friedrich Nietzsche
 *   “I am not afraid of storms, for I am learning how to sail my ship.” — Louisa May Alcott
 *   “Courage doesn’t always roar. Sometimes courage is the quiet voice at the end of the day saying, ‘I will try again tomorrow.'” — Mary Anne Radmacher
-*   Success is not final, failure is not fatal: It is the courage to continue that counts.” — [Winston Churchill](/winston-churchill-quotes)
+*   Success is not final, failure is not fatal: It is the courage to continue that counts.” — [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 *   “The wound is the place where the light enters you.” — Rumi
 *   “The unexamined life is not worth living.” — Socrates
 *   “One day, in retrospect, the years of struggle will strike you as the most beautiful.” — Sigmund Freud
@@ -62,14 +62,14 @@ Sometimes, quotes can just hit different, stop you in your tracks, and make you 
 *   “You don’t have a soul. You are a soul. You have a body.” — C.S. Lewis
 *   “The only limit to our realization of tomorrow is our doubts of today.” — Franklin D. Roosevelt
 *   “Not all those who wander are lost.” — J.R.R. Tolkien
-*   I have learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.” — [Maya Angelou](/maya-angelou-quotes)
+*   I have learned that people will forget what you said, people will forget what you did, but people will never forget how you made them feel.” — [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 *   “The purpose of life is not to be happy. It is to be useful, to be honorable, to be compassionate, to have it make some difference that you have lived and lived well.” — Ralph Waldo Emerson
 *   “Life shrinks or expands in proportion to one’s courage.” — Anaïs Nin
 *   “Man cannot discover new oceans unless he has the courage to lose sight of the shore.” — André Gide
 *   “I wanted a perfect ending. Now I’ve learned, the hard way, that some poems don’t rhyme, and some stories don’t have a clear beginning, middle, and end.” — Gilda Radner
 *   “Do what you can, with what you have, where you are.” — Theodore Roosevelt
 *   “To live is the rarest thing in the world. Most people exist, that is all.” — Oscar Wilde
-*   “Some people feel the rain. Others just get wet.” — [Bob Marley](/bob-marley-quotes)
+*   “Some people feel the rain. Others just get wet.” — [Bob Marley](https://selfsaid.30tools.com/bob-marley-quotes)
 *   “The measure of intelligence is the ability to change.” — Albert Einstein
 *   “We cannot solve our problems with the same thinking we used when we created them.” — Albert Einstein
 *   “Go confidently in the direction of your dreams. Live the life you have imagined.” — Henry David Thoreau
@@ -91,3 +91,5 @@ Sometimes, quotes can just hit different, stop you in your tracks, and make you 
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/quotes-that-take-your-breath-away/

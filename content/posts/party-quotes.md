@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/party-quotes/'
 
 ![Two women dancing at a party](https://seffsaid.com/wp-content/uploads/party-quotes-webp.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Whether you’re in need of a little [pick-me-up](/pick-me-up-quotes-when-feeling-down), searching for the right words to describe your festive spirit, or simply looking to bask in the glow of life’s joys, although not the [deepest quotes](/deep-quotes-about-life), these party quotes are here for you. Each one serves as a reminder to embrace every opportunity to celebrate, to find happiness in the smallest moments, and to enjoy the beauty of life.
+Whether you’re in need of a little [pick-me-up](https://selfsaid.30tools.com/pick-me-up-quotes-when-feeling-down), searching for the right words to describe your festive spirit, or simply looking to bask in the glow of life’s joys, although not the [deepest quotes](https://selfsaid.30tools.com/deep-quotes-about-life), these party quotes are here for you. Each one serves as a reminder to embrace every opportunity to celebrate, to find happiness in the smallest moments, and to enjoy the beauty of life.
 
 1.  “Dance to the rhythm of life, make every second a party.” – Unknown
 2.  “Let’s raise a glass to the now, the best time to celebrate.” – Unknown
@@ -32,7 +32,7 @@ Whether you’re in need of a little [pick-me-up](/pick-me-up-quotes-when-feelin
 14.  “Be the life of your own party, each and every day.” – Unknown
 15.  “Let your life be the party that never ends.” – Unknown
 16.  “Life is a festival. Participate fully.” – Unknown
-17.  “Dance like everyone’s watching and you don’t care.” – [Inky Johnson](/inky-johnson-quotes)
+17.  “Dance like everyone’s watching and you don’t care.” – [Inky Johnson](https://selfsaid.30tools.com/inky-johnson-quotes)
 18.  “In life’s grand party, be the reason someone smiles today.” – Unknown
 19.  “Cheers to life, love, and every happy moment in between.” – Unknown
 20.  “Life is a canvas, and the paint is your joy. Make it colorful!” – Unknown
@@ -50,7 +50,7 @@ Whether you’re in need of a little [pick-me-up](/pick-me-up-quotes-when-feelin
 32.  “A party without cake is just a meeting.” – Julia Child
 33.  “Life may not be the party we hoped for, but while we’re here, we should dance.” – Unkown
 34.  “The more you praise and celebrate your life, the more there is in life to celebrate.” – Oprah Winfrey
-35.  “Live for today, plan for tomorrow, party tonight.” – [Drake](/drake-quotes)
+35.  “Live for today, plan for tomorrow, party tonight.” – [Drake](https://selfsaid.30tools.com/drake-quotes)
 36.  “Let’s celebrate with a toast and get lost in tonight.” – Wiz Khalifa
 37.  “Don’t forget to celebrate the small things, in the grand scheme of life, the little things are the party.” – Robert Brault
 38.  “Life should not only be lived, it should be celebrated.” – Osho
@@ -120,17 +120,17 @@ Whether you’re in need of a little [pick-me-up](/pick-me-up-quotes-when-feelin
 102.  “Life is not a problem to be solved, but a reality to be experienced.” – Søren Kierkegaard
 103.  “Keep your face always toward the sunshine—and shadows will fall behind you.” – Walt Whitman
 104.  “The more you celebrate your life, the more there is in life to celebrate.” – Ellen DeGeneres
-105.  Dance like no one is watching, love like you’ll never be hurt, sing like no one is listening, and live like it’s heaven on earth.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+105.  Dance like no one is watching, love like you’ll never be hurt, sing like no one is listening, and live like it’s heaven on earth.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 106.  “You don’t get the same moment twice in life.” – Unknown
 107.  “Happiness looks gorgeous on you.” – Unknown
 108.  “Life is a series of thousands of tiny miracles. Notice them.” – Mike Greenberg
 109.  “Life is a party. Never forget to enjoy and bask in every moment you are in.” – Unknown
-110.  Don’t count the days, make the days count.” – [Muhammad Ali](/muhammad-ali-quotes)
+110.  Don’t count the days, make the days count.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 111.  “A balanced diet is a cookie in each hand.” – Barbara Johnson
 112.  “Live for the moments you can’t put into words.” – Unknown
 113.  “Today was good. Today was fun. Tomorrow is another one.” – Dr. Seuss
 114.  “Life is a journey, and if you fall in love with the journey, you will be in love forever.” – Peter Hagerty
-115.  Life is not measured by the number of breaths we take, but by the moments that take our breath away.” – [Maya Angelou](/maya-angelou-quotes)
+115.  Life is not measured by the number of breaths we take, but by the moments that take our breath away.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 116.  “Life is a party, and I am the piñata.” – Unknown
 117.  “Life is short, smile while you still have teeth.” – Unknown
 118.  “Don’t just count your years, make your years count.” – Ernest Meyers
@@ -231,3 +231,5 @@ Pin16
 [More](#)
 
 16 Shares
+
+Source: https://selfsaid.30tools.com/party-quotes/

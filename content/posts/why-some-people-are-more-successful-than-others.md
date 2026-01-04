@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/why-some-people-are-more-successful-
 
 ![Successful man overlooking New York City from his penthouse apartment.](https://seffsaid.com/wp-content/uploads/why-some-people-are-more-successful.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We all know someone who seems to move through life with ease. Their ideas take off, their plans work, and opportunities seem to appear at the right time. It can leave you wondering what they have that others do not.
 
@@ -29,7 +29,7 @@ You do not need to do everything perfectly, just steadily. Choose one thing to s
 
 ## 2\. They focus on growth, not perfection
 
-Many [successful people](/6-things-successful-people-never-do) view mistakes as part of the process, not as proof of failure. They learn, adjust, and try again. This mindset allows them to improve faster because they are not afraid of being imperfect.
+Many [successful people](https://selfsaid.30tools.com/6-things-successful-people-never-do) view mistakes as part of the process, not as proof of failure. They learn, adjust, and try again. This mindset allows them to improve faster because they are not afraid of being imperfect.
 
 When you catch yourself hesitating out of fear of getting it wrong, remind yourself that every skill begins with trying. Growth happens through practice, not perfection.
 
@@ -67,7 +67,7 @@ When life feels unpredictable, stay open to new routes. Sometimes what looks lik
 
 Productivity is not only about hours worked, it is also about energy. Successful people know when to rest, when to focus, and when to recharge. They recognise that exhaustion does not equal achievement.
 
-Listen to your own rhythm. Take breaks, sleep well, and [build habits](/self-care-habits-feel-like-myself) that keep your energy steady. Protecting your energy helps you sustain progress for the long term.
+Listen to your own rhythm. Take breaks, sleep well, and [build habits](https://selfsaid.30tools.com/self-care-habits-feel-like-myself) that keep your energy steady. Protecting your energy helps you sustain progress for the long term.
 
 ## 9\. They keep learning
 
@@ -100,3 +100,5 @@ You cannot control everything, but you can choose how you show up each day. Cons
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/why-some-people-are-more-successful-than-others/

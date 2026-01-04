@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/define-your-boundaries/'
 
 ![](https://seffsaid.com/wp-content/uploads/Define-Your-Boundaries.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Establishing boundaries is a critical part of maintaining healthy relationships and a strong sense of self. Boundaries help differentiate where your needs and responsibilities end and where someone else’s begin. By thoughtfully considering specific aspects of your life, you can better understand what is acceptable to you and what is not. These ten questions are designed to guide you in shaping and reinforcing the limits that support your well-being.
 
@@ -22,7 +22,7 @@ Understanding what truly matters to you is essential in defining boundaries. Whe
 
 ## 2\. How Do I Feel About Saying No?
 
-Many people struggle with the fear of rejection or guilt when declining requests. Reflecting on your comfort level with [saying no](/learn-how-to-say-no) can help you understand where you may need to strengthen your boundaries.
+Many people struggle with the fear of rejection or guilt when declining requests. Reflecting on your comfort level with [saying no](https://selfsaid.30tools.com/learn-how-to-say-no) can help you understand where you may need to strengthen your boundaries.
 
 ## 3\. What Drains My Energy?
 
@@ -71,3 +71,5 @@ Defining boundaries is a personal and ongoing process. By exploring these questi
 [More](#)
 
 11 Shares
+
+Source: https://selfsaid.30tools.com/define-your-boundaries/

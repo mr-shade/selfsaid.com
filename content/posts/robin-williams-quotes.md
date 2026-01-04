@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/robin-williams-quotes/'
 
 ![Robin Williams on stage](https://seffsaid.com/wp-content/uploads/robin-williams-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 This article brings together 50 of Robin Williams’s most memorable quotes, offering a glimpse into the wisdom and wit that made Williams such a beloved figure. Each quote reflects a piece of advice, a burst of laughter, or a moment of introspection, showcasing the depth of his character and the broad impact of his career.
 
@@ -43,7 +43,7 @@ This article brings together 50 of Robin Williams’s most memorable quotes, off
 25.  “Improv. Sometimes it works, sometimes it doesn’t, but when it does, it’s like open-field running.” – Robin Williams
 26.  “We don’t read and write poetry because it’s cute. We read and write poetry because we are members of the human race.” – Robin Williams
 27.  “Being in the same room with people and creating something together is a good thing.” – Robin Williams
-28.  Our job is [improving the quality of life](/6-self-improvement-tips-that-will-change-your-life), not just delaying death.” – Robin Williams
+28.  Our job is [improving the quality of life](https://selfsaid.30tools.com/6-self-improvement-tips-that-will-change-your-life), not just delaying death.” – Robin Williams
 29.  “When you have a great audience, you can just keep going and finding new things.” – Robin Williams
 30.  “The worst thing in life is to end up with people that make you feel all alone.” – Robin Williams
 31.  “There’s a world out there. Open a window, and it’s there.” – Robin Williams
@@ -80,3 +80,5 @@ This article brings together 50 of Robin Williams’s most memorable quotes, off
 [More](#)
 
 6.19K Shares
+
+Source: https://selfsaid.30tools.com/robin-williams-quotes/

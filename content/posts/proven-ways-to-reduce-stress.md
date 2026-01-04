@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/proven-ways-to-reduce-stress/'
 
 ![Incredibly stressed man](https://seffsaid.com/wp-content/uploads/Proven-Ways-to-Reduce-Stress.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We all feel stressed sometimes, and most times we can look back, realize that it really wasn’t worth worrying about. We wonder why we ever let it spoil our quality of life. You’ve heard the phrase ‘don’t sweat the small stuff’ but it’s amazing that we all still do.
 
@@ -22,7 +22,7 @@ Remembering what is really important in life and what is mere detail can go a lo
 
 Don’t try to do everything at once and don’t try to envisage a large project as one task. If you wish to undertake a long-term or larger project then your first task is simple – make a plan involving small easy steps, each one taking you closer to your overall goal.
 
-Think of it as a journey up a mountain or a tall staircase – you wouldn’t even think about trying to get to the top in one bound! So take the extra time to plan those small steps, then concentrate only on the first one or two. The overall task will immediately seem surmountable, your motivation and confidence will soar and your stress levels will drop to next to nothing. Find out [how to break a big task into small steps](/how-to-break-a-big-task-into-small-steps) in this article.
+Think of it as a journey up a mountain or a tall staircase – you wouldn’t even think about trying to get to the top in one bound! So take the extra time to plan those small steps, then concentrate only on the first one or two. The overall task will immediately seem surmountable, your motivation and confidence will soar and your stress levels will drop to next to nothing. Find out [how to break a big task into small steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps) in this article.
 
 ## 2\. Life can always be simplified and de-cluttered.
 
@@ -32,7 +32,7 @@ Many people feel that they must continually be ‘the best’ at everything and 
   
 Multi-tasking is also generally a bad habit that will simply clutter your mind and leave you tense. Why not cut the clutter in your mind by choosing one task, concentrating on it, and doing it well? Anything can be seen as a mindful meditation whether it be ironing shirts, filing paperwork, or balancing your checkbook.
 
-These things usually become stressful when you allow other thoughts to intrude. Maybe worries of the past and future or matters completely unrelated to the task in hand. Getting into the present moment and really focusing on one thing at a time is a stress-busting habit that will serve you well in all avenues of life. For even more stress relief consider decluttering your life. Decluttering your life will also declutter your mind which will lead to [reduced stress](/48-simple-ways-to-reduce-stress-and-anxiety). If you’d like to learn more about decluttering, please read my article on ways to [declutter your life](/14-ways-to-declutter-your-life).
+These things usually become stressful when you allow other thoughts to intrude. Maybe worries of the past and future or matters completely unrelated to the task in hand. Getting into the present moment and really focusing on one thing at a time is a stress-busting habit that will serve you well in all avenues of life. For even more stress relief consider decluttering your life. Decluttering your life will also declutter your mind which will lead to [reduced stress](https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety). If you’d like to learn more about decluttering, please read my article on ways to [declutter your life](https://selfsaid.30tools.com/14-ways-to-declutter-your-life).
 
 ## 3\. Take an online stress management course.
 
@@ -40,9 +40,9 @@ Taking a stress management course is an excellent way to reduce stress. A qualit
 
 ## 4\. Choose good and true thoughts.
 
-Stress is a [state of mind](/how-i-cultivated-a-focused-state-of-mind) and that’s something we always have control over. If you’re worried about your bills, your relationship or the holidays then stop thinking about those things! Yes, we can choose which thoughts we focus on.
+Stress is a [state of mind](https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind) and that’s something we always have control over. If you’re worried about your bills, your relationship or the holidays then stop thinking about those things! Yes, we can choose which thoughts we focus on.
 
-Choose those that are true and good for your happiness. It’s easier said than done at first, but a simple ten to fifteen-minute meditation, relaxation or deep breathing session morning and evening can [change your life](/5-simple-daily-habits-that-can-actually-change-your-life). It can give you the control you need to quiet your mind and guide it gently to a more peaceful, healthy subject.  
+Choose those that are true and good for your happiness. It’s easier said than done at first, but a simple ten to fifteen-minute meditation, relaxation or deep breathing session morning and evening can [change your life](https://selfsaid.30tools.com/5-simple-daily-habits-that-can-actually-change-your-life). It can give you the control you need to quiet your mind and guide it gently to a more peaceful, healthy subject.  
   
 Of course, we all need to give serious thought to issues that are concerning us, but you should have the power over your mind to decide when to think about these subjects. And when to concentrate on other things and when to be able to simply relax with a clear mind. Regular meditation will strengthen the ‘muscle’ of your mind and allow you this freedom.
 
@@ -54,7 +54,7 @@ Rip up the blueprint! Life is more interesting that way and you’ll find yourse
 
 ## 6\. The grass is not greener on the other side, especially if you water and nurture your own garden.
 
-Did you know there is a [grass is greener syndrome](/grass-is-greener-syndrome)? Well there is, but the grass is not always greener on the other side. I’m talking metaphorically of course, but envy and unfavorable comparisons cause unnecessary stress and unhappiness.
+Did you know there is a [grass is greener syndrome](https://selfsaid.30tools.com/grass-is-greener-syndrome)? Well there is, but the grass is not always greener on the other side. I’m talking metaphorically of course, but envy and unfavorable comparisons cause unnecessary stress and unhappiness.
 
 Focusing on your own life, tending to your own existence, your family, and friends (and not focusing on what others have or what you feel you lack) is a sure-fire way to dispel feelings of tension and dissatisfaction.
 
@@ -62,13 +62,13 @@ Be thankful for every little thing like friends and family, your favorite comfy 
 
 ## 7\. When other people lack manners, lead by example.
 
-Another person’s rudeness should never be used as an excuse to be rude in return. If you are able to smile, [stay calm in stressful situations](/how-to-stay-calm-in-stressful-situations), and be polite back to that person, you will be helping yourself as well as others. Your calmness and politeness will be contagious, you will avoid the stress of reacting emotionally to this person.
+Another person’s rudeness should never be used as an excuse to be rude in return. If you are able to smile, [stay calm in stressful situations](https://selfsaid.30tools.com/how-to-stay-calm-in-stressful-situations), and be polite back to that person, you will be helping yourself as well as others. Your calmness and politeness will be contagious, you will avoid the stress of reacting emotionally to this person.
 
 Plus, you will have the satisfaction of not allowing them to change who you are or how you are feeling. Choosing not to react also takes the power away from a rude person who is often looking for a rise and feeding off it. Nip their bad habit in the bud by cultivating your own good habits.
 
 ## 8\. You may not have ultimate control over everything but you do have control over your response to everything.
 
-This is absolutely the most important concept and one of the most powerful ways to [naturally reduce stress](/how-to-reduce-stress). And this is where your power truly lies in reducing stress. If you can really take control of your response to life’s ups and downs then you will deal with your stress levels and lead a calmer, happier, more satisfying life.
+This is absolutely the most important concept and one of the most powerful ways to [naturally reduce stress](https://selfsaid.30tools.com/how-to-reduce-stress). And this is where your power truly lies in reducing stress. If you can really take control of your response to life’s ups and downs then you will deal with your stress levels and lead a calmer, happier, more satisfying life.
 
 Give yourself time to reflect (counting to ten is an old but effective method) before making a snap judgment or a hasty emotional reaction. You can deal calmly and intellectually with the difficulties you face every day.  
   
@@ -95,3 +95,5 @@ Pin124
 [More](#)
 
 124 Shares
+
+Source: https://selfsaid.30tools.com/proven-ways-to-reduce-stress/

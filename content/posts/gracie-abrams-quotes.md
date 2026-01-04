@@ -10,7 +10,7 @@ original_url: 'https://selfsaid.30tools.com/gracie-abrams-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Gracie-Abrams-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A collection of Gracie Abrams quotes on music, creativity, life, and love.
 
@@ -78,7 +78,7 @@ A collection of Gracie Abrams quotes on music, creativity, life, and love.
 
 “There’s so much power in letting yourself feel deeply, even when it hurts.” — Gracie Abrams
 
-Read more [quotes from celebrities](/quotes-by-famous-people) here.
+Read more [quotes from celebrities](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fgracie-abrams-quotes%2F)
 
@@ -93,3 +93,5 @@ Read more [quotes from celebrities](/quotes-by-famous-people) here.
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/gracie-abrams-quotes/

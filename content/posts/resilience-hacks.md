@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/resilience-hacks/'
 
 ![](https://seffsaid.com/wp-content/uploads/Resilience-Hacks-1.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Resilience isn’t about pretending to be okay when you’re not. It’s about learning how to support yourself gently, especially when life gets heavy.
 
-You don’t need to bounce back overnight. You don’t need to [stay strong](/how-to-stay-strong) all the time. What helps is having small, steady ways to meet hard moments without shutting down. You [build resilience](/build-rock-solid-resilience) not in one big moment, but in a hundred quiet choices to stay with yourself.
+You don’t need to bounce back overnight. You don’t need to [stay strong](https://selfsaid.30tools.com/how-to-stay-strong) all the time. What helps is having small, steady ways to meet hard moments without shutting down. You [build resilience](https://selfsaid.30tools.com/build-rock-solid-resilience) not in one big moment, but in a hundred quiet choices to stay with yourself.
 
 Here are a few resilience “hacks” that have helped me stay grounded when I feel like giving up.
 
@@ -28,7 +28,7 @@ Self-kindness isn’t about sugarcoating the truth. It’s about meeting yoursel
 
 ## 2\. Take one small action, even if it feels pointless
 
-[When everything feels overwhelming](/why-you-still-feel-overwhelmed), doing something simple, like [drinking water](/grounding-power-of-drinking-water), brushing your teeth, or folding one shirt, can shift your energy. Movement helps your nervous system regulate. Small is enough.
+[When everything feels overwhelming](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed), doing something simple, like [drinking water](https://selfsaid.30tools.com/grounding-power-of-drinking-water), brushing your teeth, or folding one shirt, can shift your energy. Movement helps your nervous system regulate. Small is enough.
 
 Action builds momentum. When you’re stuck, the goal isn’t to do everything—it’s just to start.
 
@@ -72,9 +72,9 @@ Breathing doesn’t fix everything. But it gives your nervous system a cue that 
 
 When everything feels too much, go simple. Drink water. Sit in silence. Write one sentence in a journal. These tiny acts of care are not nothing. They’re a form of resistance against burnout and overwhelm.
 
-This is where [Minimalist Self-Care](/minimalist-self-care) can make a real difference. You don’t need a long routine—just one or two meaningful ways to show up for yourself each day. It’s about presence, not performance.
+This is where [Minimalist Self-Care](https://selfsaid.30tools.com/minimalist-self-care) can make a real difference. You don’t need a long routine—just one or two meaningful ways to show up for yourself each day. It’s about presence, not performance.
 
-[Simple self-care practices](/easy-self-care-practices) build resilience in quiet, powerful ways. When you learn to [care for yourself gently](/self-care-routine), consistently, and without pressure, you’re more likely to weather the harder seasons.
+[Simple self-care practices](https://selfsaid.30tools.com/easy-self-care-practices) build resilience in quiet, powerful ways. When you learn to [care for yourself gently](https://selfsaid.30tools.com/self-care-routine), consistently, and without pressure, you’re more likely to weather the harder seasons.
 
 ## Final thought
 
@@ -97,3 +97,5 @@ Pin2
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/resilience-hacks/

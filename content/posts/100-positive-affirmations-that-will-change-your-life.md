@@ -13,11 +13,11 @@ original_url: >-
 
 ![Woman reciting positive affirmations.](https://seffsaid.com/wp-content/uploads/positive-affirmations.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Positive affirmations are simple and usually short statements declaring specific goals, desires or wishes. Although they sound like simple messages, repeated over and over they can have profound effects on the conscious and unconscious mind.
 
-First, they will change your thinking and then your reality. A positive affirmation has the ability to program your mind into believing the statement as the mind doesn’t know the difference between what is real or what is fantasy. Just doing a brief search online you’ll discover that many people swear by the power of affirmations to create positive changes in everything from relationships, love, finances, weight loss, careers, money, confidence, and [anxiety](/26-positive-affirmations-for-anxiety).
+First, they will change your thinking and then your reality. A positive affirmation has the ability to program your mind into believing the statement as the mind doesn’t know the difference between what is real or what is fantasy. Just doing a brief search online you’ll discover that many people swear by the power of affirmations to create positive changes in everything from relationships, love, finances, weight loss, careers, money, confidence, and [anxiety](https://selfsaid.30tools.com/26-positive-affirmations-for-anxiety).
 
 Neuroscience has in fact proven that our thoughts can actually change the structure and functioning of our brains. By regularly practicing positive thinking, it is possible to alter brain plasticity and neural plasticity (also known as [Neuroplasticity](https://en.wikipedia.org/wiki/Neuroplasticity)) in the specific area of the brain that processes thought.
 
@@ -25,7 +25,7 @@ When first practicing positive affirmations, try picking one or two to focus on 
 
 Using daily positive affirmations is a proven method of self-improvement and an effective way to change our thought patterns. And therefore a valuable technique to move us towards achieving our goals and desires.
 
-Below you’ll find a list of 100 of the most [powerful affirmations that can change your life](/50-powerful-affirmations-that-can-change-life). You can use any of these positive affirmations singularly or create your own personal combination based on your wishes and desires. Good luck!
+Below you’ll find a list of 100 of the most [powerful affirmations that can change your life](https://selfsaid.30tools.com/50-powerful-affirmations-that-can-change-life). You can use any of these positive affirmations singularly or create your own personal combination based on your wishes and desires. Good luck!
 
 1.  When my need is strong enough, I will find a way.
 2.  I’m allowed to take up space.
@@ -66,11 +66,11 @@ Below you’ll find a list of 100 of the most [powerful affirmations that can ch
 37.  My imperfections make me unique.
 38.  I set clear goals and work to complete them every day.
 39.  I’m allowed to make mistakes; they don’t make up my whole story.
-40.  Even outside my [comfort zone](/10-ways-to-step-out-of-your-comfort-zone), I will be comfortable in my own skin.
+40.  Even outside my [comfort zone](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone), I will be comfortable in my own skin.
 41.  I choose not to criticize myself or others around me.
 42.  If I fail, I will fail forward.
 43.  My potential to succeed is limitless.
-44.  [Difficult times](/quotes-about-being-strong) are part of my journey and allow me to appreciate the good.
+44.  [Difficult times](https://selfsaid.30tools.com/quotes-about-being-strong) are part of my journey and allow me to appreciate the good.
 45.  I will accept nothing but the best.
 46.  I forgive those who have hurt me.
 47.  I am constantly improving.
@@ -108,7 +108,7 @@ Below you’ll find a list of 100 of the most [powerful affirmations that can ch
 79.  I am blessed with an amazing family and friends.
 80.  My fear diminishes as I live my life with courage.
 81.  I attract money easily into my life.
-82.  I will not take other [peoples negativity](/stay-away-from-negative-people) personally.
+82.  I will not take other [peoples negativity](https://selfsaid.30tools.com/stay-away-from-negative-people) personally.
 83.  My life is full of amazing opportunities that are ready for me to step into.
 84.  I am a diamond. It is time for me to shine.
 85.  I’m free to create the life I desire.
@@ -124,7 +124,7 @@ Below you’ll find a list of 100 of the most [powerful affirmations that can ch
 95.  I am grateful for the things I have.
 96.  No amount of guilt can change the past, and no amount of worrying can change the future.
 97.  I do not bow to my fears.
-98.  To make [small steps toward big goals](/how-to-break-a-big-task-into-small-steps) is progress.
+98.  To make [small steps toward big goals](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps) is progress.
 99.  My mind, body and soul are are fit and strong.
 100.  Negative thoughts only have the power I allow them.
 
@@ -141,3 +141,5 @@ Below you’ll find a list of 100 of the most [powerful affirmations that can ch
 [More](#)
 
 20 Shares
+
+Source: https://selfsaid.30tools.com/100-positive-affirmations-that-will-change-your-life/

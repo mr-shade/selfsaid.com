@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/bible-verses-about-strength/'
 
 ![](https://seffsaid.com/wp-content/uploads/Bible-Quotes-About-Strength.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Strength is something we all need, whether facing challenges or supporting those around us. The Bible offers timeless words of encouragement and hope, reminding you of the power available through faith. These verses can inspire and uplift, helping you find courage and peace in every situation.
 
@@ -42,7 +42,7 @@ Strength is something we all need, whether facing challenges or supporting those
 *   “The Lord is my light and my salvation—whom shall I fear?” (Psalm 27:1)
 *   “The righteous will never be shaken; they will be remembered forever.” (Psalm 112:6)
 *   “Fear not, for I am with you; be not dismayed, for I am your God. I will strengthen you.” (Isaiah 41:10)
-*   “In repentance and rest is your salvation, in quietness and [trust](/quotes-about-trust) is your strength.” (Isaiah 30:15)
+*   “In repentance and rest is your salvation, in quietness and [trust](https://selfsaid.30tools.com/quotes-about-trust) is your strength.” (Isaiah 30:15)
 *   “You, Lord, are forgiving and good, abounding in love to all who call to you.” (Psalm 86:5)
 *   “Though an army besiege me, my heart will not fear.” (Psalm 27:3)
 *   “I will strengthen you and help you; I will uphold you with my righteous right hand.” (Isaiah 41:10)
@@ -90,3 +90,5 @@ Strength is something we all need, whether facing challenges or supporting those
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/bible-verses-about-strength/

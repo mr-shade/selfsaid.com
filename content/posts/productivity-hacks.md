@@ -13,9 +13,9 @@ original_url: 'https://selfsaid.30tools.com/productivity-hacks/'
 
 ![](https://seffsaid.com/wp-content/uploads/Productivity-Hacks-You-Havent-Tried.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-In a world filled with constant demands on your time, finding new ways to [maximize productivity](/easy-ways-to-increase-productivity-today) can make a significant difference. If you feel like you’ve exhausted the usual tips and tricks, here are seven fresh strategies to help you optimize your day.
+In a world filled with constant demands on your time, finding new ways to [maximize productivity](https://selfsaid.30tools.com/easy-ways-to-increase-productivity-today) can make a significant difference. If you feel like you’ve exhausted the usual tips and tricks, here are seven fresh strategies to help you optimize your day.
 
 ## 1\. **Reverse Scheduling**
 
@@ -23,7 +23,7 @@ Instead of creating a to-do list, start with a “done” list. This involves re
 
 ## 2\. **The Power Hour Technique**
 
-Dedicate one uninterrupted hour each day to tackle your most important tasks. During this time, [eliminate all distractions](/how-to-eliminate-distractions-at-work), including phone notifications and emails. Knowing you have a set timeframe creates a sense of urgency and can dramatically boost focus.
+Dedicate one uninterrupted hour each day to tackle your most important tasks. During this time, [eliminate all distractions](https://selfsaid.30tools.com/how-to-eliminate-distractions-at-work), including phone notifications and emails. Knowing you have a set timeframe creates a sense of urgency and can dramatically boost focus.
 
 ## 3\. **Monotasking Over Multitasking**
 
@@ -31,7 +31,7 @@ While multitasking might seem efficient, it often reduces the quality of your wo
 
 ## 4\. **Use the Two-Minute Rule**
 
-This simple rule can help prevent [small tasks](/how-to-break-a-big-task-into-small-steps) from piling up. If something takes less than two minutes to complete—like replying to an email or organizing a document—do it immediately. This habit keeps your to-do list manageable and your mind clear.
+This simple rule can help prevent [small tasks](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps) from piling up. If something takes less than two minutes to complete—like replying to an email or organizing a document—do it immediately. This habit keeps your to-do list manageable and your mind clear.
 
 ## 5\. **Leverage Microbreaks**
 
@@ -60,3 +60,5 @@ By implementing these fresh approaches, you can reimagine how you organize your 
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/productivity-hacks/

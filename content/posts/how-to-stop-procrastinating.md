@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-stop-procrastinating/'
 
 ![An office worker busy working on a computer](https://seffsaid.com/wp-content/uploads/8-Ways-To-Stop-Procrastinating.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Procrastination is a common challenge that everyone faces at some point. Whether it’s delaying starting a project, avoiding tasks, or waiting until the last minute to meet deadlines, procrastination can hinder your productivity and cause unnecessary stress.
 
@@ -24,7 +24,7 @@ Identifying what triggers your procrastination is the first step to overcoming i
 
 Start by paying attention to the moments you begin to procrastinate. What task were you about to tackle? How were you feeling about it? Maybe it was a complex project, or perhaps you doubted your ability to complete it successfully.
 
-Once you pinpoint these triggers, you can take proactive steps to manage them. For instance, if large tasks intimidate you, breaking them into smaller, more manageable steps can help. If fear of failure [holds you back](/daily-habits-that-keep-holding-us-back), try reframing your mindset to view mistakes as learning opportunities rather than setbacks.
+Once you pinpoint these triggers, you can take proactive steps to manage them. For instance, if large tasks intimidate you, breaking them into smaller, more manageable steps can help. If fear of failure [holds you back](https://selfsaid.30tools.com/daily-habits-that-keep-holding-us-back), try reframing your mindset to view mistakes as learning opportunities rather than setbacks.
 
 By understanding what leads you to procrastinate, you can create strategies to confront these challenges directly, making it easier to stay on track and achieve your goals.
 
@@ -56,7 +56,7 @@ To create an effective workspace, choose a spot where distractions are minimal. 
 
 Ensure your workspace is equipped with everything you need to work efficiently. This includes having a comfortable chair, adequate lighting, and easy access to your work materials and tools. Keeping this space tidy and free of clutter also helps reduce mental clutter, allowing you to focus better on the tasks at hand.
 
-By having a dedicated workspace, you signal to your brain that it’s time to work when you’re in that space, helping to shift your mindset to a more [focused state](/how-i-cultivated-a-focused-state-of-mind). This physical separation of work from leisure areas can significantly enhance your ability to start tasks and see them through to completion, effectively reducing procrastination.
+By having a dedicated workspace, you signal to your brain that it’s time to work when you’re in that space, helping to shift your mindset to a more [focused state](https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind). This physical separation of work from leisure areas can significantly enhance your ability to start tasks and see them through to completion, effectively reducing procrastination.
 
 ## 5\. Implement a Time Management System
 
@@ -106,7 +106,7 @@ Overcoming procrastination is not about finding a one-size-fits-all solution; it
 
 Remember, small changes can lead to significant improvements over time. It’s okay to have moments of setback; what’s important is to recognize them, learn, and keep moving forward. Keep experimenting with these techniques, and you’ll find your rhythm, turning what used to be procrastination into productive, rewarding progress.  
   
-If you’d like to read more on this subject, please read my article on how to eliminate [disguised procrastination](/eliminate-disguised-procrastination).
+If you’d like to read more on this subject, please read my article on how to eliminate [disguised procrastination](https://selfsaid.30tools.com/eliminate-disguised-procrastination).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fhow-to-stop-procrastinating%2F)
 
@@ -121,3 +121,5 @@ Pin6
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/how-to-stop-procrastinating/

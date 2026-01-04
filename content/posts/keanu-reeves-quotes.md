@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/keanu-reeves-quotes/'
 
 ![Keanu Reeves dressed as John Wick](https://seffsaid.com/wp-content/uploads/keanu-reeves-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Keanu Reeves is known not only for his iconic roles in films but also for his thoughtful and often [deep reflections on life](/deep-quotes-about-life). Here are 50 quotes attributed to him that capture his philosophy, kindness, and unique outlook.
+Keanu Reeves is known not only for his iconic roles in films but also for his thoughtful and often [deep reflections on life](https://selfsaid.30tools.com/deep-quotes-about-life). Here are 50 quotes attributed to him that capture his philosophy, kindness, and unique outlook.
 
 1.  “The simple act of paying attention can take you a long way.” – Keanu Reeves
 2.  “Sometimes we get so caught up in our daily lives that we forget to take the time out to enjoy the beauty in life.” – Keanu Reeves
@@ -23,7 +23,7 @@ Keanu Reeves is known not only for his iconic roles in films but also for his th
 5.  “I believe in love at first sight. You want that connection, and then you want some problems.” – Keanu Reeves
 6.  “The person who was holding me back from my happiness was me.” – Keanu Reeves
 7.  “Art is about trying to find the good in people and making the world a more compassionate place.” – Keanu Reeves
-8.  “If you have been brutally broken but still have the courage to be gentle to other living beings, then you’re a [badass](/powerful-badass-quotes) with a heart of an angel.” – Keanu Reeves
+8.  “If you have been brutally broken but still have the courage to be gentle to other living beings, then you’re a [badass](https://selfsaid.30tools.com/powerful-badass-quotes) with a heart of an angel.” – Keanu Reeves
 9.  “To be silent is to be complicit.” – Keanu Reeves
 10.  “So in the end, I think we can all pretty well agree that even in the face of tragedy, a stellar person can thrive. No matter what’s going on in your life, you can overcome it! Life is worth living.” – Keanu Reeves
 11.  “I try not to think about my life. I have no life. I need therapy.” – Keanu Reeves
@@ -36,7 +36,7 @@ Keanu Reeves is known not only for his iconic roles in films but also for his th
 18.  “Mortality is very different when you’re 20 to when you’re 50.” – Keanu Reeves
 19.  “I always felt like I could do anything. That’s the main thing people are controlled by! Thoughts- their perception of themselves! They’re slowed down by their perception of themselves. If you’re taught you can’t do anything, you won’t do anything. I was taught I could do everything.” – Keanu Reeves
 20.  “None of us are getting out of here alive, so please stop treating yourself like an afterthought. Eat the delicious food. Walk in the sunshine. Jump in the ocean. Say the truth that you’re carrying in your heart like hidden treasure. Be silly. Be kind. Be weird. There’s no time for anything else.” – Keanu Reeves
-21.  You have to [change your life](/5-simple-daily-habits-that-can-actually-change-your-life) if you’re not happy, and wake up if things aren’t going the way you want.” – Keanu Reeves
+21.  You have to [change your life](https://selfsaid.30tools.com/5-simple-daily-habits-that-can-actually-change-your-life) if you’re not happy, and wake up if things aren’t going the way you want.” – Keanu Reeves
 22.  “Life is good when you have a good sandwich.” – Keanu Reeves
 23.  “The best way to change it is to do it. Right? And then after a while you become it, and it’s easy.” – Keanu Reeves
 24.  “Energy can’t be created or destroyed, and energy flows. It must be in a direction, with some kind of internal, emotive, spiritual direction. It must have some effect somewhere.” – Keanu Reeves
@@ -80,3 +80,5 @@ Keanu Reeves is known not only for his iconic roles in films but also for his th
 [More](#)
 
 868 Shares
+
+Source: https://selfsaid.30tools.com/keanu-reeves-quotes/

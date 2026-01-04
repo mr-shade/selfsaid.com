@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/doing-one-thing-slowly/'
 
 ![](https://seffsaid.com/wp-content/uploads/doing-one-thing-slowly.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There are days when I feel like I’m living in fast-forward. I bounce between tabs, conversations, chores, thoughts, always slightly ahead of myself, never quite here.
 
@@ -53,11 +53,11 @@ It’s not a performance. It’s a pause.
 
 ## How This Fits Into My Self-Care
 
-This isn’t my entire routine, it’s just one of several habits I return to. Like [one-line journaling](/one-line-journaling), [drinking water with intention](/grounding-power-of-drinking-water), and [a five-minute morning reset](/5-minute-morning-reset), this practice doesn’t take much time.
+This isn’t my entire routine, it’s just one of several habits I return to. Like [one-line journaling](https://selfsaid.30tools.com/one-line-journaling), [drinking water with intention](https://selfsaid.30tools.com/grounding-power-of-drinking-water), and [a five-minute morning reset](https://selfsaid.30tools.com/5-minute-morning-reset), this practice doesn’t take much time.
 
 But it helps. Every time.
 
-\> For more simple, grounding practices like this, check out [The Everyday Self-Care Routine: 7 Habits That Actually Stick](/everyday-self-care-routine).
+\> For more simple, grounding practices like this, check out [The Everyday Self-Care Routine: 7 Habits That Actually Stick](https://selfsaid.30tools.com/everyday-self-care-routine).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdoing-one-thing-slowly%2F)
 
@@ -72,3 +72,5 @@ But it helps. Every time.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/doing-one-thing-slowly/

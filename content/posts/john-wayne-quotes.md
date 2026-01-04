@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/john-wayne-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/john-wayne-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-John Wayne, a towering figure in American film, his legacy as an actor, director, and producer spans an impressive five decades. During his illustrious career, he appeared in more than 170 films, embodying the very essence of [courage](/quotes-about-courage), resilience, and unyielding spirit.
+John Wayne, a towering figure in American film, his legacy as an actor, director, and producer spans an impressive five decades. During his illustrious career, he appeared in more than 170 films, embodying the very essence of [courage](https://selfsaid.30tools.com/quotes-about-courage), resilience, and unyielding spirit.
 
-John Wayne’s characters often mirrored the values he cherished in real life: a sense of justice, the importance of [knowing your worth](/know-your-worth-quotes), and an unshakeable moral compass. From the law-abiding marshal to the fearless cowboy, Wayne’s portrayals in films like “True Grit,” “The Searchers,” and “Stagecoach” left an indelible mark on Hollywood and audiences worldwide. His deep voice, distinctive walk, and larger-than-life persona transformed him into a symbol of American grit and determination.
+John Wayne’s characters often mirrored the values he cherished in real life: a sense of justice, the importance of [knowing your worth](https://selfsaid.30tools.com/know-your-worth-quotes), and an unshakeable moral compass. From the law-abiding marshal to the fearless cowboy, Wayne’s portrayals in films like “True Grit,” “The Searchers,” and “Stagecoach” left an indelible mark on Hollywood and audiences worldwide. His deep voice, distinctive walk, and larger-than-life persona transformed him into a symbol of American grit and determination.
 
 In this selection of John Wayne quotes, you’ll find wisdom not only from the characters Wayne brought to life on screen but also from the man himself. His personal quotes offer a window into his philosophy, beliefs, and the principles that guided him both in his career and in his life. Through these words, you’ll gain insights into the ethos of a man who stood tall in the face of adversity, championing the values of integrity and fortitude.
 
@@ -133,7 +133,7 @@ In this selection of John Wayne quotes, you’ll find wisdom not only from the c
 111.  “It’s rough all over. All you can do is hold onto your hopes.” – From “Island in the Sky” (1953)
 112.  “I’m a man of few words but many thoughts.” – From “Jet Pilot” (1957)
 113.  “I’m not the sort to back down for anybody. I stick to my beliefs.” – John Wayne
-114.  Sometimes it takes more [courage to live](/free-spirit-quotes) than to die.” – From “Pittsburgh” (1942)
+114.  Sometimes it takes more [courage to live](https://selfsaid.30tools.com/free-spirit-quotes) than to die.” – From “Pittsburgh” (1942)
 115.  “A man’s got to do what he thinks is best.” – From “Dark Command” (1940)
 116.  “I believe in God, family, and honest hard work.” – John Wayne
 117.  “We fight a war with tools, not with anger.” – From “The Fighting Seabees” (1944)
@@ -155,3 +155,5 @@ In this selection of John Wayne quotes, you’ll find wisdom not only from the c
 [More](#)
 
 113 Shares
+
+Source: https://selfsaid.30tools.com/john-wayne-quotes/

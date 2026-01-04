@@ -12,14 +12,14 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-growing-up/'
 
 ![130 Inspirational Quotes About Growing Up](https://seffsaid.com/wp-content/uploads/quotes-about-growing-up.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Growing up is a process unique to each individual, filled with moments of learning, self-discovery, and personal growth. This collection of 130 quotes about growing up brings together a wide range of voices from different walks of life – writers, philosophers, celebrities, and thinkers – each offering their unique insights on this universal experience. I hope you enjoy them.
 
 1.  “You don’t stop dreaming when you grow old, you grow old when you stop dreaming.” – Unknown
 2.  “You don’t grow up, you just get older.” – Jon Bon Jovi
 3.  “The older I grow, the more I distrust the familiar doctrine that age brings wisdom.” – H.L. Mencken
-4.  It’s only when we truly know and understand that we have a limited time on earth – and that we have no way of knowing when our time is up – that we will begin to [live each day to the fullest](/live-life-to-the-fullest), as if it was the only one we had.” – Elisabeth Kübler-Ross
+4.  It’s only when we truly know and understand that we have a limited time on earth – and that we have no way of knowing when our time is up – that we will begin to [live each day to the fullest](https://selfsaid.30tools.com/live-life-to-the-fullest), as if it was the only one we had.” – Elisabeth Kübler-Ross
 5.  “The most important thing that parents can teach their children is how to get along without them.” – Frank A. Clark
 6.  “The awkward moment when you’re wearing Nike’s and you can’t do it.” – Unknown
 7.  “A grownup is a child with layers on.” – Woody Harrelson
@@ -30,7 +30,7 @@ Growing up is a process unique to each individual, filled with moments of learni
 12.  “To be able to watch your children’s children grow up is truly a blessing from above.” – Byron Pulsifer
 13.  “Everyone thinks you make mistakes when you’re young. But I don’t think we make any fewer when we’re grown up.” – Jodi Picoult
 14.  “Sometimes the hardest part of growing up is that you have to do what is right for you, even if it means breaking someone’s heart. Including your own.” – Unknown
-15.  Youth is not a time of life; it is a [state of mind.”](/how-i-cultivated-a-focused-state-of-mind) – Samuel Ullman
+15.  Youth is not a time of life; it is a [state of mind.”](https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind) – Samuel Ullman
 16.  “You don’t stop laughing when you grow old, you grow old when you stop laughing.” – George Bernard Shaw
 17.  “The best part about growing up is that you decide who you want to be.” – Unknown
 18.  “Aging is not lost youth but a new stage of opportunity and strength.” – Betty Friedan
@@ -60,13 +60,13 @@ Growing up is a process unique to each individual, filled with moments of learni
 42.  “Growing up is such a barbarous business, full of inconvenience and pimples.” – J.M. Barrie
 43.  “We never really grow up, we only learn how to act in public.” – Bryan White
 44.  “I am convinced that growing up is a process of managing to find opportunities for learning in the midst of overwhelming chaos.” – Kay Redfield Jamison
-45.  “As you grow up, your priorities change. Nights out are swapped for nights in, your circle gets smaller and games, drama and [partying every day](/party-quotes) just aren’t entertaining anymore. You get to a point where it’s quality over quantity, like your career, who you spend your time with and your goals for the future. What matters to you most is peace, stability, loyalty, and growth.” – Unknown
+45.  “As you grow up, your priorities change. Nights out are swapped for nights in, your circle gets smaller and games, drama and [partying every day](https://selfsaid.30tools.com/party-quotes) just aren’t entertaining anymore. You get to a point where it’s quality over quantity, like your career, who you spend your time with and your goals for the future. What matters to you most is peace, stability, loyalty, and growth.” – Unknown
 46.  “Growing up is losing some illusions, in order to acquire others.” – Virginia Woolf
 47.  “No matter how much suffering you went through, you never wanted to let go of those memories.” – Haruki Murakami
 48.  “Most people won’t realize that writing is a craft. You have to take your apprenticeship in it like anything else.” – Katherine Anne Porter
-49.  “When I was a boy of 14, my father was so ignorant I could hardly stand to have the old man around. But when I got to be 21, I was astonished at how much he had learned in seven years.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+49.  “When I was a boy of 14, my father was so ignorant I could hardly stand to have the old man around. But when I got to be 21, I was astonished at how much he had learned in seven years.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 50.  “To grow up is to wonder about things; to be grown up is to slowly forget the things you wondered about.” – Jostein Gaarder
-51.  Aging is an extraordinary process where you become the person you always should have been.” – [David Bowie](/david-bowie-quotes)
+51.  Aging is an extraordinary process where you become the person you always should have been.” – [David Bowie](https://selfsaid.30tools.com/david-bowie-quotes)
 52.  “Life is about change, sometimes it’s painful, sometimes it’s beautiful, but most of the time it’s both.” – Kristin Kreuk
 53.  “Do not regret growing older. It is a privilege denied to many.” – Unknown
 54.  “We grow neither better nor worse as we get old, but more like ourselves.” – May Lamberton Becker
@@ -115,10 +115,10 @@ Growing up is a process unique to each individual, filled with moments of learni
 97.  “Growing up is optional. Growing old is inevitable.” – Unknown
 98.  “We don’t stop playing because we grow old; we grow old because we stop playing.” – George Bernard Shaw
 99.  “You grow up the day you have your first real laugh at yourself.” – Ethel Barrymore
-100.  “I am convinced that most people do not grow up… We marry and dare to have children and call that growing up. I think what we do is mostly grow old.” – [Maya Angelou](/maya-angelou-quotes)
+100.  “I am convinced that most people do not grow up… We marry and dare to have children and call that growing up. I think what we do is mostly grow old.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 101.  “I guess that’s part of growing up, too – saying goodbye to the things you used to love.” – Jenny Han
 102.  “To be old and wise, you must first be young and stupid.” – Unknown
-103.  Everyone’s a star and deserves the right to twinkle.” – [Marilyn Monroe](/marilyn-monroe-quotes)
+103.  Everyone’s a star and deserves the right to twinkle.” – [Marilyn Monroe](https://selfsaid.30tools.com/marilyn-monroe-quotes)
 104.  “Aging is mandatory, growing up is optional.” – Walt Disney
 105.  “Don’t just teach your children to read. Teach them to question what they read. Teach them to question everything.” – George Carlin
 106.  “To grow up is to stop putting blame on parents.” – Maya Angelou
@@ -160,3 +160,5 @@ Growing up is a process unique to each individual, filled with moments of learni
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-growing-up/

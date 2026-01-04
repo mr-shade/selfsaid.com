@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/mental-health-quotes/'
 
 ![Mental Health Quotes That Actually Help](https://seffsaid.com/wp-content/uploads/mental-health-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-When you’re struggling with your [mental health](/mental-health-journey), it’s easy to feel lost in your thoughts or disconnected from yourself. These quotes are not just inspirational – they’re steady, supportive reminders that meet you where you are.
+When you’re struggling with your [mental health](https://selfsaid.30tools.com/mental-health-journey), it’s easy to feel lost in your thoughts or disconnected from yourself. These quotes are not just inspirational – they’re steady, supportive reminders that meet you where you are.
 
 This collection of 60 mental health quotes is divided into six calming sections. Read through slowly. Save the ones that soften something inside you.
 
@@ -33,8 +33,8 @@ This collection of 60 mental health quotes is divided into six calming sections.
 
 ## To Strengthen Self-Kindness
 
-11.  “[Talk to yourself like you would to someone you love](/talk-to-yourself-like-you-would-to-someone-you-love).” – Brené Brown
-12.  “[You can’t pour from an empty cup](/you-cant-pour-from-an-empty-cup).” – Unknown
+11.  “[Talk to yourself like you would to someone you love](https://selfsaid.30tools.com/talk-to-yourself-like-you-would-to-someone-you-love).” – Brené Brown
+12.  “[You can’t pour from an empty cup](https://selfsaid.30tools.com/you-cant-pour-from-an-empty-cup).” – Unknown
 13.  “Being kind to yourself isn’t a luxury. It’s a survival skill.” – Seff Bray
 14.  “The way you speak to yourself matters.” – Unknown
 15.  “You don’t have to earn rest.” – Seff Bray
@@ -50,7 +50,7 @@ This collection of 60 mental health quotes is divided into six calming sections.
 22.  “You are not broken. You are healing.” – Seff Bray
 23.  “It’s okay if today is just about getting through.” – Unknown
 24.  “Even if no one sees your effort, it still counts.” – Seff Bray
-25.  Your worth is not measured by your [productivity.”](/slay-the-day) – Unknown
+25.  Your worth is not measured by your [productivity.”](https://selfsaid.30tools.com/slay-the-day) – Unknown
 26.  “It’s okay to feel everything and still keep going.” – Seff Bray
 27.  “There’s strength in just being here.” – Unknown
 28.  “You don’t need to explain why you’re struggling. Your feelings are valid.” – Seff Bray
@@ -78,7 +78,7 @@ This collection of 60 mental health quotes is divided into six calming sections.
 44.  “Progress doesn’t always look impressive.” – Seff Bray
 45.  “There is no right way to heal. Just your way.” – Unknown
 46.  “Rest is part of recovery.” – Seff Bray
-47.  “You don’t need permission to [take care of yourself](/50-things-that-you-need-to-start-doing-for-yourself).” – Unknown
+47.  “You don’t need permission to [take care of yourself](https://selfsaid.30tools.com/50-things-that-you-need-to-start-doing-for-yourself).” – Unknown
 48.  “Healing happens in the quiet, in the stillness, in the pause.” – Seff Bray
 49.  “You can go back and try again as many times as you need.” – Unknown
 50.  “There is space for your healing, even if it takes a while.” – Seff Bray
@@ -109,3 +109,5 @@ This collection of 60 mental health quotes is divided into six calming sections.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/mental-health-quotes/

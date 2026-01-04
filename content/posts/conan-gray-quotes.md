@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/conan-gray-quotes/'
 
 ![Conan Gray in concert](https://seffsaid.com/wp-content/uploads/conan-gray-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A collection of Conan Gray quotes that reflect his perspective on creativity, life, love, growing up, and his personal experiences.
 
@@ -20,7 +20,7 @@ A collection of Conan Gray quotes that reflect his perspective on creativity, li
 
 *   “I think that people forget how much of a responsibility artists have to be honest.” — Conan Gray
 *   “I grew up in a small town in Texas, so I never really thought this life was possible for me.” — Conan Gray
-*   I write music because it’s my [way of coping](/5-ways-to-cope-with-lockdown) with the world.” — Conan Gray
+*   I write music because it’s my [way of coping](https://selfsaid.30tools.com/5-ways-to-cope-with-lockdown) with the world.” — Conan Gray
 *   “I think it’s important to stay true to yourself, especially in a world that constantly tries to change you.” — Conan Gray
 *   “As an artist, I think you have to make art that you personally connect to.” — Conan Gray
 *   “I feel like being vulnerable is the most powerful thing an artist can be.” — Conan Gray
@@ -58,7 +58,7 @@ A collection of Conan Gray quotes that reflect his perspective on creativity, li
 *   “I don’t think you ever stop growing or changing, and that’s something I try to reflect in my music.” — Conan Gray
 *   “People resonate with authenticity, and that’s something I try to always bring into my work.” — Conan Gray
 *   “I think creativity comes from a place of vulnerability.” — Conan Gray
-*   I never want to lose that [feeling of excitement](/7-ways-to-make-your-life-exciting-again) I get when I’m creating something new.” — Conan Gray
+*   I never want to lose that [feeling of excitement](https://selfsaid.30tools.com/7-ways-to-make-your-life-exciting-again) I get when I’m creating something new.” — Conan Gray
 *   “The most important thing for me is to stay grounded and remember why I started doing this in the first place.” — Conan Gray
 *   “I think it’s okay to not have everything figured out. Life is about figuring it out as you go.” — Conan Gray
 *   “I don’t think you ever stop learning, especially when it comes to art.” — Conan Gray
@@ -69,7 +69,7 @@ A collection of Conan Gray quotes that reflect his perspective on creativity, li
 *   “For me, music is about connection, both with myself and with others.” — Conan Gray
 *   “I think that as long as you’re being true to yourself, you can’t go wrong.” — Conan Gray
 
-Read more [quotes from famous people](/quotes-by-famous-people) here.
+Read more [quotes from famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fconan-gray-quotes%2F)
 
@@ -84,3 +84,5 @@ Read more [quotes from famous people](/quotes-by-famous-people) here.
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/conan-gray-quotes/

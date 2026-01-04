@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-make-life-simple-again/'
 
 ![Man relaxing at the beach enjoying the simple life](https://seffsaid.com/wp-content/uploads/How-to-Make-Life-Simple-Again.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Life often becomes complicated without us realising it. A few extra commitments, another screen to check, a habit of saying yes when we mean no. Gradually, our days fill up with too much to do and not enough time to breathe. We tell ourselves it’s just a busy season, but sometimes the season never ends.
 
@@ -26,7 +26,7 @@ Our surroundings affect how we feel. When the space around us is cluttered, our 
 
 Start with something small. Choose one surface or drawer and clear it completely. Notice how it feels to see more open space. Keep only what you use or what brings calm and meaning. When you release what you no longer need, you make room for clarity to return.
 
-Simple spaces don’t just look tidier, they help the mind settle. Every empty shelf or clear desk can become a reminder that you don’t have to hold everything at once. Simplicity begins when you [create space to breathe](/14-ways-to-declutter-your-life).
+Simple spaces don’t just look tidier, they help the mind settle. Every empty shelf or clear desk can become a reminder that you don’t have to hold everything at once. Simplicity begins when you [create space to breathe](https://selfsaid.30tools.com/14-ways-to-declutter-your-life).
 
 ## 2\. Protect Your Time
 
@@ -42,7 +42,7 @@ Modern life is louder than ever. Messages, alerts, opinions, and updates compete
 
 Decide what kind of noise you actually need. Try turning off notifications that pull you into endless checking. Leave your phone in another room while you eat or read. Allow yourself moments in the day when nothing demands your attention.
 
-You don’t need to withdraw completely from technology, but you do [need boundaries](/boundaries-strengthening). When you give your mind periods of silence, it starts to find its rhythm again. Quiet is not an absence of life, it’s where life becomes visible.
+You don’t need to withdraw completely from technology, but you do [need boundaries](https://selfsaid.30tools.com/boundaries-strengthening). When you give your mind periods of silence, it starts to find its rhythm again. Quiet is not an absence of life, it’s where life becomes visible.
 
 ## 4\. Nurture Simple Habits
 
@@ -81,3 +81,5 @@ When you simplify what you can, even a little, your mind follows. You start to s
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/how-to-make-life-simple-again/

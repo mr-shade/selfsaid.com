@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/cant-focus-5-minute-fix/'
 
 ![Can’t Focus Lately? Try This 5-Minute Fix](https://seffsaid.com/wp-content/uploads/cant-focus-5-minute-fix.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When your focus disappears, everything starts to feel harder. Simple tasks take longer. You keep rereading the same sentence. You walk into a room and forget why. Your thoughts bounce around without landing anywhere helpful.
 
@@ -53,3 +53,5 @@ Then return to what matters, one thing at a time.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/cant-focus-5-minute-fix/

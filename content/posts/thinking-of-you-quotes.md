@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/thinking-of-you-quotes/'
 
 ![Thinking Of You Quotes](https://seffsaid.com/wp-content/uploads/Thinking-Of-You-Quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 “Thinking of you” quotes have a special way of expressing a wide range of emotions that touch our hearts. Whether for him or for her, these quotes beautifully capture feelings of fondness, warmth, affection, and the joy that comes with thoughts of a loved one.
 
-They inspire you to [follow your heart](/follow-your-heart-quotes), no matter the distance. These messages act as [affirmations](/50-powerful-affirmations-that-can-change-life) of care and adoration, bridging the miles to connect with those we hold dear. They are more than just words; they create emotional connections with the people we love the most.
+They inspire you to [follow your heart](https://selfsaid.30tools.com/follow-your-heart-quotes), no matter the distance. These messages act as [affirmations](https://selfsaid.30tools.com/50-powerful-affirmations-that-can-change-life) of care and adoration, bridging the miles to connect with those we hold dear. They are more than just words; they create emotional connections with the people we love the most.
 
 *   “I think about you constantly, whether it’s with my mind or my heart.” – Terri Guillemets
 *   “Thinking of you is easy – I do it every day. Missing you is the heartache, that never goes away.” – Michael Pryce
@@ -27,13 +27,13 @@ They inspire you to [follow your heart](/follow-your-heart-quotes), no matter th
 *   “You’re in my thoughts and in my heart wherever I may go; On Valentine’s Day, I’d like to say I care more than you know.” – Unknown
 *   “Thinking of you keeps me awake. Dreaming of you keeps me asleep. Being with you keeps me alive.” – Unknown
 *   “Thinking of you is one of my favorite things to do. Just saying.” – Unknown
-*   “Whenever you are in my mind, I [never feel bored](/7-ways-to-make-your-life-exciting-again), I never feel lonely, I never feel gloomy. Just having you in my thoughts is enough to keep me satisfied.” – Unknown
+*   “Whenever you are in my mind, I [never feel bored](https://selfsaid.30tools.com/7-ways-to-make-your-life-exciting-again), I never feel lonely, I never feel gloomy. Just having you in my thoughts is enough to keep me satisfied.” – Unknown
 *   “Although we are miles apart, the thought and touch of you lives within my heart. It is for that reason my dear you will always feel near, even though we are thousands of miles apart!” – Andrew Guzaldo
 *   “Somewhere someone is thinking of you. Someone is calling you an angel. This person is using celestial colors to paint your image. Someone is making you into a vision so beautiful that it can only live in the mind.” – Henry Rollins
 *   “I think of you, and I dream of you all of the time. What am I going to do? I want my heart to tell you that I am in love with you.” – Unknown
 *   “Just wanted to let you know… You’re in my thoughts… all the time!” – Unknown
 *   “Thinking of you, and counting the days until we meet again.” – Unknown
-*   I think about you when I wake up and then again before I [fall asleep](/how-to-fall-asleep-fast). You see, you’re never out of my thoughts.” – Unknown
+*   I think about you when I wake up and then again before I [fall asleep](https://selfsaid.30tools.com/how-to-fall-asleep-fast). You see, you’re never out of my thoughts.” – Unknown
 *   “My thoughts are free to go anywhere, but it’s surprising how often they head in your direction.” – Perez
 *   “You’re such a hard habit to break. I’ve been thinking about you lately and I’ve got you on my mind.” – Chicago
 *   “I find myself smiling whenever I think of you. Note: I smile a lot.” – Unknown
@@ -51,7 +51,7 @@ They inspire you to [follow your heart](/follow-your-heart-quotes), no matter th
 *   “I saw two fallen branches in the shape of a heart. Thought of you.” – Stephanie Perkins
 *   “When I count my blessings, I count you twice.” – Unknown
 *   “Every now and then my heart wanders back in time and all those old feelings awaken the memories in my mind.” – Fad Ibra
-*   I still find each day too short for all the thoughts I want to think, all the walks I want to take, all the [books I want to read](/8-benefits-of-reading-books), and all the friends I want to see.” – John Burroughs
+*   I still find each day too short for all the thoughts I want to think, all the walks I want to take, all the [books I want to read](https://selfsaid.30tools.com/8-benefits-of-reading-books), and all the friends I want to see.” – John Burroughs
 *   “Your thought has taken over my body and my life, every second of every day I think of you.” – Unknown
 *   “You may be far away, but you are never far from my heart. Thinking of you!” – Unknown
 *   “I am thinking of you, in my sleepless solitude tonight. If it’s wrong to love you, then my heart just won’t let me be right.” – Mariah Carey
@@ -191,3 +191,5 @@ They inspire you to [follow your heart](/follow-your-heart-quotes), no matter th
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/thinking-of-you-quotes/

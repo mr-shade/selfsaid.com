@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/buddha-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Buddha-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There’s something about Buddhist wisdom that feels like a quiet exhale. It doesn’t demand. It doesn’t rush. It simply invites you back to stillness, to presence, to the soft truth that you’re already enough.
 
@@ -26,7 +26,7 @@ Read them slowly. Let them sit with you.
 
 “Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.”
 
-The [mind is everything](/train-your-mind-to-see-the-good-in-everything). What you think, you become.”
+The [mind is everything](https://selfsaid.30tools.com/train-your-mind-to-see-the-good-in-everything). What you think, you become.”
 
 “Better than a thousand hollow words, is one word that brings peace.”
 
@@ -125,3 +125,5 @@ Take what resonates. Leave the rest. And let these quiet reminders offer you spa
 [More](#)
 
 60 Shares
+
+Source: https://selfsaid.30tools.com/buddha-quotes/

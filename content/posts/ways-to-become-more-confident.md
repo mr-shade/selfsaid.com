@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/ways-to-become-more-confident/'
 
 ![](https://seffsaid.com/wp-content/uploads/Ways-to-Become-More-Confident.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Confidence is a vital trait that allows individuals to face challenges, build meaningful relationships, and seize opportunities. It isn’t an innate characteristic for everyone, but it can be cultivated through deliberate actions and consistent habits. Here are ten strategies to help you exude assurance and composure in any circumstance.
 
@@ -22,7 +22,7 @@ The way you carry yourself speaks volumes about your self-belief. Stand tall, wi
 
 ## 2\. Develop Competence Through Practice
 
-Preparation is a cornerstone of confidence. Whether it’s delivering a presentation or mastering a skill, thorough practice builds proficiency. Repeatedly engaging with a task helps [reduce anxiety](/48-simple-ways-to-reduce-stress-and-anxiety) and equips you with the tools to handle situations effectively.
+Preparation is a cornerstone of confidence. Whether it’s delivering a presentation or mastering a skill, thorough practice builds proficiency. Repeatedly engaging with a task helps [reduce anxiety](https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety) and equips you with the tools to handle situations effectively.
 
 ## 3\. Set Achievable Goals
 
@@ -54,7 +54,7 @@ The way you present yourself can influence how you feel about yourself. Wearing 
 
 ## 10\. Practice Mindfulness and Relaxation Techniques
 
-Stress and anxiety can undermine confidence. Techniques such as deep breathing, meditation, or yoga can help you [stay calm](/how-to-stay-calm-in-stressful-situations) and centered. A relaxed mind is better equipped to handle challenges with poise.
+Stress and anxiety can undermine confidence. Techniques such as deep breathing, meditation, or yoga can help you [stay calm](https://selfsaid.30tools.com/how-to-stay-calm-in-stressful-situations) and centered. A relaxed mind is better equipped to handle challenges with poise.
 
 Confidence is not about never feeling unsure; it’s about moving forward despite those feelings. By consistently applying these strategies, you can cultivate a steady belief in your abilities and tackle any situation with assurance.
 
@@ -71,3 +71,5 @@ Confidence is not about never feeling unsure; it’s about moving forward despit
 [More](#)
 
 10 Shares
+
+Source: https://selfsaid.30tools.com/ways-to-become-more-confident/

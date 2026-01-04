@@ -11,7 +11,7 @@ original_url: 'https://selfsaid.30tools.com/mindset-is-what-separates-the-best-f
 
 ![Mindset is what separates the best from the rest](https://seffsaid.com/wp-content/uploads/Mindset-is-what-separates-the-best-from-the-rest.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## Mindset Is What Separates The Best From The Rest
 
@@ -36,3 +36,5 @@ In summary, the quote asserts that the key difference between highly successful 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/mindset-is-what-separates-the-best-from-the-rest/

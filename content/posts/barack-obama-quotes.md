@@ -10,7 +10,7 @@ original_url: 'https://selfsaid.30tools.com/barack-obama-quotes/'
 
 ![Barack Obama delivering a speech](https://seffsaid.com/wp-content/uploads/barack-obama-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Barack Obama, the 44th President of the United States, has inspired many with his words, leadership, and vision for a better future. This collection of 60 inspiring quotes by Obama offers a glimpse into his perspective on change, hope, and the power of community.
 
@@ -90,3 +90,5 @@ If you’re looking for a dose of inspiration or a new way to think about the ch
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/barack-obama-quotes/

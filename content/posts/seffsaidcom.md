@@ -13,4 +13,6 @@ original_url: 'https://selfsaid.30tools.com/'
 
 [![Read more about the article The Simple Power of Kindness](https://seffsaid.com/wp-content/uploads/Acts-Of-Kindness-Live-Longer-1024x576-1-300x169.jpg)](/simple-acts-of-kindness-that-can-make-us-live-longer)
 
-## [The Simple Power of Kindness](/simple-acts-of-kindness-that-can-make-us-live-longer)
+## [The Simple Power of Kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer)
+
+Source: https://selfsaid.30tools.com/seffsaidcom/

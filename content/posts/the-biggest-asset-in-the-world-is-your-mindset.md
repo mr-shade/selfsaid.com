@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/the-biggest-asset-in-the-world-is-yo
 
 ![The biggest asset in the world is your mindset.](https://seffsaid.com/wp-content/uploads/The-biggest-asset-in-the-world-is-your-mindset.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## The Biggest Asset In The World Is Your Mindset
 
@@ -38,3 +38,5 @@ The essence of the quote is that the way you think and perceive the world fundam
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/the-biggest-asset-in-the-world-is-your-mindset/

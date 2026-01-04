@@ -12,17 +12,17 @@ original_url: 'https://selfsaid.30tools.com/inspirational-good-morning-quotes/'
 
 ![A beautiful sunrise over a calm sea](https://seffsaid.com/wp-content/uploads/good-morning-quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Starting your day with the right mindset can make all the difference, and this collection of 164 Good Morning Quotes is here to help you do just that. Each quote is a small seed of inspiration, motivation, and wisdom, perfectly suited to set a positive tone for your day.
 
-Think of them as [morning affirmations](/morning-affirmations) for a new beginning, a way to greet each day with enthusiasm and hope, reminding you that [life is a party](/party-quotes), meant to be enjoyed and celebrated every single moment.
+Think of them as [morning affirmations](https://selfsaid.30tools.com/morning-affirmations) for a new beginning, a way to greet each day with enthusiasm and hope, reminding you that [life is a party](https://selfsaid.30tools.com/party-quotes), meant to be enjoyed and celebrated every single moment.
 
-If you find these quotes uplifting, don’t miss out on our collection of 218 [have a good day quotes](/have-a-good-day-quotes), which are sure to carry the positive vibes throughout your day, reinforcing the idea that every day is an opportunity [to live a great day](/ways-to-make-today-a-great-day).
+If you find these quotes uplifting, don’t miss out on our collection of 218 [have a good day quotes](https://selfsaid.30tools.com/have-a-good-day-quotes), which are sure to carry the positive vibes throughout your day, reinforcing the idea that every day is an opportunity [to live a great day](https://selfsaid.30tools.com/ways-to-make-today-a-great-day).
 
 1.  “Morning is an important time of day because how you spend your morning can often tell you what kind of day you are going to have.” – Lemony Snicket
 2.  “Each morning we are born again. What we do today matters most.” – Buddha
-3.  “When you arise in the morning, think of what a precious privilege it is to be alive, to breathe, to think, to enjoy, to love.” – [Marcus Aurelius](/marcus-aurelius-quotes)
+3.  “When you arise in the morning, think of what a precious privilege it is to be alive, to breathe, to think, to enjoy, to love.” – [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)
 4.  “Write it on your heart that every day is the best day in the year.” – Ralph Waldo Emerson
 5.  “I wake up every morning at nine and grab for the morning paper. Then I look at the obituary page. If my name is not on it, I get up.” – Benjamin Franklin
 6.  “Today’s goals: Coffee and kindness. Maybe two coffees, and then kindness.” – Nanea Hoffman
@@ -44,7 +44,7 @@ If you find these quotes uplifting, don’t miss out on our collection of 218 [h
 22.  “Opportunities are like sunrises. If you wait too long, you miss them.” – William Arthur Ward
 23.  “Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.” – William Blake
 24.  “You have to get up every morning and tell yourself I can do this.” – Julie Johnston
-25.  “Give every day the chance to become the most beautiful day of your life.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+25.  “Give every day the chance to become the most beautiful day of your life.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 26.  “The best love is the kind that awakens the soul; that makes us reach for more, that plants the fire in our hearts and brings peace to our minds. That’s what I hope to give you forever.” – Nicholas Sparks
 27.  “It’s a new day. Fresh start, fresh energy, fresh opportunities. Get your mind right, be thankful, be positive and start your day right.” – Unknown
 28.  “Every morning, leave your worries outside your gate, because that’s where they pick up the garbage! Have a worry free day! Rise and shine.” – Unknown
@@ -61,7 +61,7 @@ If you find these quotes uplifting, don’t miss out on our collection of 218 [h
 39.  “Do and act on what you believe to be right, and you’ll wake up the next morning feeling good about yourself.” – Janet Reno
 40.  “Every sunrise hold more promise, and every sunset holds more peace.” – Unknown
 41.  “Wake up with determination. Go to bed with satisfaction.” – George Lorimer
-42.  “Each new morning, every new day, reminds us that we can actually [reinvent our lives](/reinvent-yourself).” – Unknown
+42.  “Each new morning, every new day, reminds us that we can actually [reinvent our lives](https://selfsaid.30tools.com/reinvent-yourself).” – Unknown
 43.  “Success is waking up in the morning, whoever you are, wherever you are, however old or young, and bounding out of bed because there’s something out there that you love to do, that you believe in, that you’re good at – something that’s bigger than you are, and you can hardly wait to get at it again today.” – Whit Hobbs
 44.  “The only difference between a good day and a bad day is your attitude.” – Dennis S. Brown
 45.  “Good morning is not just a word, it’s an action and a belief to live the entire day well.” – Unknown
@@ -78,7 +78,7 @@ If you find these quotes uplifting, don’t miss out on our collection of 218 [h
 56.  “To simply wake up every morning a better person than when I went to bed.” – Sidney Poitier
 57.  “Morning will come, it has no choice.” – Marty Rubin
 58.  “When you arise in the morning, form a resolution to make the day a happy one for a fellow creature.” – Sydney Smith
-59.  “This is a wonderful day. I’ve never seen this one before.” – [Maya Angelou](/maya-angelou-quotes)
+59.  “This is a wonderful day. I’ve never seen this one before.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 60.  “Each day is a new canvas to paint upon. Make sure your picture is full of life and happiness, and at the end of the day you don’t look at it and wish you had painted something different.” – Unknown
 61.  “I like to work in the morning. I like to sometimes go to a place where I’m all alone where I’m not going to get a phone call early that morning, and I like to work until noon.” – Robert Caro
 62.  “I open two gifts each morning. My eyes.” – Unknown
@@ -98,7 +98,7 @@ If you find these quotes uplifting, don’t miss out on our collection of 218 [h
 76.  “I wake up every morning and it’s going to be a great day. You never know when it’s going to be over, so I refuse to have a bad day.” – Paul Henderson
 77.  “Each morning we are born again. What we do today is what matters most.” – Buddha
 78.  “When you arise in the morning, think of what a precious privilege it is to be alive – to breathe, to think, to enjoy, to love.” – Marcus Aurelius
-79.  “Just one small positive thought in the morning can change your whole day.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
+79.  “Just one small positive thought in the morning can change your whole day.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 80.  “Wake up and face life’s challenges head on. Else, life will become quite a challenge.” – Unknown
 81.  “This morning will never ever come back in your life again. Get up and make the most of it.” – Unknown
 82.  “Good morning! Remember: A person can succeed at almost anything for which they have unlimited enthusiasm.” – Charles M. Schwab
@@ -121,7 +121,7 @@ If you find these quotes uplifting, don’t miss out on our collection of 218 [h
 99.  “Good morning. Life is like a mirror: it will smile at you if you smile at it.” – Unknown
 100.  “Every morning starts a new page in your story. Make it a great one today.” – Doe Zantamata
 101.  “A new day also means a new beginning. Forget about the past and have a fresh start.” – Unknown
-102.  “The only way to do great work is to love what you do. If you haven’t found it yet, keep looking. Don’t settle.” – [Steve Jobs](/steve-jobs-quotes)
+102.  “The only way to do great work is to love what you do. If you haven’t found it yet, keep looking. Don’t settle.” – [Steve Jobs](https://selfsaid.30tools.com/steve-jobs-quotes)
 103.  “Wake up and face life’s challenges head-on. Else, life will become quite a challenge.” – Unknown
 104.  “The biggest task in the morning is to try to keep my headspace from being invaded by the outside world.” – Austin Butler
 105.  “The morning shines upon everyone the same. It is what you do with it that makes the difference.” – Unknown
@@ -198,3 +198,5 @@ Pin57
 [More](#)
 
 57 Shares
+
+Source: https://selfsaid.30tools.com/inspirational-good-morning-quotes/

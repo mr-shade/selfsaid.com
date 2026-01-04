@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/16-simple-ways-to-make-someone-happy
 
 ![Woman making someone happy through laughter.](https://seffsaid.com/wp-content/uploads/make-someone-happy.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 You don’t need grand gestures to make someone’s day brighter. Often, the smallest moments of kindness are the ones that stay with us. A quiet word, a thoughtful act, or a small show of care can lift a person more than you realise. Happiness spreads easily. When you do something kind, it not only helps the other person but also brings a quiet sense of joy to you. Here are sixteen simple ways to make someone happy today.
 
@@ -38,7 +38,7 @@ Send a photo, a quote, or a song that lifted your mood. It’s an easy way to sh
 
 ## 6\. Do something kind without being asked
 
-Make a cup of tea, tidy a small space, or help carry something heavy. [Acts of quiet help](/simple-acts-of-kindness-that-can-make-us-live-longer) show care in a way words often can’t. Small gestures build connection over time.
+Make a cup of tea, tidy a small space, or help carry something heavy. [Acts of quiet help](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) show care in a way words often can’t. Small gestures build connection over time.
 
 ## 7\. Say thank you for something they do often
 
@@ -54,7 +54,7 @@ If they’re working toward a goal, remind them you believe in them. Support doe
 
 ## 10\. Share gratitude
 
-Tell them how they’ve made your life better. Be specific. [Gratitude](/cultivate-more-gratitude) reminds people that their presence matters. It strengthens relationships and often makes both of you feel more grounded.
+Tell them how they’ve made your life better. Be specific. [Gratitude](https://selfsaid.30tools.com/cultivate-more-gratitude) reminds people that their presence matters. It strengthens relationships and often makes both of you feel more grounded.
 
 ## 11\. Spend unhurried time together
 
@@ -97,3 +97,5 @@ Making someone happy doesn’t require effort or planning. It begins with attent
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/16-simple-ways-to-make-someone-happy/

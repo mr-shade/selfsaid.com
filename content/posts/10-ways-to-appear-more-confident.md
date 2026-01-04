@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/10-ways-to-appear-more-confident/'
 
 ![](https://seffsaid.com/wp-content/uploads/how-to-appear-confident.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 “_Low self-confidence isn’t a life sentence. Self-confidence can be learned, practiced, and mastered–just like any other skill. Once you master it, everything in your life will change for the better.” **Barrie Davenport**_
 
@@ -20,7 +20,7 @@ What message do you project when you walk into a room? What is your body saying?
 
 Our poses, postures, hand positions, shoulders, etc. are a great source of information that most people read without even thinking. For example, if we are feeling confident we will stand a certain way, and another way if we feel nervous or intimidated.
 
-In many areas of our lives, confidence is the [key to success](/mindsets-for-success). Many studies have demonstrated that people who appear confident achieve greater success than their peers. For some, confidence comes naturally, but for most people appearing confident, especially in social situations, is difficult.
+In many areas of our lives, confidence is the [key to success](https://selfsaid.30tools.com/mindsets-for-success). Many studies have demonstrated that people who appear confident achieve greater success than their peers. For some, confidence comes naturally, but for most people appearing confident, especially in social situations, is difficult.
 
 Luckily, we can learn how to appear confident by practicing techniques to alter our body language so that we always appear cool, calm, and self-assured. And as an added and very important bonus, when you practice positive body language, you actually send messages to your brain that reinforce confident feelings.
 
@@ -83,3 +83,5 @@ Pin36.66K
 [More](#)
 
 36.66K Shares
+
+Source: https://selfsaid.30tools.com/10-ways-to-appear-more-confident/

@@ -9,7 +9,7 @@ featured_image: >-
 original_url: 'https://selfsaid.30tools.com/never-quit/'
 ---
 
-All [Printable Quotes](/printable-quotes)
+All [Printable Quotes](https://selfsaid.30tools.com/printable-quotes)
 
 # Never Quit Printable Quote
 
@@ -78,3 +78,5 @@ $4.99 – Instant Download
 [More](#)
 
 0 Shares
+
+Source: https://selfsaid.30tools.com/never-quit/

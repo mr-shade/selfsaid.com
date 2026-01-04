@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/bob-marley-quotes/'
 
 ![Bob Marley performing live](https://seffsaid.com/wp-content/uploads/Bob-Marley-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Few artists have left such an impact on how we view life and love as Bob Marley. His quotes speak to the heart, reminding us of the beauty and joy that can be found in simple moments.
 
@@ -442,7 +442,7 @@ Few artists have left such an impact on how we view life and love as Bob Marley.
 
 “Your worst enemy could be your best friend and your best friend your worst enemy.” – Bob Marley
 
-Read more [quotes by famous singers](/quotes-by-famous-people) here.
+Read more [quotes by famous singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-marley-quotes%2F)
 
@@ -457,3 +457,5 @@ Read more [quotes by famous singers](/quotes-by-famous-people) here.
 [More](#)
 
 12 Shares
+
+Source: https://selfsaid.30tools.com/bob-marley-quotes/

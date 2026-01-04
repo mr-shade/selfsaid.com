@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/self-care-on-a-budget/'
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-on-a-budget.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Self-care is often shown as spa days, weekend getaways, and expensive treatments. Those things can be nice, but they are not the only way to take care of yourself. In fact, many of the most effective forms of self-care cost very little or nothing at all.
 
@@ -42,7 +42,7 @@ Cooking at home not only saves money but also gives you more control over what y
 
 ## 4\. Take Breaks from Screens
 
-Constant notifications can leave you [feeling tired](/reasons-feel-tired) and distracted. Set aside time each day to step away from your phone, computer, and TV. Use that time for something more restorative, like reading, walking, journaling, or sitting quietly with a cup of tea.
+Constant notifications can leave you [feeling tired](https://selfsaid.30tools.com/reasons-feel-tired) and distracted. Set aside time each day to step away from your phone, computer, and TV. Use that time for something more restorative, like reading, walking, journaling, or sitting quietly with a cup of tea.
 
 If it feels difficult to disconnect, start small. Turn your phone to silent for fifteen minutes and do something that brings you a sense of calm. Over time, you can make that break longer.
 
@@ -66,7 +66,7 @@ The key is to enjoy them fully. Slow down enough to notice the taste, the scent,
 
 ## 8\. Make Time for Nature
 
-Spending time outdoors is one of the most effective and free forms of self-care. Whether it is a walk in a park, sitting under a tree, or watching the sky at sunset, [nature helps reduce stress](/how-to-reduce-stress) and bring perspective.
+Spending time outdoors is one of the most effective and free forms of self-care. Whether it is a walk in a park, sitting under a tree, or watching the sky at sunset, [nature helps reduce stress](https://selfsaid.30tools.com/how-to-reduce-stress) and bring perspective.
 
 If you live in a city, try finding green spaces nearby or visiting quieter streets. Even a few minutes outside can make you feel more refreshed.
 
@@ -93,3 +93,5 @@ Self-care is not about spending more, it is about making choices that protect yo
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/self-care-on-a-budget/

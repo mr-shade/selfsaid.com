@@ -10,9 +10,9 @@ original_url: 'https://selfsaid.30tools.com/drake-quotes/'
 
 ![Drake in concert](https://seffsaid.com/wp-content/uploads/Drake-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Drake’s quotes have a unique way of being both inspirational and practical, inspiring action and [changing lives](/change-your-life-for-the-better). His words resonate with many because they address real-life challenges and triumphs. Below, you’ll find some of Drake’s best quotes that can motivate and guide you in your everyday life. Read more [quotes by famous people](/quotes-by-famous-people) here.
+Drake’s quotes have a unique way of being both inspirational and practical, inspiring action and [changing lives](https://selfsaid.30tools.com/change-your-life-for-the-better). His words resonate with many because they address real-life challenges and triumphs. Below, you’ll find some of Drake’s best quotes that can motivate and guide you in your everyday life. Read more [quotes by famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 ## Drake Quotes
 
@@ -56,7 +56,7 @@ Drake’s quotes have a unique way of being both inspirational and practical, in
 38.  “Never let success get to your head and never let failure get to your heart.” – Drake
 39.  “The best advice comes from people who don’t give advice.” – Drake
 40.  “I’ve always been able to transform pain into something constructive.” – Drake
-41.  “[You only live once](/you-only-live-once-quotes), but you can do it a thousand different ways.” – Drake
+41.  “[You only live once](https://selfsaid.30tools.com/you-only-live-once-quotes), but you can do it a thousand different ways.” – Drake
 42.  “I respect what everyone’s doing, but I’m just doing me.” – Drake
 43.  “It’s never too late to realize what you want in your life and it’s never wrong to fight for it.” – Drake
 44.  “Sometimes it’s the journey that teaches you a lot about your destination.” – Drake
@@ -80,3 +80,5 @@ Drake’s quotes have a unique way of being both inspirational and practical, in
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/drake-quotes/

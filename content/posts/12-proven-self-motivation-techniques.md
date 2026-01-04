@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/12-proven-self-motivation-techniques
 
 ![Runner using self-motivation techniques to run a race](https://seffsaid.com/wp-content/uploads/self-motivation-techniques.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Sometimes [keeping motivated](/dont-want-to-do-anything-anymore) can be tough. How many times have you started a project with an abundance of enthusiasm, only for that initial vigor to eventually fizzle out?
+Sometimes [keeping motivated](https://selfsaid.30tools.com/dont-want-to-do-anything-anymore) can be tough. How many times have you started a project with an abundance of enthusiasm, only for that initial vigor to eventually fizzle out?
 
-Unfortunately, life has the habit of swamping you with problems, mundane tasks, and dilemmas that can kill any desire you may have to do anything. An occasional lack of motivation is normal but long term, it can seriously affect our lives. Why? When you lose your self-motivation, you lose the ability to work towards and ultimately achieve your goals, dreams desires. The major factor in being successful in anything is the ability to [stay consistently motivated](/dont-want-to-do-anything-anymore).
+Unfortunately, life has the habit of swamping you with problems, mundane tasks, and dilemmas that can kill any desire you may have to do anything. An occasional lack of motivation is normal but long term, it can seriously affect our lives. Why? When you lose your self-motivation, you lose the ability to work towards and ultimately achieve your goals, dreams desires. The major factor in being successful in anything is the ability to [stay consistently motivated](https://selfsaid.30tools.com/dont-want-to-do-anything-anymore).
 
 Sadly, there’s no motivational pill (wouldn’t that be great!) or magic potion you can take. But the good news is that a lack of self motivation can be changed. While you can’t always control what happens to you, you can certainly control how you respond to it. There are techniques and methods you can learn and employ that can help motivate you into action and keep you motivated.
 
@@ -34,7 +34,7 @@ Whenever you need to complete a task that you really don’t want to do, try thi
 
 Benefits might include:
 
-*   [self-improvement](/6-self-improvement-tips-that-will-change-your-life) – you’ll learn something new that’ll help your [personal development](/12-personal-development-tips).
+*   [self-improvement](https://selfsaid.30tools.com/6-self-improvement-tips-that-will-change-your-life) – you’ll learn something new that’ll help your [personal development](https://selfsaid.30tools.com/12-personal-development-tips).
 *   material reward – you’ll get paid for finishing the task.
 *   a feeling of accomplishment – you’ll feel great for having the strength of character to push forward and complete an unwanted, tedious task.
 
@@ -54,9 +54,9 @@ When working on a project, some things will be within your control, and others o
 
 ## 6\. Surround yourself with positive people
 
-Are your friends, colleagues, or acquaintances inspiring people who emanate [positive energy](/morning-affirmations)? Or do they continually complain or see the worst-case scenario of a situation? Studies have shown that spending time with [negative people](/stay-away-from-negative-people) can have a seriously detrimental effect on our well-being and self-motivation.
+Are your friends, colleagues, or acquaintances inspiring people who emanate [positive energy](https://selfsaid.30tools.com/morning-affirmations)? Or do they continually complain or see the worst-case scenario of a situation? Studies have shown that spending time with [negative people](https://selfsaid.30tools.com/stay-away-from-negative-people) can have a seriously detrimental effect on our well-being and self-motivation.
 
-On the other hand, people with a [positive attitude](/easy-ways-to-develop-a-positive-attitude) and mindset are great motivators. Try to remove negative people from your life and surround yourself with happy, positive people who will encourage and empower you.
+On the other hand, people with a [positive attitude](https://selfsaid.30tools.com/easy-ways-to-develop-a-positive-attitude) and mindset are great motivators. Try to remove negative people from your life and surround yourself with happy, positive people who will encourage and empower you.
 
 ## 7\. Learn from your mistakes
 
@@ -64,19 +64,19 @@ People tend to lose motivation when things don’t go as planned. It is importan
 
 ## 8\. Sleep
 
-This is my favorite self-motivation technique! [Getting adequate sleep](/how-to-fall-asleep-fast) is tremendously important to staying motivated throughout the day. It’s difficult to stay enthusiastic about a project when you are exhausted.
+This is my favorite self-motivation technique! [Getting adequate sleep](https://selfsaid.30tools.com/how-to-fall-asleep-fast) is tremendously important to staying motivated throughout the day. It’s difficult to stay enthusiastic about a project when you are exhausted.
 
 ## 9\. Use positive affirmations
 
-Affirmations are simple statements declaring your goals or desires. When repeated daily, [positive affirmations](/100-positive-affirmations-that-will-change-your-life) have the power to alter your thinking and then your reality. You can actually reprogram your mind to be positive and motivated in all that you do.
+Affirmations are simple statements declaring your goals or desires. When repeated daily, [positive affirmations](https://selfsaid.30tools.com/100-positive-affirmations-that-will-change-your-life) have the power to alter your thinking and then your reality. You can actually reprogram your mind to be positive and motivated in all that you do.
 
 ## 10\. Break the task into smaller pieces
 
-Taking on a large project can make you feel overwhelmed and crushed by the complexities of completing the task. Any motivation you may have had will soon disappear. There is though a simple solution – [break the task into small achievable steps](/how-to-break-a-big-task-into-small-steps). Tackling the project just one simple step at a time will make the task more manageable, less intimidating and give you back the motivation you need.
+Taking on a large project can make you feel overwhelmed and crushed by the complexities of completing the task. Any motivation you may have had will soon disappear. There is though a simple solution – [break the task into small achievable steps](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps). Tackling the project just one simple step at a time will make the task more manageable, less intimidating and give you back the motivation you need.
 
 ## 11\. Read positive material
 
-The [benefits of reading](/8-benefits-of-reading-books) are immense. Reading uplifting content, success stories, [inspirational sayings](/100-best-inspirational-sayings-about-life), tales of rags to riches, etc. will help keep you motivated.
+The [benefits of reading](https://selfsaid.30tools.com/8-benefits-of-reading-books) are immense. Reading uplifting content, success stories, [inspirational sayings](https://selfsaid.30tools.com/100-best-inspirational-sayings-about-life), tales of rags to riches, etc. will help keep you motivated.
 
 ## 12\. Reward yourself
 
@@ -95,3 +95,5 @@ This is a great way to get motivated. Before you start a dreaded task, decide on
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/12-proven-self-motivation-techniques/

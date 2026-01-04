@@ -12,16 +12,16 @@ original_url: 'https://selfsaid.30tools.com/rare-inspirational-quotes/'
 
 ![Rare Quotes You've Probably Never Heard Before](https://seffsaid.com/wp-content/uploads/rare-quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Welcome to a collection of 188 rare quotes, each brimming with inspiration. These quotes may not be widely known, but their power and depth make them deserving of more attention.
 
-Each quote in this list offers a unique perspective, shedding light on various aspects of life, happiness, success, and [perseverance](/quotes-about-perseverance). These quotes can uplift, challenge, and inspire you in unexpected ways.
+Each quote in this list offers a unique perspective, shedding light on various aspects of life, happiness, success, and [perseverance](https://selfsaid.30tools.com/quotes-about-perseverance). These quotes can uplift, challenge, and inspire you in unexpected ways.
 
 1.  “I have learned over the years that when one’s mind is made up, this diminishes fear.” – Rosa Parks
 2.  “Believe you can and you’re halfway there.” – Theodore Roosevelt
 3.  “It does not matter how slowly you go as long as you do not stop.” – Confucius
-4.  “Our lives begin to end the day we become silent about things that matter.” – [Martin Luther King Jr.](/martin-luther-king-quotes)
+4.  “Our lives begin to end the day we become silent about things that matter.” – [Martin Luther King Jr.](https://selfsaid.30tools.com/martin-luther-king-quotes)
 5.  “The only limit to our realization of tomorrow will be our doubts of today.” – Franklin D. Roosevelt
 6.  “Do what you can, with what you have, where you are.” – Theodore Roosevelt
 7.  “The most common way people give up their power is by thinking they don’t have any.” – Alice Walker
@@ -34,7 +34,7 @@ Each quote in this list offers a unique perspective, shedding light on various a
 14.  “Strive not to be a success, but rather to be of value.” – Albert Einstein
 15.  “When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.” – Henry Ford
 16.  “The most difficult thing is the decision to act, the rest is merely tenacity.” – Amelia Earhart
-17.  Life is what happens when you’re busy making other plans.” – [John Lennon](/john-lennon-quotes)
+17.  Life is what happens when you’re busy making other plans.” – [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes)
 18.  “Don’t judge each day by the harvest you reap but by the seeds that you plant.” – Robert Louis Stevenson
 19.  “Everything you can imagine is real.” – Pablo Picasso
 20.  “Do not wait to strike till the iron is hot; but make it hot by striking.” – William Butler Yeats
@@ -45,7 +45,7 @@ Each quote in this list offers a unique perspective, shedding light on various a
 25.  “I find that the harder I work, the more luck I seem to have.” – Thomas Jefferson
 26.  “A dream doesn’t become reality through magic; it takes sweat, determination, and hard work.” – Colin Powell
 27.  “In the end, it’s not the years in your life that count. It’s the life in your years.” – Abraham Lincoln
-28.  Your time is precious, so don’t waste it living someone else’s life.” – [Steve Jobs](/steve-jobs-quotes)
+28.  Your time is precious, so don’t waste it living someone else’s life.” – [Steve Jobs](https://selfsaid.30tools.com/steve-jobs-quotes)
 29.  “Winning isn’t everything, but wanting to win is.” – Vince Lombardi
 30.  “Every child is an artist. The problem is how to remain an artist once he grows up.” – Pablo Picasso
 31.  “You can never cross the ocean until you have the courage to lose sight of the shore.” – Christopher Columbus
@@ -56,16 +56,16 @@ Each quote in this list offers a unique perspective, shedding light on various a
 36.  “Success usually comes to those who are too busy to be looking for it.” – Henry David Thoreau
 37.  “The only limit to our realization of tomorrow is our doubts of today.” – Franklin D. Roosevelt
 38.  “Do one thing every day that scares you.” – Eleanor Roosevelt
-39.  All progress takes place outside the [comfort zone.”](/50-best-comfort-zone-quotes) – Michael John Bobak
+39.  All progress takes place outside the [comfort zone.”](https://selfsaid.30tools.com/50-best-comfort-zone-quotes) – Michael John Bobak
 40.  “Don’t let the fear of losing be greater than the excitement of winning.” – Robert Kiyosaki
 41.  “If you really look closely, most overnight successes took a long time.” – Steve Jobs
 42.  “The only place where dreams are impossible is in your own mind.” – Emilee Rivera
 43.  “Start where you are. Use what you have. Do what you can.” – Arthur Ashe
 44.  “Fall seven times and stand up eight.” – Japanese Proverb
 45.  “Everything you want is on the other side of fear.” – Jack Canfield
-46.  “Happiness is not something readymade. It comes from your own actions.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
+46.  “Happiness is not something readymade. It comes from your own actions.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 47.  “The way to get started is to quit talking and begin doing.” – Walt Disney
-48.  “The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.” – [Winston Churchill](/winston-churchill-quotes)
+48.  “The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 49.  “Don’t watch the clock; do what it does. Keep going.” – Sam Levenson
 50.  “You don’t have to be great to start, but you have to start to be great.” – Zig Ziglar
 51.  “A clear vision, backed by definite plans, gives you a tremendous feeling of confidence and personal power.” – Brian Tracy
@@ -74,7 +74,7 @@ Each quote in this list offers a unique perspective, shedding light on various a
 54.  “The future belongs to those who believe in the beauty of their dreams.” – Eleanor Roosevelt
 55.  “It’s not whether you get knocked down, it’s whether you get up.” – Vince Lombardi
 56.  “People who are crazy enough to think they can change the world, are the ones who do.” – Rob Siltanen
-57.  We may encounter many defeats but we must not be defeated.” – [Maya Angelou](/maya-angelou-quotes)
+57.  We may encounter many defeats but we must not be defeated.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 58.  “Knowing is not enough; we must apply. Wishing is not enough; we must do.” – Johann Wolfgang von Goethe
 59.  “Security is mostly a superstition. Life is either a daring adventure or nothing.” – Helen Keller
 60.  “Success is getting what you want, happiness is wanting what you get.” – W.P. Kinsella
@@ -91,7 +91,7 @@ Each quote in this list offers a unique perspective, shedding light on various a
 71.  “Take up one idea. Make that one idea your life – think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success.” – Swami Vivekananda
 72.  “All our dreams can come true if we have the courage to pursue them.” – Walt Disney
 73.  “Good things come to people who wait, but better things come to those who go out and get them.” – Anonymous
-74.  “[Time passes](/the-20-greatest-time-passing-quotes), like clouds in the sky. Weeks and months go by as if they were a single day. Summer fades to fall, winter yields to spring, different minutes of the same hour.” – Martel, Yann
+74.  “[Time passes](https://selfsaid.30tools.com/the-20-greatest-time-passing-quotes), like clouds in the sky. Weeks and months go by as if they were a single day. Summer fades to fall, winter yields to spring, different minutes of the same hour.” – Martel, Yann
 75.  “Success is walking from failure to failure with no loss of enthusiasm.” – Winston Churchill
 76.  “Just when the caterpillar thought the world was ending, he turned into a butterfly.” – Proverb
 77.  “Successful entrepreneurs are givers and not takers of positive energy.” – Anonymous
@@ -103,7 +103,7 @@ Each quote in this list offers a unique perspective, shedding light on various a
 83.  “If you don’t value your time, neither will others. Stop giving away your time and talents – start charging for it.” – Kim Garst
 84.  “A successful man is one who can lay a firm foundation with the bricks others have thrown at him.” – David Brinkley
 85.  “No one can make you feel inferior without your consent.” – Eleanor Roosevelt
-86.  Don’t count the days, make the days count.” – [Muhammad Ali](/muhammad-ali-quotes)
+86.  Don’t count the days, make the days count.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 87.  “I didn’t come this far, to only come this far.” – Unknown
 88.  “The harder you work for something, the greater you’ll feel when you achieve it.” – Unknown
 89.  “Dream bigger. Do bigger.” – Unknown
@@ -121,11 +121,11 @@ Each quote in this list offers a unique perspective, shedding light on various a
 101.  “You don’t have to be extreme, just consistent.” – Unknown
 102.  “Don’t stop when you’re tired. Stop when you’re done.” – Unknown
 103.  “Wake up with determination. Go to bed with satisfaction.” – Unknown
-104.  “Do something today that [your future self will thank you for](/future-self).” – Unknown
+104.  “Do something today that [your future self will thank you for](https://selfsaid.30tools.com/future-self).” – Unknown
 105.  “It’s going to be hard, but hard doesn’t mean impossible.” – Unknown
 106.  “Don’t wait for opportunity. Create it.” – Unknown
 107.  “Sometimes later becomes never.” – Unknown
-108.  Great things never come from [comfort zones.”](/10-ways-to-step-out-of-your-comfort-zone) – Unknown
+108.  Great things never come from [comfort zones.”](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone) – Unknown
 109.  “Dream it. Wish it. Do it.” – Unknown
 110.  “Stay focused, go after your dreams and keep moving toward your goals.” – Unknown
 111.  “The best way to predict your future is to create it.” – Abraham Lincoln
@@ -150,20 +150,20 @@ Each quote in this list offers a unique perspective, shedding light on various a
 130.  “Your time is limited, don’t waste it living someone else’s life.” – Steve Jobs
 131.  “Your life does not get better by chance, it gets better by change.” – Jim Rohn
 132.  “Don’t count the days, make the days count.” – Muhammad Ali
-133.  “There are no limits, only plateaus. And you must not stay there. You must go beyond them.” – [Master Oogway](/master-oogway-quotes)
+133.  “There are no limits, only plateaus. And you must not stay there. You must go beyond them.” – [Master Oogway](https://selfsaid.30tools.com/master-oogway-quotes)
 134.  “Everything has beauty, but not everyone sees it.” – Confucius
 135.  “It is never too late to be what you might have been.” – George Eliot
 136.  “I can, therefore I am.” – Simone Weil
 137.  “Act as if what you do makes a difference. It does.” – William James
 138.  “The only real mistake is the one from which we learn nothing.” – Henry Ford
 139.  “Do not go where the path may lead, go instead where there is no path and leave a trail.” – Ralph Waldo Emerson
-140.  “It is better to be alone than in bad company.” – [George Washington](/george-washington-quotes)
+140.  “It is better to be alone than in bad company.” – [George Washington](https://selfsaid.30tools.com/george-washington-quotes)
 141.  “The difference between ordinary and extraordinary is that little extra.” – Jimmy Johnson
 142.  “The only place success comes before work is in the dictionary.” – Vidal Sassoon
 143.  “The only person you should try to be better than is the person you were yesterday.” – Unknown
 144.  “Believe and act as if it were impossible to fail.” – Charles Kettering
 145.  “The purpose of our lives is to be happy.” – Dalai Lama
-146.  “The only way to have a friend is to be one.” – [Wilferd Peterson](/40-inspirational-quotes-wilferd-peterson)
+146.  “The only way to have a friend is to be one.” – [Wilferd Peterson](https://selfsaid.30tools.com/40-inspirational-quotes-wilferd-peterson)
 147.  “How wonderful it is that nobody need wait a single moment before starting to improve the world.” – Anne Frank
 148.  “I am thankful for all of those who said NO to me. It’s because of them I’m doing it myself.” – Albert Einstein
 149.  “Our greatest fear should not be of failure but of succeeding at things in life that don’t really matter.” – Francis Chan
@@ -177,7 +177,7 @@ Each quote in this list offers a unique perspective, shedding light on various a
 157.  “Everything you’ve ever wanted is on the other side of fear.” – George Addair
 158.  “Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.” – Albert Schweitzer
 159.  “To be successful, you must accept all challenges that come your way. You can’t just accept the ones you like.” – Mike Gafka
-160.  “[New York City](/quotes-about-new-york-city) is a place where the impossible becomes possible.” – Lin-Manuel Miranda
+160.  “[New York City](https://selfsaid.30tools.com/quotes-about-new-york-city) is a place where the impossible becomes possible.” – Lin-Manuel Miranda
 161.  “Life is about making an impact, not making an income.” – Kevin Kruse
 162.  “What’s the point of being alive if you don’t at least try to do something remarkable?” – John Green
 163.  “Your time is limited, so don’t waste it living someone else’s life.” – Steve Jobs
@@ -196,11 +196,11 @@ Each quote in this list offers a unique perspective, shedding light on various a
 176.  “I am not a product of my circumstances. I am a product of my decisions.” – Stephen Covey
 177.  “Either you run the day, or the day runs you.” – Jim Rohn
 178.  “Whether you think you can or you think you can’t, you’re right.” – Henry Ford
-179.  “The two most important days in your life are the day you are born and the day you find out why.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+179.  “The two most important days in your life are the day you are born and the day you find out why.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 180.  “Whatever you can do, or dream you can, begin it. Boldness has genius, power, and magic in it.” – Johann Wolfgang von Goethe
 181.  “The best revenge is massive success.” – Frank Sinatra
 182.  “People often say that motivation doesn’t last. Well, neither does bathing – that’s why we recommend it daily.” – Zig Ziglar
-183.  “The key to immortality is first living a life worth remembering.” – [Bruce Lee](/bruce-lee-quotes)
+183.  “The key to immortality is first living a life worth remembering.” – [Bruce Lee](https://selfsaid.30tools.com/bruce-lee-quotes)
 184.  “If you hear a voice within you say ‘you cannot paint,’ then by all means paint, and that voice will be silenced.” – Vincent Van Gogh
 185.  “There is only one way to avoid criticism: do nothing, say nothing, and be nothing.” – Aristotle
 186.  “Ask and it will be given to you; search, and you will find; knock and the door will be opened for you.” – Jesus
@@ -220,3 +220,5 @@ Each quote in this list offers a unique perspective, shedding light on various a
 [More](#)
 
 12 Shares
+
+Source: https://selfsaid.30tools.com/rare-inspirational-quotes/

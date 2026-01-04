@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/pick-me-up-quotes-when-feeling-down/
 
 ![](https://seffsaid.com/wp-content/uploads/pick-me-up-quotes-webp.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Some days feel heavy for no clear reason. Other days feel heavy for every reason. Either way, you don’t need to push through or pretend. Sometimes, [all you need is a small reminder](/morning-reminders). A quiet word that helps you take one more step.  
+Some days feel heavy for no clear reason. Other days feel heavy for every reason. Either way, you don’t need to push through or pretend. Sometimes, [all you need is a small reminder](https://selfsaid.30tools.com/morning-reminders). A quiet word that helps you take one more step.  
   
 These pick-me-up quotes are not meant to fix you. They are here to sit beside you. To help you feel a little less alone. Let them meet you where you are.
 
@@ -34,10 +34,10 @@ These pick-me-up quotes are not meant to fix you. They are here to sit beside yo
 ## Light in the Middle of the Dark
 
 11.  “This too shall pass.” – Persian proverb
-12.  “If you’re going through hell, keep going.” – [Winston Churchill](/winston-churchill-quotes)
+12.  “If you’re going through hell, keep going.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 13.  “Hope is the thing with feathers that perches in the soul.” – Emily Dickinson
 14.  “You’ve made it through every hard day so far.” – Seff Bray
-15.  “Storms make trees take deeper roots.” – [Dolly Parton](/dolly-parton-quotes)
+15.  “Storms make trees take deeper roots.” – [Dolly Parton](https://selfsaid.30tools.com/dolly-parton-quotes)
 16.  “Healing is not linear. You can begin again every day.” – Seff Bray
 17.  “Your pace is perfect for where you are.” – Seff Bray
 18.  “There’s no rush to feel better. Let it take time.” – Seff Bray
@@ -48,7 +48,7 @@ These pick-me-up quotes are not meant to fix you. They are here to sit beside yo
 
 21.  “Be where your feet are. Start there.” – Seff Bray
 22.  “Not every day has to be productive. Some days are for breathing.” – Seff Bray
-23.  “The smallest [act of care](/simple-acts-of-kindness-that-can-make-us-live-longer) is still care.” – Seff Bray
+23.  “The smallest [act of care](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) is still care.” – Seff Bray
 24.  “Small steps still move you forward.” – Seff Bray
 25.  “There is no race. You are not behind.” – Seff Bray
 26.  “Rest is part of the process.” – Seff Bray
@@ -98,3 +98,5 @@ Take what you need. Let the rest wait. Sometimes a few quiet words can carry you
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/pick-me-up-quotes-when-feeling-down/

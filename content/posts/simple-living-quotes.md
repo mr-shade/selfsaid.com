@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/simple-living-quotes/'
 
 ![Simple Living Quotes](https://seffsaid.com/wp-content/uploads/simple-living-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A simple life is not rushed.  
 It is not filled to the edges.  
@@ -40,7 +40,7 @@ These simple living quotes are quiet reminders. They are here to help you breath
 12.  “The ability to simplify means to eliminate the unnecessary so that the necessary may speak.” – Hans Hofmann
 13.  “Simplicity is not about having less. It’s about making room for more of what matters.” – Seff Bray
 14.  “Let your life be light. Let your space breathe.” – Seff Bray
-15.  “[Decluttering your life](/14-ways-to-declutter-your-life) is a way of making peace with the present.” – Seff Bray
+15.  “[Decluttering your life](https://selfsaid.30tools.com/14-ways-to-declutter-your-life) is a way of making peace with the present.” – Seff Bray
 16.  “What you own should support your life, not control it.” – Seff Bray
 17.  “Keep only what feels calm to look at.” – Seff Bray
 18.  “More is not always better. Sometimes more is just more.” – Seff Bray
@@ -91,7 +91,7 @@ You do not need to hurry.
 You do not need to catch up.  
 You are allowed to move through life at a pace that brings you peace.
 
-[Simple living](/simple-living-how-to-live-a-simple-life) is not the absence of effort. It is the presence of care.
+[Simple living](https://selfsaid.30tools.com/simple-living-how-to-live-a-simple-life) is not the absence of effort. It is the presence of care.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fsimple-living-quotes%2F)
 
@@ -106,3 +106,5 @@ You are allowed to move through life at a pace that brings you peace.
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/simple-living-quotes/

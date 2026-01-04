@@ -12,15 +12,15 @@ original_url: 'https://selfsaid.30tools.com/two-word-quotes/'
 
 ![Powerful Two Word Quotes](https://seffsaid.com/wp-content/uploads/two-word-quotes-600x338-1.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Sometimes, it’s the simplest things that have the most profound impact. Two word quotes are perfect examples of this. They can be a source of motivation, a reminder for [new beginnings](/new-beginning-quotes), or a beacon of hope on a [rainy day](/rainy-day-quotes).
+Sometimes, it’s the simplest things that have the most profound impact. Two word quotes are perfect examples of this. They can be a source of motivation, a reminder for [new beginnings](https://selfsaid.30tools.com/new-beginning-quotes), or a beacon of hope on a [rainy day](https://selfsaid.30tools.com/rainy-day-quotes).
 
-These quotes have the power to inspire you, to help you face challenges, and to encourage you to pursue your goals with renewed vigor. Just a pair of words, yet they carry immense weight, capable of changing perspectives and boosting morale. If you enjoy these quotes, please take a moment to visit our collection of [one word](/one-word-quotes) and [three word quotes](/three-word-quotes). Thanks for reading!
+These quotes have the power to inspire you, to help you face challenges, and to encourage you to pursue your goals with renewed vigor. Just a pair of words, yet they carry immense weight, capable of changing perspectives and boosting morale. If you enjoy these quotes, please take a moment to visit our collection of [one word](https://selfsaid.30tools.com/one-word-quotes) and [three word quotes](https://selfsaid.30tools.com/three-word-quotes). Thanks for reading!
 
 ## 100 Two Word Quotes
 
-1.  **Stay Strong** – No matter what life throws at you, always remember to [stay strong](/how-to-stay-strong) and keep moving forward.
+1.  **Stay Strong** – No matter what life throws at you, always remember to [stay strong](https://selfsaid.30tools.com/how-to-stay-strong) and keep moving forward.
 2.  **Dream Big** – Never limit your aspirations; dream big and the universe will align in your favor.
 3.  **Act Now** – Don’t wait for the perfect moment; act now and make the moment perfect.
 4.  **Be Kind** – In a world where you can be anything, always choose to be kind and spread positivity.
@@ -134,3 +134,5 @@ These quotes have the power to inspire you, to help you face challenges, and to 
 [More](#)
 
 20 Shares
+
+Source: https://selfsaid.30tools.com/two-word-quotes/

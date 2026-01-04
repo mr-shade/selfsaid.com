@@ -15,7 +15,7 @@ original_url: >-
 
 ![Talk to Yourself Like You Would to Someone You Love](https://seffsaid.com/wp-content/uploads/talk-yourself-love-600.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There is a voice in your head that speaks to you all day long. Sometimes it encourages you. Sometimes it tears you down. And often, it goes unnoticed. But the way you speak to yourself matters more than you might think. It shapes how you feel, how you cope, and how you carry on.
 
@@ -37,7 +37,7 @@ Speaking kindly to yourself does not mean pretending everything is fine. It mean
 
 Many people show great care to others but rarely offer that same care inward. When your inner voice becomes softer and more supportive, everything starts to shift. Mistakes feel less defining. Setbacks feel less permanent. And small efforts feel more meaningful.
 
-[You do not have to fix everything overnight](/you-dont-have-to-fix-everything). But treating yourself with kindness gives you a stronger place to start from.
+[You do not have to fix everything overnight](https://selfsaid.30tools.com/you-dont-have-to-fix-everything). But treating yourself with kindness gives you a stronger place to start from.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftalk-to-yourself-like-you-would-to-someone-you-love%2F)
 
@@ -52,3 +52,5 @@ Many people show great care to others but rarely offer that same care inward. Wh
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/talk-to-yourself-like-you-would-to-someone-you-love/

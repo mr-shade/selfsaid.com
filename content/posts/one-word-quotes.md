@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/one-word-quotes/'
 
 ![One Word Quotes](https://seffsaid.com/wp-content/uploads/one-word-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Welcome to a collection of 100 one-word quotes, each word a powerful tool in its own right. In a world where days can sometimes feel overwhelming, a single word can be the key to [banishing the Monday Blues](/monday-blues), [lifting low self-esteem](/4-simple-strategies-to-overcome-low-self-esteem), boosting confidence, [regain motivation](/dont-want-to-do-anything-anymore) or providing inspiration.  
+Welcome to a collection of 100 one-word quotes, each word a powerful tool in its own right. In a world where days can sometimes feel overwhelming, a single word can be the key to [banishing the Monday Blues](https://selfsaid.30tools.com/monday-blues), [lifting low self-esteem](https://selfsaid.30tools.com/4-simple-strategies-to-overcome-low-self-esteem), boosting confidence, [regain motivation](https://selfsaid.30tools.com/dont-want-to-do-anything-anymore) or providing inspiration.  
   
 At first glance, the term may seem like an oxymoron. Quotes, by their very nature, are often phrases or sentences, however, the one-word quotes in this collection defy the traditional concept. They are not quotes in the literal sense but are powerful, singular words. Each word is a distillation of inspiration and motivation, capturing profound meaning in its simplicity.  
   
@@ -242,7 +242,7 @@ This collection underscores the idea that sometimes, all it takes is a single wo
 
 As you reflect on these 100 one-word quotes, consider the power each holds. A single word can be a source of strength, a moment of clarity, or a spark of joy. Whether used to start your day, lift a mood, or find inner peace, let these words be your companions.
 
-Carry them in your thoughts and let them echo in your actions. May each word resonate with you in a unique and meaningful way, offering comfort, motivation, and inspiration whenever needed. Before you go, if you like these quotes, you’ll love my collection of [two-word quotes](/two-word-quotes), go take a look.
+Carry them in your thoughts and let them echo in your actions. May each word resonate with you in a unique and meaningful way, offering comfort, motivation, and inspiration whenever needed. Before you go, if you like these quotes, you’ll love my collection of [two-word quotes](https://selfsaid.30tools.com/two-word-quotes), go take a look.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fone-word-quotes%2F)
 
@@ -257,3 +257,5 @@ Pin13
 [More](#)
 
 13 Shares
+
+Source: https://selfsaid.30tools.com/one-word-quotes/

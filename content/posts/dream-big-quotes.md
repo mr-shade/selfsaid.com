@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/dream-big-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/dream-big-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Dreaming big doesn’t have to mean doing it all, having a perfect plan, or knowing exactly where you’re headed. Sometimes it just means holding on to a sense of possibility, even when life feels uncertain or slow.
 
@@ -159,3 +159,5 @@ You don’t need to hustle your way into a bigger life. You can trust your dream
 [More](#)
 
 19 Shares
+
+Source: https://selfsaid.30tools.com/dream-big-quotes/

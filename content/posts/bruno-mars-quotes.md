@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/bruno-mars-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Bruno-Mars-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Bruno Mars has inspired millions with his talent and charisma. These quotes capture his thoughts on life, music, and success, offering inspiration and a glimpse into his personality. Read more [quotes by famous people](/quotes-by-famous-people) here.
+Bruno Mars has inspired millions with his talent and charisma. These quotes capture his thoughts on life, music, and success, offering inspiration and a glimpse into his personality. Read more [quotes by famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 ## Bruno Mars Quotes
 
@@ -27,7 +27,7 @@ Bruno Mars has inspired millions with his talent and charisma. These quotes capt
 7.  “I’m not trying to be a cool guy. I’m just trying to be honest and tell my story and hope that people get that.” – Bruno Mars
 8.  “I just write songs that I strongly believe in and that are coming from inside. There’s no tricks.” – Bruno Mars
 9.  “Becoming famous is great, but what’s more important is the message you’re passing on to the world.” – Bruno Mars
-10.  You know, when [Michael Jackson](/michael-jackson-quotes) does the moonwalk, he’s showing off! When Prince or Hendrix do a guitar solo, it’s showing off. But that’s cool. I want to do that, too.” – Bruno Mars
+10.  You know, when [Michael Jackson](https://selfsaid.30tools.com/michael-jackson-quotes) does the moonwalk, he’s showing off! When Prince or Hendrix do a guitar solo, it’s showing off. But that’s cool. I want to do that, too.” – Bruno Mars
 11.  “I’m very specific about who I want to work with and what I want to put out there.” – Bruno Mars
 12.  “You don’t have to be fearless. Just don’t let fear stop you.” – Bruno Mars
 13.  “Success is not a destination, but the road that you’re on.” – Bruno Mars
@@ -51,7 +51,7 @@ Bruno Mars has inspired millions with his talent and charisma. These quotes capt
 31.  “I love performing. The crowd, the energy, the lights. It’s all an amazing feeling.” – Bruno Mars
 32.  “You’ve got to respect people who work hard to get where they are.” – Bruno Mars
 33.  “What I’ve learned is that if you stay focused and believe in yourself, you can achieve anything.” – Bruno Mars
-34.  “[Life is too short](/the-26-best-short-life-quotes) to worry about what others say or think about you.” – Bruno Mars
+34.  “[Life is too short](https://selfsaid.30tools.com/the-26-best-short-life-quotes) to worry about what others say or think about you.” – Bruno Mars
 35.  “Love is timeless. It’s the memory of yesterday, the happiness of today, and the promise of tomorrow.” – Bruno Mars
 36.  “I never want to be put in a box and just do one thing.” – Bruno Mars
 37.  “Music is therapy. Music moves people. It connects people in ways that no other medium can.” – Bruno Mars
@@ -82,3 +82,5 @@ Bruno Mars has inspired millions with his talent and charisma. These quotes capt
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/bruno-mars-quotes/

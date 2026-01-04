@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/no-regrets-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/no-regrets-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Discover 50 of the most impactful no regrets quotes that will encourage you to take risks, live fully, and let go of what holds you back.
 
@@ -24,9 +24,9 @@ Discover 50 of the most impactful no regrets quotes that will encourage you to t
 
 “I’d rather regret the things I’ve done than regret the things I haven’t done.” — Lucille Ball
 
-Never regret anything that made you smile.” — [Mark Twain](/25-inspirational-mark-twain-quotes)
+Never regret anything that made you smile.” — [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 
-One of the greatest [regrets in life](/5-life-choices-you-will-regret-in-later-life) is being what others would want you to be, rather than being yourself.” — Shannon L. Alder
+One of the greatest [regrets in life](https://selfsaid.30tools.com/5-life-choices-you-will-regret-in-later-life) is being what others would want you to be, rather than being yourself.” — Shannon L. Alder
 
 “In the end, we only regret the chances we didn’t take.” — Lewis Carroll
 
@@ -60,7 +60,7 @@ One of the greatest [regrets in life](/5-life-choices-you-will-regret-in-later-l
 
 “No regrets, just lessons. No worries, just acceptance. No expectations, just gratitude.” — Anonymous
 
-“I think regrets are useless. Well, they’re good in the sense that they help you realize what you did wrong, but you can’t live your life with regrets.” — [Marilyn Monroe](/marilyn-monroe-quotes)
+“I think regrets are useless. Well, they’re good in the sense that they help you realize what you did wrong, but you can’t live your life with regrets.” — [Marilyn Monroe](https://selfsaid.30tools.com/marilyn-monroe-quotes)
 
 “Don’t regret anything you do, because in the end, it makes you who you are.” — Anonymous
 
@@ -74,7 +74,7 @@ One of the greatest [regrets in life](/5-life-choices-you-will-regret-in-later-l
 
 “I live with no regrets. It’s important to be in the moment and make the best decisions for your happiness.” — Aubrey O’Day
 
-“[Live life to the fullest](/live-life-to-the-fullest), and [focus on the positive](/how-to-keep-a-positive-outlook-in-life).” — Matt Cameron
+“[Live life to the fullest](https://selfsaid.30tools.com/live-life-to-the-fullest), and [focus on the positive](https://selfsaid.30tools.com/how-to-keep-a-positive-outlook-in-life).” — Matt Cameron
 
 “The only people who fear death are those with regrets.” — Anonymous
 
@@ -82,9 +82,9 @@ One of the greatest [regrets in life](/5-life-choices-you-will-regret-in-later-l
 
 “I don’t regret anything I’ve done in my life, but I do regret some things I didn’t do when I had the chance.” — Anonymous
 
-“[Life is too short](/the-26-best-short-life-quotes) to live with regrets.” — Anonymous
+“[Life is too short](https://selfsaid.30tools.com/the-26-best-short-life-quotes) to live with regrets.” — Anonymous
 
-“No one gets out of this life alive. So, [live your life](/how-to-live-life) without regrets.” — Anonymous
+“No one gets out of this life alive. So, [live your life](https://selfsaid.30tools.com/how-to-live-life) without regrets.” — Anonymous
 
 “Don’t let regrets about the past steal the moment in front of you.” — Anonymous
 
@@ -116,7 +116,7 @@ One of the greatest [regrets in life](/5-life-choices-you-will-regret-in-later-l
 
 “Make it a habit to tell people thank you. To express your appreciation, sincerely and without the expectation of anything in return.” — Ralph Marston
 
-If you spend too much time thinking about a thing, you’ll never get it done.” — [Bruce Lee](/bruce-lee-quotes)
+If you spend too much time thinking about a thing, you’ll never get it done.” — [Bruce Lee](https://selfsaid.30tools.com/bruce-lee-quotes)
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fno-regrets-quotes%2F)
 
@@ -131,3 +131,5 @@ If you spend too much time thinking about a thing, you’ll never get it done.�
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/no-regrets-quotes/

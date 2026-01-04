@@ -12,14 +12,14 @@ original_url: 'https://selfsaid.30tools.com/50-best-comfort-zone-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Comfort-Zone-Quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Living our lives inside our comfort zone offers us a sense of certainty, familiarity and safety. Stepping outside offers us fear, stress and anxiety. No wonder so many people choose comfort! Unfortunately, by staying inside we miss so much. We let exciting new experiences pass us by, we stop challenging ourselves, we limit our [personal growth](/ten-ways-to-accelerate-your-personal-growth-and-development) and give up on achieving our goals and dreams.
+Living our lives inside our comfort zone offers us a sense of certainty, familiarity and safety. Stepping outside offers us fear, stress and anxiety. No wonder so many people choose comfort! Unfortunately, by staying inside we miss so much. We let exciting new experiences pass us by, we stop challenging ourselves, we limit our [personal growth](https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development) and give up on achieving our goals and dreams.
 
-So now we’ve concluded we all need to step outside of our comfort zones, here are 50 of the best comfort zone quotes to inspire you to do just that! If you are interested in learning how to expand your comfort zone, please read my article [10 ways to step out of your comfort zone](/10-ways-to-step-out-of-your-comfort-zone).
+So now we’ve concluded we all need to step outside of our comfort zones, here are 50 of the best comfort zone quotes to inspire you to do just that! If you are interested in learning how to expand your comfort zone, please read my article [10 ways to step out of your comfort zone](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone).
 
 1.  “Isn’t it about getting out of your comfort zone and getting off the couch and challenging yourself and forcing yourself to do things you wouldn’t normally do? Otherwise, what are you living for?” – Sean Hayes
-2.  Whenever you feel uncomfortable, instead of retreating back into your old comfort zone, pat yourself on the back and say, ‘I must be growing,’ and continue [moving forward.”](/quotes-about-getting-back-up-and-moving-forwards-after-failure) – T. Harv Eker
+2.  Whenever you feel uncomfortable, instead of retreating back into your old comfort zone, pat yourself on the back and say, ‘I must be growing,’ and continue [moving forward.”](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure) – T. Harv Eker
 3.  “Be willing to step outside your comfort zone once in a while; take the risks in life that seem worth taking. The ride might not be as predictable if you’d just planted your feet and stayed put, but it will be a heck of a lot more interesting.” – Edward Whitacre, Jr.
 4.  “Comfort zones are plush lined coffins. When you stay in your plush lined coffins, you die.” – Stan Dale
 5.  “For cool things to happen, you have to get out of your comfort zone.” – Rony Abovitz
@@ -82,3 +82,5 @@ Pin26
 [More](#)
 
 26 Shares
+
+Source: https://selfsaid.30tools.com/50-best-comfort-zone-quotes/

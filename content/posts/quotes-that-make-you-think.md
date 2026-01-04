@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/quotes-that-make-you-think/'
 
 ![164 Quotes That Make You Think](https://seffsaid.com/wp-content/uploads/quotes-that-make-you-think.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Welcome to a carefully selected collection of 164 quotes that make you think about life, love, relationships, morality, [karma](/powerful-karma-quotes), death and the many other aspects of human experience. These quotes are thought-provoking, offering you a chance to reflect on different perspectives and ideas. As you go through them, you might find insights that challenge your views or words that resonate deeply with your experiences.
+Welcome to a carefully selected collection of 164 quotes that make you think about life, love, relationships, morality, [karma](https://selfsaid.30tools.com/powerful-karma-quotes), death and the many other aspects of human experience. These quotes are thought-provoking, offering you a chance to reflect on different perspectives and ideas. As you go through them, you might find insights that challenge your views or words that resonate deeply with your experiences.
 
-They’re more than just sayings; they’re [pieces of wisdom](/wise-quotes-about-life) that can [open your mind](/questions-that-will-open-your-mind) to new ways of seeing the world and understanding your place in it. Whether you’re looking for a bit of inspiration or just something to ponder on, these quotes are here to engage your thoughts and spark your curiosity.
+They’re more than just sayings; they’re [pieces of wisdom](https://selfsaid.30tools.com/wise-quotes-about-life) that can [open your mind](https://selfsaid.30tools.com/questions-that-will-open-your-mind) to new ways of seeing the world and understanding your place in it. Whether you’re looking for a bit of inspiration or just something to ponder on, these quotes are here to engage your thoughts and spark your curiosity.
 
 ## 164 Quotes That Make You Think
 
@@ -40,7 +40,7 @@ They’re more than just sayings; they’re [pieces of wisdom](/wise-quotes-abou
 18.  “In the end, we will remember not the words of our enemies, but the silence of our friends.” – Martin Luther King Jr.
 19.  “Life is what happens to us while we are making other plans.” – Allen Saunders
 20.  “That which does not kill us makes us stronger.” – Friedrich Nietzsche
-21.  “If you tell the truth, you don’t have to remember anything.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+21.  “If you tell the truth, you don’t have to remember anything.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 22.  “It does not do to dwell on dreams and forget to live.” – J.K. Rowling, ‘Harry Potter and the Sorcerer’s Stone’
 23.  “Good friends, good books, and a sleepy conscience: this is the ideal life.” – Mark Twain
 24.  “The fool doth think he is wise, but the wise man knows himself to be a fool.” – William Shakespeare
@@ -152,7 +152,7 @@ They’re more than just sayings; they’re [pieces of wisdom](/wise-quotes-abou
 130.  “Turn your wounds into wisdom.” – Oprah Winfrey
 131.  “The purpose of our lives is to give birth to the best which is within us.” – Marianne Williamson
 132.  “It is our choices that show what we truly are, far more than our abilities.” – J.K. Rowling
-133.  “My body is my journal, and [my tattoos are my story](/tattoo-quotes).” – Johnny Depp
+133.  “My body is my journal, and [my tattoos are my story](https://selfsaid.30tools.com/tattoo-quotes).” – Johnny Depp
 134.  “Life is a question and how we live it is our answer.” – Gary Keller
 135.  “The greatest discovery of any generation is that a human being can alter his life by altering his attitude.” – William James
 136.  “Only a life lived for others is a life worthwhile.” – Albert Einstein
@@ -187,7 +187,7 @@ They’re more than just sayings; they’re [pieces of wisdom](/wise-quotes-abou
 
 ## A Note from the Author
 
-Thank you for taking the time to read through this list of 164 quotes that make you think about life. I hope you found them as inspiring and thought-provoking as I did. If you enjoyed them, please consider subscribing to my [newsletter](/newsletter) for more weekly inspiration. Please also share this article with others who might appreciate it. And don’t forget to bookmark SEFFSAID and visit us again! Looking forward to sharing more with you soon.
+Thank you for taking the time to read through this list of 164 quotes that make you think about life. I hope you found them as inspiring and thought-provoking as I did. If you enjoyed them, please consider subscribing to my [newsletter](https://selfsaid.30tools.com/newsletter) for more weekly inspiration. Please also share this article with others who might appreciate it. And don’t forget to bookmark SEFFSAID and visit us again! Looking forward to sharing more with you soon.
 
 All the best,
 
@@ -206,3 +206,5 @@ Seff Bray
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/quotes-that-make-you-think/

@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/questions-you-should-ask-yourself/'
 
 ![](https://seffsaid.com/wp-content/uploads/questions-ask-yourself.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Reflection is a powerful tool that allows individuals to assess their [progress](/habits-blocking-progress), intentions, and values. Sundays offer a unique opportunity to pause and take stock of the week behind and the one ahead. These questions are designed to encourage deeper thinking, foster growth, and promote a sense of clarity.
+Reflection is a powerful tool that allows individuals to assess their [progress](https://selfsaid.30tools.com/habits-blocking-progress), intentions, and values. Sundays offer a unique opportunity to pause and take stock of the week behind and the one ahead. These questions are designed to encourage deeper thinking, foster growth, and promote a sense of clarity.
 
 ## 1\. What are the highlights of my week?
 
@@ -26,7 +26,7 @@ Take a moment to assess whether your actions aligned with your objectives. If no
 
 ## 3\. How did I handle challenges?
 
-Reflecting on how you navigated difficulties can reveal strengths and areas where improvement is possible. Acknowledge any [lessons learned](/inspirational-lessons) from setbacks.
+Reflecting on how you navigated difficulties can reveal strengths and areas where improvement is possible. Acknowledge any [lessons learned](https://selfsaid.30tools.com/inspirational-lessons) from setbacks.
 
 ## 4\. What connections did I nurture?
 
@@ -46,7 +46,7 @@ Recognizing the sources of joy or calm in your life can help you prioritize simi
 
 ## 8\. What drained my energy?
 
-Understanding what left you feeling depleted is essential for [setting boundaries](/define-your-boundaries) and protecting your well-being.
+Understanding what left you feeling depleted is essential for [setting boundaries](https://selfsaid.30tools.com/define-your-boundaries) and protecting your well-being.
 
 ## 9\. What do I want to focus on in the coming week?
 
@@ -58,13 +58,13 @@ Reflecting on how you supported or uplifted others can foster a sense of purpose
 
 ## 11\. Am I taking care of my physical and mental health?
 
-Consider whether you are prioritizing rest, nutrition, exercise, and relaxation. [Self-care is essential](/self-care-priority) for sustained energy and resilience.
+Consider whether you are prioritizing rest, nutrition, exercise, and relaxation. [Self-care is essential](https://selfsaid.30tools.com/self-care-priority) for sustained energy and resilience.
 
 ## 12\. What am I grateful for today?
 
 Gratitude has the power to shift perspectives and increase contentment. Reflect on what you appreciate, whether big or small.
 
-By consistently revisiting these questions each week, you create a space for introspection and self-awareness. This practice not only helps you understand your actions but also empowers you to make intentional [choices for the future](/future-self).
+By consistently revisiting these questions each week, you create a space for introspection and self-awareness. This practice not only helps you understand your actions but also empowers you to make intentional [choices for the future](https://selfsaid.30tools.com/future-self).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fquestions-you-should-ask-yourself%2F)
 
@@ -79,3 +79,5 @@ By consistently revisiting these questions each week, you create a space for int
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/questions-you-should-ask-yourself/

@@ -10,7 +10,7 @@ original_url: 'https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-min
 
 ![Woman using breath to meditate](https://seffsaid.com/wp-content/uploads/breath-mindful-living.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 We breathe to live. Everyone knows it, even those who never take a single conscious breath, those who simply allow the automatic system of the body to deal with this vital action.
 
@@ -22,7 +22,7 @@ Okay I admit it, in the folly of my youth, I found it incredibly boring and ofte
 
 What I didn’t know at that time was the incredible importance of breathing for our health and well-being. After I stopped the vocal lessons and gave up singing professionally, the breathing exercises were no longer part of my life. It didn’t occur to me until recently that they were a wonderfully beneficial practice and I should have continued for reasons entirely separate from voice production.
 
-In the past few years, I have begun seriously studying and practicing breathwork again, not only incorporating it into more formal meditations but also into the rhythm of daily life. This has been combined with an increasing interest in [mindfulness and ‘flow](/flow-state-of-mind).
+In the past few years, I have begun seriously studying and practicing breathwork again, not only incorporating it into more formal meditations but also into the rhythm of daily life. This has been combined with an increasing interest in [mindfulness and ‘flow](https://selfsaid.30tools.com/flow-state-of-mind).
 
 It has taken time but I now try to maintain a regular albeit flexible routine. The more I do, the better I feel, but the adage ‘little and often’ is certainly applicable and no one should be put off by lack of time or an inability to stick to a strict routine.
 
@@ -44,7 +44,7 @@ Usually after breakfast and/or dinner, I spend between ten and fifteen minutes c
 
 ## 3\. **I use certain moments and daily activities to concentrate on my breathing.**
 
-I try to focus on my breathing at several moments during the day. I earmark activities, in my case [brushing my teeth](/benefits-of-good-oral-hygiene), doing the washing up, and other household chores. The trick is to choose moments that are regular within your day and to gradually build the habit. I also have found that it helps to slow down my movements just a fraction, to wash each cup more slowly and carefully for example; this seems to give me ‘space’ to allow the breath to flow slowly and easily. It actually makes any chore a moment to de-stress and, at the end of the activity, gain refreshment, relaxation, and clarity.
+I try to focus on my breathing at several moments during the day. I earmark activities, in my case [brushing my teeth](https://selfsaid.30tools.com/benefits-of-good-oral-hygiene), doing the washing up, and other household chores. The trick is to choose moments that are regular within your day and to gradually build the habit. I also have found that it helps to slow down my movements just a fraction, to wash each cup more slowly and carefully for example; this seems to give me ‘space’ to allow the breath to flow slowly and easily. It actually makes any chore a moment to de-stress and, at the end of the activity, gain refreshment, relaxation, and clarity.
 
 ## 4\. **I try to relax and lengthen my breathing whenever I notice myself getting anxious.**
 
@@ -52,7 +52,7 @@ As soon as I notice that I’m feeling worried, I scan my body for tension, let 
 
 ## 5\. **I learned the 4-7-8 breathing technique.**
 
-This powerful technique is said to help combat insomnia and anxiety. For me, it was not a quick fix but a useful daily tool. I prepare by tucking my tongue behind my top teeth and breathing out completely, making a soft whooshing sound. I then breath in through my nose to the count of four, I hold the breath for the count of seven and I breath out to the count of eight. I repeat this no more than four times. It’s a simple technique that can be practiced during the day and will slowly become more powerful through practice. If practiced regularly, it can then be used to help to relax and therefore aid in [falling asleep more quickly](/how-to-fall-asleep-fast).
+This powerful technique is said to help combat insomnia and anxiety. For me, it was not a quick fix but a useful daily tool. I prepare by tucking my tongue behind my top teeth and breathing out completely, making a soft whooshing sound. I then breath in through my nose to the count of four, I hold the breath for the count of seven and I breath out to the count of eight. I repeat this no more than four times. It’s a simple technique that can be practiced during the day and will slowly become more powerful through practice. If practiced regularly, it can then be used to help to relax and therefore aid in [falling asleep more quickly](https://selfsaid.30tools.com/how-to-fall-asleep-fast).
 
 I’m only human, of course, and these habits come and go a little, depending on what else is going on in my life. But I know that the times when I feel I don’t have time for this kind of breathwork are exactly the times when I really need it the most.
 
@@ -71,3 +71,5 @@ Pin3
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-mindful-living/

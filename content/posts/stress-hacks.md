@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/stress-hacks/'
 
 ![](https://seffsaid.com/wp-content/uploads/everyday-stress-hacks.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I used to think stress relief had to be big, dramatic, or at least structured. Yoga classes. Breathwork routines. A weekend off-grid.
 
@@ -27,15 +27,15 @@ Here are 15 stress hacks that help me stay grounded, even when life doesn’t sl
 
 ## 1\. Drink water slowly
 
-Not while multitasking. Not while scrolling. Just one glass of water, sipped like it matters. When I actually pause to drink it slowly, it’s like giving my nervous system a signal: “You’re allowed to take a breath.” For more on this, read [The Surprisingly Grounding Power of Drinking Water](/grounding-power-of-drinking-water).
+Not while multitasking. Not while scrolling. Just one glass of water, sipped like it matters. When I actually pause to drink it slowly, it’s like giving my nervous system a signal: “You’re allowed to take a breath.” For more on this, read [The Surprisingly Grounding Power of Drinking Water](https://selfsaid.30tools.com/grounding-power-of-drinking-water).
 
 ## 2\. Put your phone in another room
 
-Even for 20 minutes. You’d be amazed at how much quieter your brain feels when you’re not half-expecting a notification. It’s like stepping out of a constant conversation and into your own mind again. I wrote about this habit in [How to Start a Phone-Free Hour (Even If You’re Addicted)](/phone-free-hour).
+Even for 20 minutes. You’d be amazed at how much quieter your brain feels when you’re not half-expecting a notification. It’s like stepping out of a constant conversation and into your own mind again. I wrote about this habit in [How to Start a Phone-Free Hour (Even If You’re Addicted)](https://selfsaid.30tools.com/phone-free-hour).
 
 ## 3\. Do one thing slowly on purpose
 
-Fold clothes, make tea, wash your face – just _slow down one thing_. Slowness interrupts autopilot and brings me back into my body. It helps me feel like time isn’t always slipping through my fingers. You can learn more in [Doing One Thing Slowly: A Self-Care Practice for Busy Minds](/doing-one-thing-slowly).
+Fold clothes, make tea, wash your face – just _slow down one thing_. Slowness interrupts autopilot and brings me back into my body. It helps me feel like time isn’t always slipping through my fingers. You can learn more in [Doing One Thing Slowly: A Self-Care Practice for Busy Minds](https://selfsaid.30tools.com/doing-one-thing-slowly).
 
 ## 4\. Lay down on the floor for five minutes
 
@@ -47,11 +47,11 @@ It sounds small, but it gives your brain something gentle to focus on. Watching 
 
 ## 6\. Say “no” to one thing today
 
-Even something small. You’re allowed to protect your time. Every time I say no, I say yes to a little more space. If you struggle with this, my book [Learn How To Say No](/learn-how-to-say-no) walks you through how to say it without guilt.
+Even something small. You’re allowed to protect your time. Every time I say no, I say yes to a little more space. If you struggle with this, my book [Learn How To Say No](https://selfsaid.30tools.com/learn-how-to-say-no) walks you through how to say it without guilt.
 
 ## 7\. Write one sentence in a journal
 
-Not a page. Not a recap. Just one honest line about how you feel. It’s a way of checking in with myself without turning it into a task. I share how this habit changed my mindset in [One-Line Journaling: The Habit That Actually Stuck](/one-line-journaling).
+Not a page. Not a recap. Just one honest line about how you feel. It’s a way of checking in with myself without turning it into a task. I share how this habit changed my mindset in [One-Line Journaling: The Habit That Actually Stuck](https://selfsaid.30tools.com/one-line-journaling).
 
 ## 8\. Step outside even if it’s just the front step
 
@@ -75,7 +75,7 @@ Even if it feels silly. Especially if it does. Some days, hearing “You’re do
 
 ## 13\. Do nothing (on purpose)
 
-Sit. Don’t scroll. Don’t fix. Don’t optimize. Just exist for a minute. It’s strange how powerful stillness can be once I stop resisting it. See also: [The Case for Doing Nothing: How Stillness Became My Self-Care](/the-case-for-doing-nothing).
+Sit. Don’t scroll. Don’t fix. Don’t optimize. Just exist for a minute. It’s strange how powerful stillness can be once I stop resisting it. See also: [The Case for Doing Nothing: How Stillness Became My Self-Care](https://selfsaid.30tools.com/the-case-for-doing-nothing).
 
 ## 14\. Exhale longer than you inhale
 
@@ -91,7 +91,7 @@ You don’t need all 15. You don’t need to do them every day. Just try one.
 
 In a world that moves fast and asks a lot, these are my gentle ways of saying: _I’m still here._
 
-\> For more calming, real-life self-care habits, visit my [Everyday Self-Care Routine](/everyday-self-care-routine) or explore how [doing one thing slowly](/doing-one-thing-slowly) can change your entire day.
+\> For more calming, real-life self-care habits, visit my [Everyday Self-Care Routine](https://selfsaid.30tools.com/everyday-self-care-routine) or explore how [doing one thing slowly](https://selfsaid.30tools.com/doing-one-thing-slowly) can change your entire day.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fstress-hacks%2F)
 
@@ -106,3 +106,5 @@ In a world that moves fast and asks a lot, these are my gentle ways of saying: _
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/stress-hacks/

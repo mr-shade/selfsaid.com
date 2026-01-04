@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/rainy-day-quotes/'
 
 ![Rainy Day Quotes to Uplift Your Spirits](https://seffsaid.com/wp-content/uploads/rainy-day-quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Welcome to this collection of 180 Rainy Day Quotes where you’ll find a wide range of thoughts and emotions that people associate with rainy days. From the sense of [new beginnings](/new-beginning-quotes) that the end of a fresh downpour can bring, to the contemplative moments that accompany a soft drizzle, these quotes capture the essence of rainy days in various ways.  
+Welcome to this collection of 180 Rainy Day Quotes where you’ll find a wide range of thoughts and emotions that people associate with rainy days. From the sense of [new beginnings](https://selfsaid.30tools.com/new-beginning-quotes) that the end of a fresh downpour can bring, to the contemplative moments that accompany a soft drizzle, these quotes capture the essence of rainy days in various ways.  
   
-Whether you’re looking for a simple [pick me up](/pick-me-up-quotes-when-feeling-down) to brighten a gloomy day, a short [three-word quote](/three-word-quotes) that offers a quick burst of inspiration, or longer, [thought-provoking quotes](/quotes-that-make-you-think), this collection has something for everyone.  
+Whether you’re looking for a simple [pick me up](https://selfsaid.30tools.com/pick-me-up-quotes-when-feeling-down) to brighten a gloomy day, a short [three-word quote](https://selfsaid.30tools.com/three-word-quotes) that offers a quick burst of inspiration, or longer, [thought-provoking quotes](https://selfsaid.30tools.com/quotes-that-make-you-think), this collection has something for everyone.  
   
 Remember, these rainy day quotes are not just words; they’re reflections that make you think about the quiet, often unnoticed beauty of rain and how it touches life in different ways.
 
@@ -31,7 +31,7 @@ Remember, these rainy day quotes are not just words; they’re reflections that 
 9.  “The rain plays a little sleep song on our roof at night and I love the rain.” – Langston Hughes
 10.  “Rain is not just water; it’s a song sung by the earth.” – Unknown
 11.  “Rainy days whisper softly to my soul, reminding me that growth often starts with discomfort.” – Unknown
-12.  “Rainy days are perfect days to [cuddle](/romantic-cuddle-quotes) and watch movies.” – Unknown
+12.  “Rainy days are perfect days to [cuddle](https://selfsaid.30tools.com/romantic-cuddle-quotes) and watch movies.” – Unknown
 13.  “The nicest thing about the rain is that it always stops. Eventually.” – Eeyore (A. A. Milne)
 14.  “Rain is good for vegetables, and for the animals who eat those vegetables, and for the animals who eat those animals.” – Samuel Johnson
 15.  “Rainy days give people like me a special kind of motivation – the motivation to do absolutely nothing.” – Unknown
@@ -214,3 +214,5 @@ Remember, these rainy day quotes are not just words; they’re reflections that 
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/rainy-day-quotes/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/eliminate-disguised-procrastination/
 
 ![](https://seffsaid.com/wp-content/uploads/Disguised-Procrastination.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Did you know procrastination can be camouflaged? Well not many people do and it’s commonly known as ‘Disguised Procrastination’.
 
@@ -67,3 +67,5 @@ Prioritization is a valuable strategy in helping to eliminate disguised procrast
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/eliminate-disguised-procrastination/

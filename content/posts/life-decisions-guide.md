@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/life-decisions-guide/'
 
 ![](https://seffsaid.com/wp-content/uploads/life-decisions-guide.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Making significant life decisions can often feel overwhelming. These pivotal moments demand careful thought and a structured approach to ensure you’re moving forward with clarity and confidence. To assist in this process, here are ten essential questions to consider. These questions are designed to help you evaluate your options, align your choices with your values, and ensure you’re prepared for the outcomes.
 
@@ -42,7 +42,7 @@ Seeking advice from those who know you well or have experience in similar situat
 
 ## 7\. Are You Prepared for Change?
 
-Major decisions often bring about shifts in your routine, responsibilities, and relationships. Consider whether you’re ready to [adapt to these changes](/how-to-adapt-to-positive-change). A willingness to [step outside your comfort zone](/10-ways-to-step-out-of-your-comfort-zone) is often necessary to pursue meaningful opportunities.
+Major decisions often bring about shifts in your routine, responsibilities, and relationships. Consider whether you’re ready to [adapt to these changes](https://selfsaid.30tools.com/how-to-adapt-to-positive-change). A willingness to [step outside your comfort zone](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone) is often necessary to pursue meaningful opportunities.
 
 ## 8\. What Are the Alternatives?
 
@@ -60,7 +60,7 @@ Once you’ve weighed your options and made a choice, the next step is commitmen
 
 When faced with a decision, write down your answers to these questions. Seeing your thoughts on paper can bring clarity and help you spot patterns or priorities you hadn’t noticed before. Additionally, take time to revisit your answers as you gather new information or as circumstances change.
 
-Major life decisions can shape your future in profound ways. By taking the time to reflect on these questions, you’ll approach your choices with [greater confidence](/ways-to-become-more-confident) and a stronger sense of purpose. This thoughtful process ensures that your decisions align with both your present needs and your long-term aspirations, helping you create a life that feels intentional and fulfilling.
+Major life decisions can shape your future in profound ways. By taking the time to reflect on these questions, you’ll approach your choices with [greater confidence](https://selfsaid.30tools.com/ways-to-become-more-confident) and a stronger sense of purpose. This thoughtful process ensures that your decisions align with both your present needs and your long-term aspirations, helping you create a life that feels intentional and fulfilling.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Flife-decisions-guide%2F)
 
@@ -75,3 +75,5 @@ Major life decisions can shape your future in profound ways. By taking the time 
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/life-decisions-guide/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/stress-levels-out-of-control/'
 
 ![](https://seffsaid.com/wp-content/uploads/stress-levels-control.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Stress is a natural part of life. A certain amount keeps you motivated and alert, but when it builds without relief, it can start to overwhelm both your mind and body. If small things feel like major crises or rest seems impossible, even when everything looks fine on the outside, it may be a sign that stress is taking too much of your energy.
 
@@ -24,7 +24,7 @@ Sleep is often the first thing stress disrupts. If you find yourself lying awake
 
 ## 2\. Are you more irritable than usual?
 
-Stress shortens your patience. Little annoyances that you might usually brush off start to [feel overwhelming](/why-you-still-feel-overwhelmed). You may snap at people you care about or feel constantly on edge. If irritability feels like your default response, it may be your body’s way of signalling overload.
+Stress shortens your patience. Little annoyances that you might usually brush off start to [feel overwhelming](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed). You may snap at people you care about or feel constantly on edge. If irritability feels like your default response, it may be your body’s way of signalling overload.
 
 ## 3\. Do you often feel overwhelmed by small tasks?
 
@@ -77,3 +77,5 @@ Remember, you do not need to manage stress alone. Talking to a trusted friend, a
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/stress-levels-out-of-control/

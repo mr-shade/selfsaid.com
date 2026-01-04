@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-fall-asleep-fast/'
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Fall-Asleep-Fast.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I think most people appreciate that a good night’s sleep is vital to our emotional well-being and physical health. A lack of regular good quality sleep is detrimental to most aspects of our day to day lives, from our overall health to our mood and our energy levels.
 
@@ -82,9 +82,9 @@ A [2017 study](https://academic.oup.com/sleep/article/40/12/zsx165/4439587#.Wehe
 
 ## 12\. Practice daily meditation
 
-[Meditation](/benefits-of-meditation) has been shown to reduce levels of the stress hormone cortisol, helping you [feel less stressed](/simple-living-how-to-live-a-simple-life), less anxious, relaxed, and more likely to fall asleep quickly. People who meditate have also been found to have considerably higher levels of melatonin (a hormone that regulates sleep) than non-meditators.
+[Meditation](https://selfsaid.30tools.com/benefits-of-meditation) has been shown to reduce levels of the stress hormone cortisol, helping you [feel less stressed](https://selfsaid.30tools.com/simple-living-how-to-live-a-simple-life), less anxious, relaxed, and more likely to fall asleep quickly. People who meditate have also been found to have considerably higher levels of melatonin (a hormone that regulates sleep) than non-meditators.
 
-A [2015 study](https://www.health.harvard.edu/blog/mindfulness-meditation-helps-fight-insomnia-improves-sleep-201502187726) by Harvard Medical School showed that meditation focusing on [breathing](/breath-a-bridge-to-conscious-and-mindful-living) and awareness of the present moment can be a powerful weapon in overcoming insomnia and other sleep disorders. Another [clinical trial in 2015](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4407465/) found that mindfulness mediation helped improve sleep quality among older adults.
+A [2015 study](https://www.health.harvard.edu/blog/mindfulness-meditation-helps-fight-insomnia-improves-sleep-201502187726) by Harvard Medical School showed that meditation focusing on [breathing](https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-mindful-living) and awareness of the present moment can be a powerful weapon in overcoming insomnia and other sleep disorders. Another [clinical trial in 2015](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4407465/) found that mindfulness mediation helped improve sleep quality among older adults.
 
 ## Final thoughts
 
@@ -103,3 +103,5 @@ Pin20
 [More](#)
 
 20 Shares
+
+Source: https://selfsaid.30tools.com/how-to-fall-asleep-fast/

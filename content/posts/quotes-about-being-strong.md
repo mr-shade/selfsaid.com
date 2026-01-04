@@ -12,12 +12,12 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-being-strong/'
 
 ![Quotes About Being Strong](https://seffsaid.com/wp-content/uploads/quotes-about-being-strong.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Facing tough times can sometimes feel overwhelming, but the right words can be a source of strength and encouragement. This list of 165 quotes about being strong during difficult times offers you a powerful collection of thoughts on resilience, inner strength, and the undying spirit of humanity amid adversity. Each quote is a small beacon of courage, designed to uplift and inspire you. These words are a reminder that even in the darkest moments, the capacity to overcome remains within you.
 
 1.  “The human capacity for burden is like bamboo – far more flexible than you’d ever believe at first glance.” – Jodi Picoult
-2.  “You never know how strong you are, until being strong is your only choice.” – [Bob Marley](/bob-marley-quotes)
+2.  “You never know how strong you are, until being strong is your only choice.” – [Bob Marley](https://selfsaid.30tools.com/bob-marley-quotes)
 3.  “Strength does not come from physical capacity. It comes from an indomitable will.” – Mahatma Gandhi
 4.  “The world breaks everyone, and afterward, some are strong at the broken places.” – Ernest Hemingway
 5.  “Tough times never last, but tough people do.” – Robert H. Schuller
@@ -27,7 +27,7 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 9.  “Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.” – William Ellery Channing
 10.  “Sometimes you don’t realize your own strength until you come face to face with your greatest weakness.” – Susan Gale
 11.  “In the depth of winter, I finally learned that within me there lay an invincible summer.” – Albert Camus
-12.  “We are only as strong as we are united, as weak as we are divided.” – [J.K. Rowling](/j-k-rowling-quotes)
+12.  “We are only as strong as we are united, as weak as we are divided.” – [J.K. Rowling](https://selfsaid.30tools.com/j-k-rowling-quotes)
 13.  “He who conquers others is strong; he who conquers himself is mighty.” – Lao Tzu
 14.  “Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.” – Thomas A. Edison
 15.  “Strength is a matter of the made-up mind.” – John Beecher
@@ -36,7 +36,7 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 18.  “Life doesn’t get easier or more forgiving, we get stronger and more resilient.” – Steve Maraboli
 19.  “Do not judge me by my success, judge me by how many times I fell down and got back up again.” – Nelson Mandela
 20.  “It’s not the strength of the body that counts, but the strength of the spirit.” – J.R.R. Tolkien
-21.  “You have power over your mind – not outside events. Realize this, and you will find strength.” – [Marcus Aurelius](/marcus-aurelius-quotes)
+21.  “You have power over your mind – not outside events. Realize this, and you will find strength.” – [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)
 22.  “I survived because the fire inside me burned brighter than the fire around me.” – Joshua Graham
 23.  “You have to fight through some bad days to earn the best days of your life.” – Anonymous
 24.  “Our greatest glory is not in never falling, but in rising every time we fall.” – Confucius
@@ -49,13 +49,13 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 31.  “Life’s challenges are not supposed to paralyze you, they’re supposed to help you discover who you are.” – Bernice Johnson Reagon
 32.  “Sometimes when you are in a dark place you think you have been buried, but actually you have been planted.” – Christine Caine
 33.  “Life is very interesting… in the end, some of your greatest pains become your greatest strengths.” – Drew Barrymore
-34.  “I can be changed by what happens to me. But I refuse to be reduced by it.” – [Maya Angelou](/maya-angelou-quotes)
+34.  “I can be changed by what happens to me. But I refuse to be reduced by it.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 35.  “The human spirit is stronger than anything that can happen to it.” – C.C. Scott
 36.  “Sometimes you don’t realize your own strength until someone tries to take advantage of your weaknesses.” – Anonymous
 37.  “Fire is the test of gold; adversity, of strong men.” – Seneca
 38.  “When you come out of the storm, you won’t be the same person who walked in. That’s what the storm’s all about.” – Haruki Murakami
 39.  “Scars show toughness: that you’ve been through it, and you’re still standing.” – Theo Rossi
-40.  “Strength does not come from winning. Your struggles develop your strengths.” – [Arnold Schwarzenegger](/arnold-schwarzenegger-quotes)
+40.  “Strength does not come from winning. Your struggles develop your strengths.” – [Arnold Schwarzenegger](https://selfsaid.30tools.com/arnold-schwarzenegger-quotes)
 41.  “The best way out is always through.” – Robert Frost
 42.  “A hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles.” – Christopher Reeve
 43.  “He knows not his own strength who hath not met adversity.” – William Samuel Johnson
@@ -67,28 +67,28 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 49.  “You were given this life because you are strong enough to live it.” – Unknown
 50.  “A problem is a chance for you to do your best.” – Duke Ellington
 51.  “Difficulties in life are intended to make us better, not bitter.” – Dan Reeves
-52.  He who is not courageous enough to take risks will accomplish nothing in life.” – [Muhammad Ali](/muhammad-ali-quotes)
+52.  He who is not courageous enough to take risks will accomplish nothing in life.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 53.  “Strength shows not only in the ability to persist, but the ability to start over.” – F. Scott Fitzgerald
 54.  “You don’t realize how strong you are until being strong is the only choice you have.” – Cayla Mills
 55.  “It’s not that I’m so smart, it’s just that I stay with problems longer.” – Albert Einstein
 56.  “Adversity is the first path to truth.” – Lord Byron
 57.  “When we long for life without difficulties, remind us that oaks grow strong in contrary winds and diamonds are made under pressure.” – Peter Marshall
-58.  Storms make trees take deeper roots.” – [Dolly Parton](/dolly-parton-quotes)
+58.  Storms make trees take deeper roots.” – [Dolly Parton](https://selfsaid.30tools.com/dolly-parton-quotes)
 59.  “Pain is temporary. Quitting lasts forever.” – Lance Armstrong
 60.  “Start by doing what’s necessary; then do what’s possible; and suddenly you are doing the impossible.” – Francis of Assisi
 61.  “It is during our darkest moments that we must focus to see the light.” – Aristotle
 62.  “You have within you right now, everything you need to deal with whatever the world can throw at you.” – Brian Tracy
-63.  Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](/winston-churchill-quotes)
+63.  Success is not final, failure is not fatal: It is the courage to continue that counts.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 64.  “I am not afraid of storms for I am learning how to sail my ship.” – Louisa May Alcott
 65.  “We don’t develop courage by being happy every day. We develop it by surviving difficult times and challenging adversity.” – Barbara De Angelis
 66.  “Perseverance is not a long race; it is many short races one after another.” – Walter Elliot
 67.  “Life is like riding a bicycle. To keep your balance, you must keep moving.” – Albert Einstein
 68.  “Strength does not come from winning. When you go through hardships and decide not to surrender, that is strength.” – Arnold Schwarzenegger
 69.  “Hard times may have held you down, but they will not last forever. When all is said and done, you will be increased.” – Joel Osteen
-70.  In my experience, people who don’t stick around during the [hard times](/quotes-about-strength) weren’t worth having around anyway.” – Kimberly Belle
+70.  In my experience, people who don’t stick around during the [hard times](https://selfsaid.30tools.com/quotes-about-strength) weren’t worth having around anyway.” – Kimberly Belle
 71.  “The trick is to enjoy life. Don’t wish away your days, waiting for better ones ahead.” – Marjorie Pay Hinckley
 72.  “You have to accept whatever comes and the only important thing is that you meet it with courage and with the best that you have to give.” – Eleanor Roosevelt
-73.  No matter how much it hurts now, someday you will look back and realize your struggles [changed your life for the better](/change-your-life-for-the-better).” – Unknown
+73.  No matter how much it hurts now, someday you will look back and realize your struggles [changed your life for the better](https://selfsaid.30tools.com/change-your-life-for-the-better).” – Unknown
 74.  “In times of great stress or adversity, it’s always best to keep busy, to plow your anger and your energy into something positive.” – Lee Iacocca
 75.  “The most beautiful people we have known are those who have known defeat, known suffering, known struggle, known loss, and have found their way out of the depths.” – Elisabeth Kübler-Ross
 76.  “Resilience is knowing that YOU are the only one that has the power and the responsibility to pick yourself up.” – Mary Holloway
@@ -104,8 +104,8 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 86.  “Remember that guy that gave up? Neither does anyone else.” – Unknown
 87.  “The pain you feel today is the strength you feel tomorrow. For every challenge encountered, there is opportunity for growth.” – Unknown
 88.  “It’s not whether you get knocked down, it’s whether you get up.” – Vince Lombardi
-89.  We must accept finite disappointment, but we must never lose infinite hope.” – [Martin Luther King](/martin-luther-king-quotes) Jr.
-90.  The [greatest mistake you can make in life](/5-common-life-mistakes-to-avoid) is to be continually fearing you will make one.” – Elbert Hubbard
+89.  We must accept finite disappointment, but we must never lose infinite hope.” – [Martin Luther King](https://selfsaid.30tools.com/martin-luther-king-quotes) Jr.
+90.  The [greatest mistake you can make in life](https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid) is to be continually fearing you will make one.” – Elbert Hubbard
 91.  “Being defeated is often a temporary condition. Giving up is what makes it permanent.” – Marilyn vos Savant
 92.  “Do not wait to strike till the iron is hot, but make it hot by striking.” – William Butler Yeats
 93.  “Sometimes carrying on, just carrying on, is the superhuman achievement.” – Albert Camus
@@ -126,7 +126,7 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 108.  “You have to fight through some bad days to earn the best days of your life.” – Unknown
 109.  “You must do the thing you think you cannot do.” – Eleanor Roosevelt
 110.  “Man never made any material as resilient as the human spirit.” – Bern Williams
-111.  Never say never, because limits, like fears, are often just an illusion.” – [Michael Jordan](/michael-jordan-quotes)
+111.  Never say never, because limits, like fears, are often just an illusion.” – [Michael Jordan](https://selfsaid.30tools.com/michael-jordan-quotes)
 112.  “I learned that courage was not the absence of fear, but the triumph over it.” – Nelson Mandela
 113.  “The best way to predict your future is to create it.” – Peter Drucker
 114.  “It always seems impossible until it’s done.” – Nelson Mandela
@@ -148,16 +148,16 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 130.  “The key to life is accepting challenges. Once someone stops doing this, he’s dead.” – Bette Davis
 131.  “Next to trying and winning, the best thing is trying and failing.” – L.M. Montgomery
 132.  “What lies behind us and what lies before us are tiny matters compared to what lies within us.” – Ralph Waldo Emerson
-133.  “You have power over your mind, not outside events. Realize this, and you will find strength.” – [Marcus Aurelius](/marcus-aurelius-quotes)
+133.  “You have power over your mind, not outside events. Realize this, and you will find strength.” – [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)
 134.  “We must meet the challenge rather than wish it were not before us.” – William J. Brennan, Jr.
 135.  “Problems are not stop signs, they are guidelines.” – Robert Schuller
 136.  “If you aren’t in over your head, how do you know how tall you are?” – T.S. Eliot
-137.  The best way to not feel hopeless is to get up and do something.” – [Barack Obama](/barack-obama-quotes)
+137.  The best way to not feel hopeless is to get up and do something.” – [Barack Obama](https://selfsaid.30tools.com/barack-obama-quotes)
 138.  “You gain strength, courage, and confidence by every experience in which you really stop to look fear in the face.” – Eleanor Roosevelt
 139.  “We may encounter many defeats but we must not be defeated.” – Maya Angelou
 140.  “The human spirit is to grow strong by conflict.” – William Ellery Channing
 141.  “Strength and growth come only through continuous effort and struggle.” – Napoleon Hill
-142.  “Do not be embarrassed by your failures, learn from them and start again.” – [Richard Branson](/richard-branson-quotes)
+142.  “Do not be embarrassed by your failures, learn from them and start again.” – [Richard Branson](https://selfsaid.30tools.com/richard-branson-quotes)
 143.  “Turn your wounds into wisdom.” – Oprah Winfrey
 144.  “Success is not how high you have climbed, but how you make a positive difference to the world.” – Roy T. Bennett
 145.  “It’s not the load that breaks you down, it’s the way you carry it.” – Lou Holtz
@@ -165,12 +165,12 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 147.  “Never bend your head. Always hold it high. Look the world straight in the eye.” – Helen Keller
 148.  “When you come to the end of your rope, tie a knot and hang on.” – Franklin D. Roosevelt
 149.  “Don’t be pushed around by the fears in your mind. Be led by the dreams in your heart.” – Roy T. Bennett
-150.  “The struggle of life is one of our greatest blessings. It makes us patient, [sensitive](/life-changing-tips-for-sensitive-people), and Godlike. It teaches us that although the world is full of suffering, it is also full of the overcoming of it.” – Helen Keller
+150.  “The struggle of life is one of our greatest blessings. It makes us patient, [sensitive](https://selfsaid.30tools.com/life-changing-tips-for-sensitive-people), and Godlike. It teaches us that although the world is full of suffering, it is also full of the overcoming of it.” – Helen Keller
 151.  “The only way to achieve the impossible is to believe it is possible.” – Charles Kingsleigh
 152.  “You are so much more than what you are going through.” – John Tew
 153.  “Difficulties strengthen the mind, as labor does the body.” – Seneca
 154.  “The greater the difficulty, the more the glory in surmounting it.” – Epicurus
-155.  “It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
+155.  “It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 156.  “Life is very interesting. In the end, some of your greatest pains become your greatest strengths.” – Drew Barrymore
 157.  “Never give in to the obstacles that lie in your path towards the achievement of your dreams.” – Lailah Gifty Akita
 158.  “You must tell yourself, ‘No matter how hard it is, or how hard it gets, I’m going to make it.'” – Les Brown
@@ -196,3 +196,5 @@ Facing tough times can sometimes feel overwhelming, but the right words can be a
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-being-strong/

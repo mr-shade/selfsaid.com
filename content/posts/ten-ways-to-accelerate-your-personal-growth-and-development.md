@@ -13,7 +13,7 @@ original_url: >-
 
 ![](https://seffsaid.com/wp-content/uploads/Accelerate-Your-Personal-Growth.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Personal growth and development is something that we could all benefit from focusing on in the long-term. But what do we mean by personal growth? Simply put, it means self-improvement or any change that improves you, your life, and your well-being on an everyday basis.
 
@@ -21,11 +21,11 @@ We can all make small changes to our lifestyle that can increase our personal gr
 
 ## 1\. Read more
 
-Whether it’s life-affirming novels or books on any aspect of well-being, self-help, self-improvement, or personal development, [reading more](/8-benefits-of-reading-books) will improve your life and increase your personal growth like nothing else.
+Whether it’s life-affirming novels or books on any aspect of well-being, self-help, self-improvement, or personal development, [reading more](https://selfsaid.30tools.com/8-benefits-of-reading-books) will improve your life and increase your personal growth like nothing else.
 
 ## 2\. Make time for gratitude
 
-[Being grateful for what we have](/how-to-cultivate-an-attitude-of-gratitude), rather than dwelling on what we lack, is an amazingly powerful way of [increasing happiness](/7-ways-to-be-a-happier-person) and well-being, cultivating personal growth, maturity, and stable emotions. It’s such a simple technique, we should all practice it regularly, especially whenever we feel down, full of self-pity or feeling that we are somehow missing out on things in life that others seem to have.
+[Being grateful for what we have](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude), rather than dwelling on what we lack, is an amazingly powerful way of [increasing happiness](https://selfsaid.30tools.com/7-ways-to-be-a-happier-person) and well-being, cultivating personal growth, maturity, and stable emotions. It’s such a simple technique, we should all practice it regularly, especially whenever we feel down, full of self-pity or feeling that we are somehow missing out on things in life that others seem to have.
 
 Social media can give us the impression that everyone else is happier or more blessed with money, friends, love, experiences, and “stuff” in general. Take a few minutes each day to list the amazing people, experiences, and material things that you have in your life, the incredible things in nature that you are lucky enough to witness, and put aside any envy or low self-esteem. It’s a simple technique but it really works.
 
@@ -37,35 +37,35 @@ If we take time to truly and honestly reflect on our thoughts and actions then w
 
 Finding activities that are truly enjoyable and fulfilling can make the road to personal growth and development both rewarding and fun. But it’s not always as easy as it may seem. If you haven’t already found hobbies and activities that really satisfy you then it’s time to try out some new things.
 
-Have you ever been dancing, played an instrument, played a new sport, joined a book club, tried rock climbing or been to a meditation group? You really don’t know what you will enjoy until you try, and doing new things as often as possible is a great way to meet new and interesting people, [stretch your comfort zone](/10-ways-to-step-out-of-your-comfort-zone) and really accelerate your personal growth!
+Have you ever been dancing, played an instrument, played a new sport, joined a book club, tried rock climbing or been to a meditation group? You really don’t know what you will enjoy until you try, and doing new things as often as possible is a great way to meet new and interesting people, [stretch your comfort zone](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone) and really accelerate your personal growth!
 
 ## 5\. Put yourself first
 
-Although it’s true that there are many selfish people in the world, many of us are also guilty of always putting others first. It’s a lovely selfless thing to do but there can be a personal toll from never [putting your own needs first](/putting-yourself-first).
+Although it’s true that there are many selfish people in the world, many of us are also guilty of always putting others first. It’s a lovely selfless thing to do but there can be a personal toll from never [putting your own needs first](https://selfsaid.30tools.com/putting-yourself-first).
 
-[Self-care](/56-self-care-ideas-for-a-healthy-mind-and-body) and self-love should be prioritized as they allow us to relax, reflect and ultimately be better, nicer, calmer people. Ironically, we are also able to love and care for others more effectively when we have been spending time caring for ourselves. We have more patience and more empathy when we are well-rested, healthy and feeling good.
+[Self-care](https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-mind-and-body) and self-love should be prioritized as they allow us to relax, reflect and ultimately be better, nicer, calmer people. Ironically, we are also able to love and care for others more effectively when we have been spending time caring for ourselves. We have more patience and more empathy when we are well-rested, healthy and feeling good.
 
 ## 6\. Say “no” more often
 
 There’s a saying that “if you want something done, ask a busy person”. This is simply because there are people in life who have trouble saying “no” to anything asked of them. They are usually lovely, kind people but they are also usually stressed and burnt out by trying to do everything that everyone asks of them.
 
-We are always told that quality is more important than quantity and that’s where saying “no” comes in. When we stop saying “yes” to everything, yes to every favor that’s asked of us, “yes” to every chore that needs doing or errand that needs running, we free up time and energy, allowing ourselves to concentrate more on the smaller number of things that we choose to do. We do these tasks with more concentration, more love and more mindfulness rather than running from chore to chore in a stressed state. [Learn how to say no](/learn-how-to-say-no) today.
+We are always told that quality is more important than quantity and that’s where saying “no” comes in. When we stop saying “yes” to everything, yes to every favor that’s asked of us, “yes” to every chore that needs doing or errand that needs running, we free up time and energy, allowing ourselves to concentrate more on the smaller number of things that we choose to do. We do these tasks with more concentration, more love and more mindfulness rather than running from chore to chore in a stressed state. [Learn how to say no](https://selfsaid.30tools.com/learn-how-to-say-no) today.
 
 ## 7\. Make time to unplug (and make time by unplugging)
 
-We are all guilty of spending time staring at our phones, at our televisions, or at our tablets. Give us a screen and we’ll waste huge amounts of time staring at it for one reason or another. So give yourself the gift of [unplugging](/quotes-about-unplugging) and see how much more time you have for all the other things you want to do in life.
+We are all guilty of spending time staring at our phones, at our televisions, or at our tablets. Give us a screen and we’ll waste huge amounts of time staring at it for one reason or another. So give yourself the gift of [unplugging](https://selfsaid.30tools.com/quotes-about-unplugging) and see how much more time you have for all the other things you want to do in life.
 
 Start by scheduling an hour a day without technology and see how liberating it is. Your personal growth will sky-rocket and you may even want to increase the time you spend away from your screens.
 
 ## 8\. Be more positive
 
-Positivity is sometimes seen as a God-given quality but it is in fact a trait that we can all gain through habit and a little hard work. Simply taking the time each day to focus on positive thoughts, including gratitude for what we have and positive visualizations of the future, can gradually mould our psyche to a more optimistic stance, [increasing positivity](/easy-ways-to-develop-a-positive-attitude), general well-being, and personal growth.
+Positivity is sometimes seen as a God-given quality but it is in fact a trait that we can all gain through habit and a little hard work. Simply taking the time each day to focus on positive thoughts, including gratitude for what we have and positive visualizations of the future, can gradually mould our psyche to a more optimistic stance, [increasing positivity](https://selfsaid.30tools.com/easy-ways-to-develop-a-positive-attitude), general well-being, and personal growth.
 
 ## 9\. Push yourself
 
 It may sound like a contradiction after stressing the importance of being kind to yourself and putting yourself first, but we have to also push ourselves if we are going to keep making improvements and increasing our self-growth.
 
-Learn to push yourself through fear. Train yourself to [defeat procrastination](/how-to-stop-procrastinating) and reluctance and push yourself through laziness. Balanced with great self-care and being kinder to yourself, you’ll find your productivity, health and well-being can all improve hugely.
+Learn to push yourself through fear. Train yourself to [defeat procrastination](https://selfsaid.30tools.com/how-to-stop-procrastinating) and reluctance and push yourself through laziness. Balanced with great self-care and being kinder to yourself, you’ll find your productivity, health and well-being can all improve hugely.
 
 ## 10\. Track your progress
 
@@ -88,3 +88,5 @@ Personal growth and personal development is a life-long project, ebbing and flow
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development/

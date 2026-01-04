@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-strength/'
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-about-strength.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Life can be really hard sometimes. Losses, failures, tragedies, setbacks, and health issues are all a part of life. And when life is treating us harshly is when we really need to fight through even the most challenging adversities without giving up. Unfortunately, it can often be an incredible challenge to find the determination to access our inner strength in order to persevere.
 
-This is when quotes about strength and resilience can help. They can inspire you, comfort you, and help you realize that your hardships are but brief moments of [time that will soon pass](/the-20-greatest-time-passing-quotes).
+This is when quotes about strength and resilience can help. They can inspire you, comfort you, and help you realize that your hardships are but brief moments of [time that will soon pass](https://selfsaid.30tools.com/the-20-greatest-time-passing-quotes).
 
-If you are currently suffering, I really hope these [great quotes](/the-greatest-quotes-of-all-time) will give you the strength you need. On a similar theme, read these incredibly powerful [quotes about courage](/quotes-about-courage).
+If you are currently suffering, I really hope these [great quotes](https://selfsaid.30tools.com/the-greatest-quotes-of-all-time) will give you the strength you need. On a similar theme, read these incredibly powerful [quotes about courage](https://selfsaid.30tools.com/quotes-about-courage).
 
 ## Quotes about Strength & Resilience
 
@@ -43,7 +43,7 @@ If you are currently suffering, I really hope these [great quotes](/the-greatest
 *   “Nothing goes to waste on the journey of life. Both good and bad experiences shape your mind and heart for what is to come.” – Leon Brown
 *   “Our greatest glory is not in never falling, but in rising every time we fall.” – Confucius
 *   “Broken crayons still color.” – Anonymous
-*   You never know how strong you are until being strong is your only choice.” – [Bob Marley](/bob-marley-quotes)
+*   You never know how strong you are until being strong is your only choice.” – [Bob Marley](https://selfsaid.30tools.com/bob-marley-quotes)
 *   “Hope can be a powerful force. Maybe there’s no actual magic in it, but when you know what you hope for most and hold it like a light within you, you can make things happen, almost like magic.” – Laini Taylor
 *   “When you’re at the end of your rope, tie a knot and hold on.” – Theodore Roosevelt  
       
@@ -53,7 +53,7 @@ If you are currently suffering, I really hope these [great quotes](/the-greatest
 *   “Never lose hope. Never forget the power of intentions and desires.” – Debasish Mridha
 *   “The most beautiful people I’ve known are those who have known trials, have known struggles, have known loss, and have found their way out of the depths.” – Elisabeth Kübler-Ross
 *   “It doesn’t matter what cards you’re dealt. It’s what you do with those cards. Never complain. Just keep pushing forward. Find a positive in anything and just fight for it.” – Baker Mayfield
-*   “It’s not the absence of fear. It’s overcoming it. Sometimes you’ve got to blast through and have faith.” – [Emma Watson](/emma-watson-quotes)
+*   “It’s not the absence of fear. It’s overcoming it. Sometimes you’ve got to blast through and have faith.” – [Emma Watson](https://selfsaid.30tools.com/emma-watson-quotes)
 *   “Every day may not be good, but there is some good in every day.” – Alice Morse Earle
 *   “Even the darkest night will end and the sun will rise.” – Victor Hugo
 *   “Great changes may not happen right away, but with effort even the difficult may become easy.” – Bill Blackman
@@ -81,3 +81,5 @@ If you are currently suffering, I really hope these [great quotes](/the-greatest
 [More](#)
 
 144 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-strength/

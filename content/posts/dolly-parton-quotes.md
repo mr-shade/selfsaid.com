@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/dolly-parton-quotes/'
 
 ![Dolly Parton live in concert](https://seffsaid.com/wp-content/uploads/Dolly-Parton-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-50 quotes by Dolly Parton showcasing her wit, [wisdom](/wise-quotes-about-life), and unique perspective on life, love, and [success](/mindsets-for-success).
+50 quotes by Dolly Parton showcasing her wit, [wisdom](https://selfsaid.30tools.com/wise-quotes-about-life), and unique perspective on life, love, and [success](https://selfsaid.30tools.com/mindsets-for-success).
 
 1.  “If you don’t like the road you’re walking, start paving another one.” – Dolly Parton
 2.  “The way I see it, if you want the rainbow, you gotta put up with the rain.” – Dolly Parton
@@ -29,7 +29,7 @@ original_url: 'https://selfsaid.30tools.com/dolly-parton-quotes/'
 11.  “I’m not offended by all the dumb blonde jokes because I know I’m not dumb… and I also know that I’m not blonde.” – Dolly Parton
 12.  “Being a star just means that you just find your own special place, and that you shine where you are.” – Dolly Parton
 13.  “Laughter through tears is my favorite emotion.” – Dolly Parton
-14.  “I make a point to appreciate all the little things in my life. I go out and smell the air after a good, hard rain. These [small actions](/how-small-actions-can-make-a-huge-difference) help remind me that there are so many great things about life.” – Dolly Parton
+14.  “I make a point to appreciate all the little things in my life. I go out and smell the air after a good, hard rain. These [small actions](https://selfsaid.30tools.com/how-small-actions-can-make-a-huge-difference) help remind me that there are so many great things about life.” – Dolly Parton
 15.  “To thine own self be true, and it must follow, as the night the day, thou canst not then be false to any man.” – Dolly Parton
 16.  “I always just thought if you see somebody without a smile, give’em yours!” – Dolly Parton
 17.  “Love is something sent from Heaven to worry the Hell out of you.” – Dolly Parton
@@ -67,7 +67,7 @@ original_url: 'https://selfsaid.30tools.com/dolly-parton-quotes/'
 49.  “There’s more to light than the opposite of dark.” – Dolly Parton
 50.  “I’m not a natural beauty. If I’m gonna have any looks at all, I’m gonna have to create them.” – Dolly Parton
 
-Enjoyed this page? Discover more [quotes by famous people](/quotes-by-famous-people) here.
+Enjoyed this page? Discover more [quotes by famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fdolly-parton-quotes%2F)
 
@@ -82,3 +82,5 @@ Enjoyed this page? Discover more [quotes by famous people](/quotes-by-famous-peo
 [More](#)
 
 114 Shares
+
+Source: https://selfsaid.30tools.com/dolly-parton-quotes/

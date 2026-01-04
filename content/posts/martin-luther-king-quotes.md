@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/martin-luther-king-quotes/'
 
 ![Martin Luther King Quotes](https://seffsaid.com/wp-content/uploads/martin-luther-king-quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Martin Luther King Jr. is remembered as a powerful voice for justice and equality. His speeches still echo around the world. But beyond the headlines and history, his words offer something steady and personal – a kind of quiet courage that still holds meaning today.
 
 His quotes don’t just speak to movements. They speak to people. They speak to you, where you are, especially on days when you feel uncertain, discouraged, or in need of a reminder that kindness, resilience, and integrity still matter.
 
-This collection brings together some of his most [meaningful quotes](/meaningful-quotes), each followed by a short reflection to help you carry them into your everyday life.
+This collection brings together some of his most [meaningful quotes](https://selfsaid.30tools.com/meaningful-quotes), each followed by a short reflection to help you carry them into your everyday life.
 
 ### “Faith is taking the first step even when you don’t see the whole staircase.”
 
@@ -145,3 +145,5 @@ Martin Luther King Jr.’s words continue to move the world. But they can also m
 [More](#)
 
 12 Shares
+
+Source: https://selfsaid.30tools.com/martin-luther-king-quotes/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-
 
 ![](https://seffsaid.com/wp-content/uploads/Reduce-Stress-and-Anxiety.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 These days it seems like everyone is either stressed out, incredibly anxious or a combination of them both. We live in an increasingly on-the-go society and unfortunately, stress is part of most people’s life.
 
@@ -28,7 +28,7 @@ We all know that stress is super bad for your health, so how can we reduce stres
 
 5\. Make a list of all the things you are grateful for. People with a greater level of gratitude tend to be happier, sleep better, and enjoy less stress.
 
-6\. [Learn to say no](/learn-how-to-say-no). Stop taking on more and more jobs and responsibilities.
+6\. [Learn to say no](https://selfsaid.30tools.com/learn-how-to-say-no). Stop taking on more and more jobs and responsibilities.
 
 7\. Start a stretching routine. When you are under stress your muscles grow tense and can become sore. Regular stretching can help relieve stress and relax tense muscles.
 
@@ -48,7 +48,7 @@ We all know that stress is super bad for your health, so how can we reduce stres
 
 15\. Get a coloring book and start coloring.
 
-16\. [Declutter your home](/declutter-your-home). Excessive clutter is often a cause of stress. It can distract you and invite chaos into your life.
+16\. [Declutter your home](https://selfsaid.30tools.com/declutter-your-home). Excessive clutter is often a cause of stress. It can distract you and invite chaos into your life.
 
 17\. Do a jigsaw puzzle. Jigsaw puzzles are a great stress reliever. Focusing on one task for a long period of time is in itself meditation. By doing a jigsaw puzzle, you’re getting the same stress benefits as if you meditated.
 
@@ -74,25 +74,25 @@ We all know that stress is super bad for your health, so how can we reduce stres
 
 28\. Make yourself a cup of chamomile tea. [Chamomile](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2995283/) is one of the most ancient medicinal herbs known to mankind and promotes relaxation and sleep.
 
-29\. [Read a book](/8-benefits-of-reading-books). Reading can relax your body by lowering your heart rate and easing the tension in muscles.
+29\. [Read a book](https://selfsaid.30tools.com/8-benefits-of-reading-books). Reading can relax your body by lowering your heart rate and easing the tension in muscles.
 
-30\. Dab some lavender essential oil on your clothes. The aroma of lavender has been shown to [reduce stress](/how-to-reduce-stress) levels.
+30\. Dab some lavender essential oil on your clothes. The aroma of lavender has been shown to [reduce stress](https://selfsaid.30tools.com/how-to-reduce-stress) levels.
 
-31\. Try to [live a simple life](/simple-living-how-to-live-a-simple-life).
+31\. Try to [live a simple life](https://selfsaid.30tools.com/simple-living-how-to-live-a-simple-life).
 
 32\. Hug someone. Hugging has been shown to reduce stress.
 
-33\. [Avoid negative people](/stay-away-from-negative-people).
+33\. [Avoid negative people](https://selfsaid.30tools.com/stay-away-from-negative-people).
 
 34\. Take a long hot bath. A hot bath can do more than just get you clean. It can help to wash away stress and pain by relaxing tense muscles.
 
 35\. Take a long shower.
 
-36\. Turn off your phone. Researchers have found an association between [rising stress levels](/stress-levels-out-of-control) and the practice of constantly checking a phone.
+36\. Turn off your phone. Researchers have found an association between [rising stress levels](https://selfsaid.30tools.com/stress-levels-out-of-control) and the practice of constantly checking a phone.
 
 37\. Play with your pet. Multiple studies have shown that stroking a pet is an effective way to lower stress. It can not only lower blood pressure but also reduce stress hormones like cortisol.
 
-38\. Take up yoga. Regular yoga practice can be a great way to stay in shape, reduce stress, and [calm the mind](/anxiety-quotes).
+38\. Take up yoga. Regular yoga practice can be a great way to stay in shape, reduce stress, and [calm the mind](https://selfsaid.30tools.com/anxiety-quotes).
 
 39\. Chew gum. A few minutes of chewing can lower levels of the stress hormone cortisol.
 
@@ -108,7 +108,7 @@ We all know that stress is super bad for your health, so how can we reduce stres
 
 45\. Take a break from social media.
 
-46\. Meditate. [Regular meditation](/5-amazing-benefits-of-meditation) can ease anxiety and lower stress.
+46\. Meditate. [Regular meditation](https://selfsaid.30tools.com/5-amazing-benefits-of-meditation) can ease anxiety and lower stress.
 
 47\. Exercise! Exercising reduces levels of the body’s stress hormones, such as adrenaline and cortisol.
 
@@ -127,3 +127,5 @@ Pin44
 [More](#)
 
 44 Shares
+
+Source: https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety/

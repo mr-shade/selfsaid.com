@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/warren-buffett-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/warren-buffett-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Warren Buffett’s wisdom is timeless and practical, offering valuable insights for anyone interested in business and investing. Here are some of his most memorable quotes that capture his straightforward approach to achieving success and financial stability. Read more [quotes from famous people](/quotes-by-famous-people) here.
+Warren Buffett’s wisdom is timeless and practical, offering valuable insights for anyone interested in business and investing. Here are some of his most memorable quotes that capture his straightforward approach to achieving success and financial stability. Read more [quotes from famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 *   “Rule No. 1: Never lose money. Rule No. 2: Never forget rule No. 1.” — Warren Buffett
 *   “Price is what you pay. Value is what you get.” — Warren Buffet
@@ -45,7 +45,7 @@ Warren Buffett’s wisdom is timeless and practical, offering valuable insights 
 *   “If you buy things you do not need, soon you will have to sell things you need.” — Warren Buffett
 *   “Do not save what is left after spending, but spend what is left after saving.” — Warren Buffett
 *   “If you don’t find a way to make money while you sleep, you will work until you die.” — Warren Buffett
-*   The difference between [successful people](/6-things-successful-people-never-do) and really successful people is that really successful people say no to almost everything.” — Warren Buffett
+*   The difference between [successful people](https://selfsaid.30tools.com/6-things-successful-people-never-do) and really successful people is that really successful people say no to almost everything.” — Warren Buffett
 *   “The most important investment you can make is in yourself.” — Warren Buffett
 *   “Time is the friend of the wonderful company, the enemy of the mediocre.” — Warren Buffett
 *   “I do more reading and thinking, and make less impulse decisions than most people in business.” — Warren Buffett
@@ -80,3 +80,5 @@ Warren Buffett’s wisdom is timeless and practical, offering valuable insights 
 [More](#)
 
 70 Shares
+
+Source: https://selfsaid.30tools.com/warren-buffett-quotes/

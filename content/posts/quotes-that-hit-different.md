@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/quotes-that-hit-different/'
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-hit-different.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-When someone says “that quote hits different,” they usually mean that a particular quote resonates with them on a deeper or more personal level than usual. It evokes a strong emotional response, like feelings of nostalgia, inspiration, or reflection, and often connects with a specific experience or moment in their life. It’s a [quote that takes your breath away](/quotes-that-take-your-breath-away). Here are 50 quotes that hit different.
+When someone says “that quote hits different,” they usually mean that a particular quote resonates with them on a deeper or more personal level than usual. It evokes a strong emotional response, like feelings of nostalgia, inspiration, or reflection, and often connects with a specific experience or moment in their life. It’s a [quote that takes your breath away](https://selfsaid.30tools.com/quotes-that-take-your-breath-away). Here are 50 quotes that hit different.
 
 ## Quotes That Hit Different
 
@@ -24,13 +24,13 @@ When someone says “that quote hits different,” they usually mean that a part
 
 “What lies behind us and what lies before us are tiny matters compared to what lies within us.” — Ralph Waldo Emerson
 
-“You have power over your mind—not outside events. Realize this, and you will find strength.” — [Marcus Aurelius](/marcus-aurelius-quotes)
+“You have power over your mind—not outside events. Realize this, and you will find strength.” — [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)
 
 “The only way to make sense out of change is to plunge into it, move with it, and join the dance.” — Alan Watts
 
 “In three words I can sum up everything I’ve learned about life: it goes on.” — Robert Frost
 
-Don’t count the days, make the days count.” — [Muhammad Ali](/muhammad-ali-quotes)
+Don’t count the days, make the days count.” — [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 
 “It is never too late to be what you might have been.” — George Eliot
 
@@ -64,7 +64,7 @@ Don’t count the days, make the days count.” — [Muhammad Ali](/muhammad-ali
 
 “The biggest adventure you can take is to live the life of your dreams.” — Oprah Winfrey
 
-Success is not final, failure is not fatal: It is the courage to continue that counts.” — [Winston Churchill](/winston-churchill-quotes)
+Success is not final, failure is not fatal: It is the courage to continue that counts.” — [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 
 “Pain is inevitable, but suffering is optional.” — Haruki Murakami
 
@@ -72,7 +72,7 @@ Success is not final, failure is not fatal: It is the courage to continue that c
 
 “You miss 100% of the shots you don’t take.” — Wayne Gretzky
 
-The way I see it, if you want the rainbow, you gotta put up with the rain.” — [Dolly Parton](/dolly-parton-quotes)
+The way I see it, if you want the rainbow, you gotta put up with the rain.” — [Dolly Parton](https://selfsaid.30tools.com/dolly-parton-quotes)
 
 “To live is the rarest thing in the world. Most people exist, that is all.” — Oscar Wilde
 
@@ -80,13 +80,13 @@ The way I see it, if you want the rainbow, you gotta put up with the rain.” �
 
 “Be yourself; everyone else is already taken.” — Oscar Wilde
 
-Imperfection is beauty, madness is genius, and it’s better to be absolutely ridiculous than absolutely boring.” — [Marilyn Monroe](/marilyn-monroe-quotes)
+Imperfection is beauty, madness is genius, and it’s better to be absolutely ridiculous than absolutely boring.” — [Marilyn Monroe](https://selfsaid.30tools.com/marilyn-monroe-quotes)
 
 “Do what you feel in your heart to be right, for you’ll be criticized anyway.” — Eleanor Roosevelt
 
 “It’s not the load that breaks you down, it’s the way you carry it.” — Lou Holtz
 
-Happiness can be found even in the darkest of times, if one only remembers to turn on the light.” — [J.K. Rowling](/j-k-rowling-quotes)
+Happiness can be found even in the darkest of times, if one only remembers to turn on the light.” — [J.K. Rowling](https://selfsaid.30tools.com/j-k-rowling-quotes)
 
 “I have not failed. I’ve just found 10,000 ways that won’t work.” — Thomas Edison
 
@@ -106,13 +106,13 @@ Happiness can be found even in the darkest of times, if one only remembers to tu
 
 “Normality is a paved road: It’s comfortable to walk, but no flowers grow.” — Vincent van Gogh
 
-The two most important days in your life are the day you are born and the day you find out why.” — [Mark Twain](/25-inspirational-mark-twain-quotes)
+The two most important days in your life are the day you are born and the day you find out why.” — [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 
 “When we are no longer able to change a situation, we are challenged to change ourselves.” — Viktor Frankl
 
-Life begins at the end of your [comfort zone.”](/10-ways-to-step-out-of-your-comfort-zone) — Neale Donald Walsch
+Life begins at the end of your [comfort zone.”](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone) — Neale Donald Walsch
 
-“You can’t use up creativity. The more you use, the more you have.” — [Maya Angelou](/maya-angelou-quotes)
+“You can’t use up creativity. The more you use, the more you have.” — [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 
 “Strive not to be a success, but rather to be of value.” — Albert Einstein
 
@@ -131,3 +131,5 @@ Life begins at the end of your [comfort zone.”](/10-ways-to-step-out-of-your-c
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/quotes-that-hit-different/

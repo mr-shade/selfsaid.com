@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/charli-xcx-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Charli-XCX-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 In this collection of Charli XCX quotes, she shares her thoughts on creativity, individuality, and self-expression, offering a unique perspective on what it means to be an artist today.
 
@@ -69,7 +69,7 @@ In this collection of Charli XCX quotes, she shares her thoughts on creativity, 
 *   “I think embracing who you are is the ultimate form of success.” — Charli XCX
 *   “Music is powerful because it has the ability to connect people everywhere.” — Charli XCX
 
-Read more [quotes by famous people](/quotes-by-famous-people) here.
+Read more [quotes by famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fcharli-xcx-quotes%2F)
 
@@ -84,3 +84,5 @@ Read more [quotes by famous people](/quotes-by-famous-people) here.
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/charli-xcx-quotes/

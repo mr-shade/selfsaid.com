@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/minimalist-quotes/'
 
 ![Minimalist Quotes That Inspire a Calmer Life](https://seffsaid.com/wp-content/uploads/minimalist-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A simpler life doesn’t mean an empty one. It means choosing space over clutter, quiet over chaos, and presence over pressure. These 50 minimalist quotes are gentle reminders to slow down, let go of what you don’t need, and focus on what really matters.
 
@@ -21,7 +21,7 @@ Divided into five calming sections, this collection speaks to clarity, stillness
 ## Letting Go of the Unnecessary
 
 1.  “The ability to simplify means to eliminate the unnecessary so that the necessary may speak.” – Hans Hofmann
-2.  “It is not daily increase but daily decrease. Hack away at the unessential.” – [Bruce Lee](/bruce-lee-quotes)
+2.  “It is not daily increase but daily decrease. Hack away at the unessential.” – [Bruce Lee](https://selfsaid.30tools.com/bruce-lee-quotes)
 3.  “You don’t need more space. You need less stuff.” – Joshua Becker
 4.  “Minimalism is not about having less. It’s about making room for more of what matters.” – Unknown
 5.  “Decluttering is not just physical. It’s mental, emotional, and spiritual.” – Seff Bray
@@ -59,12 +59,12 @@ Divided into five calming sections, this collection speaks to clarity, stillness
 
 ## Minimalism as Self-Care
 
-31.  [“Simplifying your life](/10-ways-to-make-life-easier-again) is an act of self-respect.” – Seff Bray
+31.  [“Simplifying your life](https://selfsaid.30tools.com/10-ways-to-make-life-easier-again) is an act of self-respect.” – Seff Bray
 32.  “Clear space. Clear mind.” – Unknown
 33.  “The less you have to manage, the more room you have to breathe.” – Seff Bray
 34.  “Minimalism is self-care in physical form.” – Seff Bray
 35.  “Fewer decisions leave room for better ones.” – Unknown
-36.  Removing what drains you is an [act of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer) toward yourself.” – Seff Bray
+36.  Removing what drains you is an [act of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) toward yourself.” – Seff Bray
 37.  “A simpler life gives you back your attention.” – Seff Bray
 38.  “Less stuff. Fewer distractions. More peace.” – Unknown
 39.  “You are allowed to protect your time, space, and energy.” – Seff Bray
@@ -96,3 +96,5 @@ Divided into five calming sections, this collection speaks to clarity, stillness
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/minimalist-quotes/

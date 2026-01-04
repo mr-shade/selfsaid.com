@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/michael-jordan-quotes/'
 
 ![120 Michael Jordan Quotes to Inspire Your Personal Best](https://seffsaid.com/wp-content/uploads/michael-jordan-quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Welcome to a powerful collection of 120 [inspirational sports quotes](/inspirational-sports-quotes) from [Michael Jordan](https://www.forbes.com/profile/michael-jordan/), a collection that shines a light on the legacy of basketball’s iconic figure. These quotes go beyond the game, reflecting Jordan’s philosophy on life, success, and overcoming challenges. They offer insights into a [success mindset](/mindsets-for-success) characterized by fierce competitiveness, hard work, and the drive to surpass obstacles.
+Welcome to a powerful collection of 120 [inspirational sports quotes](https://selfsaid.30tools.com/inspirational-sports-quotes) from [Michael Jordan](https://www.forbes.com/profile/michael-jordan/), a collection that shines a light on the legacy of basketball’s iconic figure. These quotes go beyond the game, reflecting Jordan’s philosophy on life, success, and overcoming challenges. They offer insights into a [success mindset](https://selfsaid.30tools.com/mindsets-for-success) characterized by fierce competitiveness, hard work, and the drive to surpass obstacles.
 
 For anyone seeking motivation—sports enthusiasts, athletes, or those in need of encouragement—Jordan’s words are a compelling reminder of the heights achievable with the right mindset and ethic. Let Michael Jordan’s spirit motivate you to soar to new achievements.
 
@@ -47,7 +47,7 @@ For anyone seeking motivation—sports enthusiasts, athletes, or those in need o
 25.  “There is no ‘i’ in team but there is in win.” – Michael Jordan
 26.  “Even when I’m old and grey, I won’t be able to play it, but I’ll still love the game.” – Michael Jordan
 27.  “If you do the work you get rewarded. There are no shortcuts in life.” – Michael Jordan
-28.  I hope the millions of people I’ve touched have the optimism and desire to share their goals and hard work and perseverance with a [positive attitude.”](/easy-ways-to-develop-a-positive-attitude) – Michael Jordan
+28.  I hope the millions of people I’ve touched have the optimism and desire to share their goals and hard work and perseverance with a [positive attitude.”](https://selfsaid.30tools.com/easy-ways-to-develop-a-positive-attitude) – Michael Jordan
 29.  “Learning’s a gift, even when pain is your teacher.” – Michael Jordan
 30.  “The best come from the worst.” – Michael Jordan
 31.  “I’ve never been afraid to fail.” – Michael Jordan
@@ -58,7 +58,7 @@ For anyone seeking motivation—sports enthusiasts, athletes, or those in need o
 36.  “Winning isn’t always championships.” – Michael Jordan
 37.  “I’ve never lost a game, I just ran out of time.” – Michael Jordan
 38.  “Being Michael Jordan means acting the same as I always have.” – Michael Jordan
-39.  I hope that my story, ‘Michael Jordan,’ can help, can influence, can motivate people to [overcome obstacles](/proven-ways-to-overcome-obstacles), work hard, and follow their dreams.” – Michael Jordan
+39.  I hope that my story, ‘Michael Jordan,’ can help, can influence, can motivate people to [overcome obstacles](https://selfsaid.30tools.com/proven-ways-to-overcome-obstacles), work hard, and follow their dreams.” – Michael Jordan
 40.  “My heroes are and were my parents. I can’t see having anyone else as my heroes.” – Michael Jordan
 41.  “When I will lose the sense of motivation and the sense to prove something as a basketball player, it’s time for me to move away from the game.” – Michael Jordan
 42.  “My challenge when I came back was to face the young talent, to dissect their games, and show them maybe that they needed to learn more about the game than just the money aspect.” – Michael Jordan
@@ -124,7 +124,7 @@ For anyone seeking motivation—sports enthusiasts, athletes, or those in need o
 102.  “A leader has to lead, or otherwise he has no business in leading.” – Michael Jordan
 103.  “I don’t do things half-heartedly. Because I know if I do, then I can expect half-hearted results.” – Michael Jordan
 104.  “The game of basketball has been everything to me. My place of refuge, place I’ve always gone where I needed comfort and peace.” – Michael Jordan
-105.  “Every time I [feel tired](/reasons-feel-tired) while exercising, I close my eyes to see that picture, to see that shot.” – Michael Jordan
+105.  “Every time I [feel tired](https://selfsaid.30tools.com/reasons-feel-tired) while exercising, I close my eyes to see that picture, to see that shot.” – Michael Jordan
 106.  “Being able to concentrate and use your time well is everything.” – Michael Jordan
 107.  “Success isn’t about the end result, it’s about what you learn along the way.” – Michael Jordan
 108.  “Make it happen, no matter what.” – Michael Jordan
@@ -154,3 +154,5 @@ For anyone seeking motivation—sports enthusiasts, athletes, or those in need o
 [More](#)
 
 35 Shares
+
+Source: https://selfsaid.30tools.com/michael-jordan-quotes/

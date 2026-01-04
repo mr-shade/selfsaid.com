@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/how-i-cope-living-my-life-as-an-intr
 
 ![An introverted woman on her own gazing out to sea.](https://seffsaid.com/wp-content/uploads/Living-My-Life-As-An-Introvert.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I’m at a party and I’m smiling. I’m caring and I’m sharing, I’m being bubbly and, I hope, only slightly unconventional and just a little amusing. That’s my thing. Yeah, I’ve got my party face on and I’m having a pretty good time.
 
@@ -91,7 +91,7 @@ But not too much as that can lead to too much introspection and general disconne
 
 ## 10\. I’ve learned to say no.
 
-I’m a [people pleaser](/stop-being-a-people-pleaser) and in the past I’ve said yes too quickly to invitations and requests, and this led to burnout. I’ve learned to say _no_ or _I’ll think about_ it as a default, giving myself a long moment to think about how much time and energy I have and how I want to spend it.
+I’m a [people pleaser](https://selfsaid.30tools.com/stop-being-a-people-pleaser) and in the past I’ve said yes too quickly to invitations and requests, and this led to burnout. I’ve learned to say _no_ or _I’ll think about_ it as a default, giving myself a long moment to think about how much time and energy I have and how I want to spend it.
 
 ## Final thoughts
 
@@ -110,3 +110,5 @@ I think the key to being happy as an introvert is to be just a tiny bit selfish 
 [More](#)
 
 26 Shares
+
+Source: https://selfsaid.30tools.com/how-i-cope-living-my-life-as-an-introvert/

@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/olivia-rodrigo-quotes/'
 
 ![Olivia Rodrigo singing live in concert](https://seffsaid.com/wp-content/uploads/Olivia-Rodrigo-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-In this collection of 50 quotes from Olivia Rodrigo, you’ll find her unique perspective on life, music, and the process of growing up. Discover more [quotes from famous people](/quotes-by-famous-people) here.
+In this collection of 50 quotes from Olivia Rodrigo, you’ll find her unique perspective on life, music, and the process of growing up. Discover more [quotes from famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 1.  “Nothing’s scarier than feeling like you’re never going to recover from pain.” – Olivia Rodrigo
 2.  “I’m constantly learning and growing at such a rapid rate.” – Olivia Rodrigo
-3.  “Songs are like [tattoos](/tattoo-quotes). You put them on and it’s like this really special form of self-expression.” – Olivia Rodrigo
+3.  “Songs are like [tattoos](https://selfsaid.30tools.com/tattoo-quotes). You put them on and it’s like this really special form of self-expression.” – Olivia Rodrigo
 4.  “My songs are like a little time capsule of that exact moment when I felt those emotions.” – Olivia Rodrigo
 5.  “It’s all about growth and learning from your experiences.” – Olivia Rodrigo
 6.  “Vulnerability is what makes art real.” – Olivia Rodrigo
@@ -26,7 +26,7 @@ In this collection of 50 quotes from Olivia Rodrigo, you’ll find her unique pe
 8.  “You never know what you’re capable of until you try.” – Olivia Rodrigo
 9.  “I write my best songs when I’m feeling really, really deeply about something.” – Olivia Rodrigo
 10.  “I think all writing is a form of therapy for me.” – Olivia Rodrigo
-11.  “I believe there’s nothing more powerful than a young woman who [knows her worth](/know-your-worth-quotes).” – Olivia Rodrigo
+11.  “I believe there’s nothing more powerful than a young woman who [knows her worth](https://selfsaid.30tools.com/know-your-worth-quotes).” – Olivia Rodrigo
 12.  “I find power in vulnerability.” – Olivia Rodrigo
 13.  “I’ve learned that things change very quickly and unpredictably sometimes.” – Olivia Rodrigo
 14.  “I think the scariest thing about growing up is losing your sense of wonder.” – Olivia Rodrigo
@@ -40,7 +40,7 @@ In this collection of 50 quotes from Olivia Rodrigo, you’ll find her unique pe
 22.  “Every day is an opportunity to learn more about who you are.” – Olivia Rodrigo
 23.  “I’m really into honesty in music.” – Olivia Rodrigo
 24.  “I’m just trying to make music that feels true to me.” – Olivia Rodrigo
-25.  It’s important to push yourself out of your [comfort zone.”](/10-ways-to-step-out-of-your-comfort-zone) – Olivia Rodrigo
+25.  It’s important to push yourself out of your [comfort zone.”](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone) – Olivia Rodrigo
 26.  “Music has always been a way for me to understand myself better.” – Olivia Rodrigo
 27.  “I feel lucky to be able to create something that makes me feel less alone.” – Olivia Rodrigo
 28.  “Acknowledging your feelings is important to understand yourself.” – Olivia Rodrigo
@@ -80,3 +80,5 @@ In this collection of 50 quotes from Olivia Rodrigo, you’ll find her unique pe
 [More](#)
 
 27 Shares
+
+Source: https://selfsaid.30tools.com/olivia-rodrigo-quotes/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/save-30-minutes-a-day/'
 
 ![Woman relaxing in an armchair enjoying a hot drink](https://seffsaid.com/wp-content/uploads/ways-to-save-30-minutes-a-day.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Everyone has those days where 24 hours just don’t seem enough to get everything done. The rush from task to task can leave you feeling exhausted, wishing for just a little more time. What if you could stretch your day by an extra 30 minutes? It’s not about finding a magical solution but making smart, small changes to how you manage your daily activities. This article aims to show you how you can reclaim your time, giving you the chance to enjoy more of what matters to you.
 
@@ -22,7 +22,7 @@ Starting your day with a clear list of what needs to be done can save you a lot 
 
 ## 2\. Limit Time on Social Media
 
-Social media can be a huge time waster without you even realizing it. Setting specific times for social media use and sticking to them or taking a [digital detox](/quotes-about-unplugging) can help you reclaim a lot of lost time each day, giving you more opportunities to focus on productive tasks.
+Social media can be a huge time waster without you even realizing it. Setting specific times for social media use and sticking to them or taking a [digital detox](https://selfsaid.30tools.com/quotes-about-unplugging) can help you reclaim a lot of lost time each day, giving you more opportunities to focus on productive tasks.
 
 ## 3\. Email Management
 
@@ -34,7 +34,7 @@ There are numerous apps and tools designed to improve productivity. From time ma
 
 ## 5\. Say No to Multitasking
 
-While it might seem like you’re [getting more done in less time](/getting-more-done-in-less-time), multitasking can actually slow you down. Focus on completing one task at a time. This way, you’ll finish tasks faster and with better quality.
+While it might seem like you’re [getting more done in less time](https://selfsaid.30tools.com/getting-more-done-in-less-time), multitasking can actually slow you down. Focus on completing one task at a time. This way, you’ll finish tasks faster and with better quality.
 
 ## 6\. Simplify Your Decisions
 
@@ -74,7 +74,7 @@ Allocating specific time slots for tasks can help you work more efficiently. Thi
 
 ## 15\. Practice Self-Care
 
-Taking care of yourself physically and mentally can improve your efficiency and focus, allowing you to accomplish tasks faster. Regular breaks, [learning how to say no](/learn-how-to-say-no), exercise and sufficient sleep are key.
+Taking care of yourself physically and mentally can improve your efficiency and focus, allowing you to accomplish tasks faster. Regular breaks, [learning how to say no](https://selfsaid.30tools.com/learn-how-to-say-no), exercise and sufficient sleep are key.
 
 ## 16\. Learn to Speed Read
 
@@ -115,3 +115,5 @@ Start with one or two changes and see how they impact your life. You might be su
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/save-30-minutes-a-day/

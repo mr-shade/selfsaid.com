@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/38-very-short-quotes-about-life/'
 
 ![](https://seffsaid.com/wp-content/uploads/Very-Short-Quotes-About-Life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Many people have a favorite motivational or inspirational quote. A quote that speaks or resonates with them personally. But why is this? How can a few words have such a profound effect on so many people? Well, a [powerful quote](/martin-luther-king-quotes) can be like a close friend, a mentor, or a personal coach offering personalized advice or encouragement when you need it the most.
+Many people have a favorite motivational or inspirational quote. A quote that speaks or resonates with them personally. But why is this? How can a few words have such a profound effect on so many people? Well, a [powerful quote](https://selfsaid.30tools.com/martin-luther-king-quotes) can be like a close friend, a mentor, or a personal coach offering personalized advice or encouragement when you need it the most.
 
-In [difficult times](/quotes-about-being-strong) or when experiencing periods of self-doubt, inspirational quotes can be just what you need to clear your head of negative thoughts and motivate you to start moving ahead with your life. And quotes don’t have to be overly long and complicated, some of the shortest quotes can say so much.
+In [difficult times](https://selfsaid.30tools.com/quotes-about-being-strong) or when experiencing periods of self-doubt, inspirational quotes can be just what you need to clear your head of negative thoughts and motivate you to start moving ahead with your life. And quotes don’t have to be overly long and complicated, some of the shortest quotes can say so much.
 
 So, if you are in need of a pick me up, here’s a collection of extremely powerful very short quotes about life that will stir you, fill you with wisdom and inspiration, and help keep you motivated throughout the day. I hope you enjoy them.
 
@@ -36,13 +36,13 @@ So, if you are in need of a pick me up, here’s a collection of extremely power
 
 8\. “Broken crayons still color.” – Unknown
 
-9\. “[Be a warrior](/unleashing-your-inner-warrior), not a worrier.” – Unknown
+9\. “[Be a warrior](https://selfsaid.30tools.com/unleashing-your-inner-warrior), not a worrier.” – Unknown
 
 11\. “Don’t stop until you’re proud.” – Unknown
 
 10\. “Find a way or make one.” – Unknown
 
-12\. Freedom is a [state of mind.”](/how-i-cultivated-a-focused-state-of-mind) – Walter Mosley
+12\. Freedom is a [state of mind.”](https://selfsaid.30tools.com/how-i-cultivated-a-focused-state-of-mind) – Walter Mosley
 
 13\. “Die with memories, not dreams.” – Unknown
 
@@ -54,7 +54,7 @@ So, if you are in need of a pick me up, here’s a collection of extremely power
 
 17\. “Do it with passion or not at all.” – Rosa Nochette Carey
 
-18\. “Think like a proton. [Always positive.”](/always-keep-a-positive-mindset) – Unknown
+18\. “Think like a proton. [Always positive.”](https://selfsaid.30tools.com/always-keep-a-positive-mindset) – Unknown
 
 19\. “Fate loves the fearless.” – James Russell Lowell
 
@@ -90,7 +90,7 @@ So, if you are in need of a pick me up, here’s a collection of extremely power
 
 35\. “Having hope will give you courage.” – Job 11:18
 
-36\. Great things never came from [comfort zones.”](/50-best-comfort-zone-quotes) – Roy T. Bennett
+36\. Great things never came from [comfort zones.”](https://selfsaid.30tools.com/50-best-comfort-zone-quotes) – Roy T. Bennett
 
 37\. “I don’t know where I am going but I am on my way.” – Voltaire
 
@@ -109,3 +109,5 @@ Pin2.17K
 [More](#)
 
 2.17K Shares
+
+Source: https://selfsaid.30tools.com/38-very-short-quotes-about-life/

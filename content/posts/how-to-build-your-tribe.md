@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/how-to-build-your-tribe/'
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Build-Your-Tribe.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-There’s something deeply healing about being around people who just get you. The ones who don’t need you to explain your sensitivity, your boundaries, or why you cancel plans when [you’re overwhelmed](/why-you-still-feel-overwhelmed). The ones who see you fully and meet you with ease.
+There’s something deeply healing about being around people who just get you. The ones who don’t need you to explain your sensitivity, your boundaries, or why you cancel plans when [you’re overwhelmed](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed). The ones who see you fully and meet you with ease.
 
 That kind of connection doesn’t usually happen overnight. But it is possible. You don’t have to settle for shallow conversations or relationships that drain you. You’re allowed to find people who feel like safety. Who feel like coming home.
 
@@ -46,7 +46,7 @@ Start small, a message, a meetup, a shared interest. Meet someone for a walk ins
 
 ## Let your boundaries lead
 
-The right people won’t make you [feel guilty](/how-to-prioritize-self-care) for needing space. They’ll honor it. They’ll respect the pauses. Your boundaries are not a burden, they’re a filter for the people meant to stay.
+The right people won’t make you [feel guilty](https://selfsaid.30tools.com/how-to-prioritize-self-care) for needing space. They’ll honor it. They’ll respect the pauses. Your boundaries are not a burden, they’re a filter for the people meant to stay.
 
 You don’t need to explain your limits to someone who’s meant for you. They’ll get it. Or they’ll ask with care. Either way, it won’t cost you your peace.
 
@@ -83,3 +83,5 @@ Pin4
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/how-to-build-your-tribe/

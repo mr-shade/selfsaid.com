@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/know-your-worth-quotes/'
 
 ![Quotes About Knowing Your Worth](https://seffsaid.com/wp-content/uploads/know-your-worth-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Knowing your worth is not about pride or proving anything. It’s about remembering what you bring into the world, even when others overlook it. These quotes are steady reminders to come back to yourself and trust your value, even when the world feels loud or uncertain.
 
@@ -109,3 +109,5 @@ This collection is divided into six sections to meet you where you are. Let thes
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/know-your-worth-quotes/

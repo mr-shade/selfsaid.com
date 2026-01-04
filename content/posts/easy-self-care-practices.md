@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/easy-self-care-practices/'
 
 ![Easy Self Care Practices You Can Start Today](https://seffsaid.com/wp-content/uploads/easy-self-care-practices.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There’s a lot of pressure to get self-care right. You see lists of morning routines, lifestyle overhauls, and long checklists of things you’re supposed to do if you want to feel better. But real care doesn’t always look like that. Most of the time, it’s quieter. More immediate. More personal.
 
@@ -24,13 +24,13 @@ Here are a few easy self-care practices you can try. You don’t need to do all 
 
 ## 1\. Step Away From Noise
 
-There’s more noise around us than we realise. News updates, background music, messages, notifications, podcasts. Even when we’re alone, our [minds stay busy](/doing-one-thing-slowly).
+There’s more noise around us than we realise. News updates, background music, messages, notifications, podcasts. Even when we’re alone, our [minds stay busy](https://selfsaid.30tools.com/doing-one-thing-slowly).
 
 Try stepping away from it for ten minutes. No input. No scrolling. Just let your thoughts settle without adding anything else. You don’t have to meditate or be still. Just turn the volume down on the world and give yourself a chance to return to yourself.
 
 ## 2\. Drink a Full Glass of Water
 
-This one’s easy to overlook. It’s simple, but it matters. When you [feel stressed](/stress-hacks), tired, foggy, or just not quite right, try drinking a full glass of water. Slowly. Without rushing.
+This one’s easy to overlook. It’s simple, but it matters. When you [feel stressed](https://selfsaid.30tools.com/stress-hacks), tired, foggy, or just not quite right, try drinking a full glass of water. Slowly. Without rushing.
 
 It won’t change everything, but it supports your body in the background. Sometimes small care builds a quiet sense of stability.
 
@@ -38,7 +38,7 @@ It won’t change everything, but it supports your body in the background. Somet
 
 You don’t need to do a full breathing practice. Just pause and take one long breath in, and one long breath out. Feel it travel through your body. Notice what shifts.
 
-One breath might seem small, but it can create just enough space between you and whatever [feels overwhelming](/why-you-still-feel-overwhelmed). It’s a way of saying, I’m here, and I can move through this at my own pace.
+One breath might seem small, but it can create just enough space between you and whatever [feels overwhelming](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed). It’s a way of saying, I’m here, and I can move through this at my own pace.
 
 ## 4\. Write Down What’s Bothering You
 
@@ -54,7 +54,7 @@ Even five minutes can feel like a reset. It tells your body you’re allowed to 
 
 ## 6\. Choose One Thing to Finish
 
-If you have a long list of tasks, it’s easy to [feel overwhelmed](/calming-quotes) before you even begin. But completion brings relief. So instead of aiming to do it all, choose one small thing you can finish today.
+If you have a long list of tasks, it’s easy to [feel overwhelmed](https://selfsaid.30tools.com/calming-quotes) before you even begin. But completion brings relief. So instead of aiming to do it all, choose one small thing you can finish today.
 
 Maybe it’s replying to one message, tidying one surface, or completing one nagging task you keep putting off. That one finished thing can make your day feel more manageable.
 
@@ -83,3 +83,5 @@ Self-care isn’t a checklist to complete. It’s a way to stay connected to you
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/easy-self-care-practices/

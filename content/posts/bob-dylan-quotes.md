@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/bob-dylan-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Bob-Dylan-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Bob Dylan has shared countless thoughts on life, love, and music that continue to inspire and challenge people of all ages. These quotes capture his unique perspective and offer a glimpse into the mind of one of the most influential voices of our time.
 
@@ -69,7 +69,7 @@ Bob Dylan has shared countless thoughts on life, love, and music that continue t
 49.  “At times in my life, the only place I have been happy is when I am on stage.” – Bob Dylan
 50.  “The future for me is already a thing of the past.” – Bob Dylan
 
-Read more [quotes by famous singers](/quotes-by-famous-people) here.
+Read more [quotes by famous singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbob-dylan-quotes%2F)
 
@@ -84,3 +84,5 @@ Read more [quotes by famous singers](/quotes-by-famous-people) here.
 [More](#)
 
 65 Shares
+
+Source: https://selfsaid.30tools.com/bob-dylan-quotes/

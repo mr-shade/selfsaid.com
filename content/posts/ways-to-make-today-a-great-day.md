@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/ways-to-make-today-a-great-day/'
 
 ![Woman having a great day walking along a cliff top by the sea](https://seffsaid.com/wp-content/uploads/Ways-to-Make-Today-a-Great-Day.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Not every day begins smoothly. Some mornings feel rushed, or you wake up already carrying worries from yesterday. But even when a day starts out difficult, there are small choices you can make to shift how it unfolds.
 
@@ -22,7 +22,7 @@ Here are twelve ways to begin.
 
 ## 1\. Begin with gratitude
 
-Before you pick up your phone or dive into your [to-do list](/too-many-to-dos-how-to-get-through-your-list), pause to notice what you are [thankful for](/cultivate-more-gratitude). Gratitude does not need to be big or dramatic, it can be as simple as the comfort of your pillow, the smell of coffee, or the fact that you have a fresh start. Writing down one or two things in a journal can anchor your mindset. Gratitude shifts your focus from what is missing to what is already present, giving the day a steadier foundation.
+Before you pick up your phone or dive into your [to-do list](https://selfsaid.30tools.com/too-many-to-dos-how-to-get-through-your-list), pause to notice what you are [thankful for](https://selfsaid.30tools.com/cultivate-more-gratitude). Gratitude does not need to be big or dramatic, it can be as simple as the comfort of your pillow, the smell of coffee, or the fact that you have a fresh start. Writing down one or two things in a journal can anchor your mindset. Gratitude shifts your focus from what is missing to what is already present, giving the day a steadier foundation.
 
 ## 2\. Move your body
 
@@ -50,11 +50,11 @@ Constant notifications, scrolling, and multitasking drain focus and leave you fe
 
 ## 8\. Do one thing just for yourself
 
-Amid responsibilities, carve out at least one pocket of time that feels like a gift to yourself. [Read a few pages of a book](/8-benefits-of-reading-books), listen to your favourite music, sit quietly with tea, or take a walk. It does not need to take long. Doing something purely because it nourishes you reminds you that your needs matter too.
+Amid responsibilities, carve out at least one pocket of time that feels like a gift to yourself. [Read a few pages of a book](https://selfsaid.30tools.com/8-benefits-of-reading-books), listen to your favourite music, sit quietly with tea, or take a walk. It does not need to take long. Doing something purely because it nourishes you reminds you that your needs matter too.
 
 ## 9\. Help someone else
 
-Helping others is one of the simplest ways to brighten your day. It does not have to be grand. Hold the door, offer encouragement, or share your time with someone who needs it. [Acts of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer) create a ripple effect, you feel uplifted, and so does the person you helped. A day feels more meaningful when you know you made a difference for someone else.
+Helping others is one of the simplest ways to brighten your day. It does not have to be grand. Hold the door, offer encouragement, or share your time with someone who needs it. [Acts of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer) create a ripple effect, you feel uplifted, and so does the person you helped. A day feels more meaningful when you know you made a difference for someone else.
 
 ## 10\. Notice the small details
 
@@ -87,3 +87,5 @@ You do not need to use all twelve of these ideas. Pick one or two that speak to 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/ways-to-make-today-a-great-day/

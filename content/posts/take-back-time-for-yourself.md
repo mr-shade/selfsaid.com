@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/take-back-time-for-yourself/'
 
 ![](https://seffsaid.com/wp-content/uploads/hacks-to-take-back-time.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 In a world that constantly demands your attention, carving out moments for yourself can feel almost impossible. Yet, prioritizing time for personal growth, relaxation, or simply enjoying life is essential for your well-being. Here are ten practical tips to help you reclaim your day and make space for what matters most.
 
@@ -22,7 +22,7 @@ The way you begin your day sets the tone for everything that follows. Carve out 
 
 ## 2\. Create Boundaries Around Technology
 
-Modern technology can be both a blessing and a time drain. Set specific times during the day to check your devices. Turn off non-essential notifications and use apps that limit your time on social media. The simple habit of [defining boundaries](/define-your-boundaries) can help you regain hours that might otherwise slip through your fingers.
+Modern technology can be both a blessing and a time drain. Set specific times during the day to check your devices. Turn off non-essential notifications and use apps that limit your time on social media. The simple habit of [defining boundaries](https://selfsaid.30tools.com/define-your-boundaries) can help you regain hours that might otherwise slip through your fingers.
 
 ## 3\. Batch Similar Tasks Together
 
@@ -30,7 +30,7 @@ Multitasking often leads to reduced productivity and increased stress. Instead, 
 
 ## 4\. Say No Without Guilt
 
-[Learning to decline requests](/learn-how-to-say-no) is a powerful way to reclaim your time. Saying yes to everything often leads to overcommitment, which leaves little room for personal priorities. Politely but firmly decline tasks or invitations that don’t align with your goals or values. By doing so, you create space for the things that truly matter to you.
+[Learning to decline requests](https://selfsaid.30tools.com/learn-how-to-say-no) is a powerful way to reclaim your time. Saying yes to everything often leads to overcommitment, which leaves little room for personal priorities. Politely but firmly decline tasks or invitations that don’t align with your goals or values. By doing so, you create space for the things that truly matter to you.
 
 ## 5\. Simplify Your Meals
 
@@ -71,3 +71,5 @@ By integrating these strategies into your daily routine, you can create pockets 
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/take-back-time-for-yourself/

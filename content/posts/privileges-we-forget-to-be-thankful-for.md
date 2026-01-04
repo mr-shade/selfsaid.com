@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/privileges-we-forget-to-be-thankful-
 
 ![Woman walking through a meadow on a beautiful summer day](https://seffsaid.com/wp-content/uploads/Privileges-Thankful.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 It’s easy to get caught up in the rush of daily life and overlook the simple things that make our lives richer and more comfortable. Often, it’s the most basic aspects of our lives that go unnoticed, yet they play a significant role in our overall well-being. This article highlights ten privileges that we tend to forget to be thankful for.
 
@@ -22,7 +22,7 @@ Imagine starting your day without a refreshing shower or worrying about the safe
 
 ## 2\. The Ability to Read and Write
 
-[Literacy is a powerful tool](/8-benefits-of-reading-books) that opens up opportunities for learning, communication, and personal growth. Being able to read and write is fundamental to functioning in society, yet it’s a privilege denied to millions globally. The ability to explore books, navigate the internet, and express yourself through writing is something to be thankful for every day.
+[Literacy is a powerful tool](https://selfsaid.30tools.com/8-benefits-of-reading-books) that opens up opportunities for learning, communication, and personal growth. Being able to read and write is fundamental to functioning in society, yet it’s a privilege denied to millions globally. The ability to explore books, navigate the internet, and express yourself through writing is something to be thankful for every day.
 
 ## 3\. A Safe Place to Live
 
@@ -58,7 +58,7 @@ The freedom to make choices about your life, from the career you pursue to the p
 
 ## Final Thoughts
 
-Acknowledging these often overlooked aspects of our lives fosters a deeper appreciation for what we have and encourages a [gratitude mindset](/how-to-cultivate-an-attitude-of-gratitude) that can positively impact our attitude and approach to life. This awareness can motivate you to support and uplift those who may not have the same benefits, creating a ripple effect of kindness and empathy in the world around us.
+Acknowledging these often overlooked aspects of our lives fosters a deeper appreciation for what we have and encourages a [gratitude mindset](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) that can positively impact our attitude and approach to life. This awareness can motivate you to support and uplift those who may not have the same benefits, creating a ripple effect of kindness and empathy in the world around us.
 
 So, as you go about your day, take a moment to notice and appreciate these simple yet significant privileges. It’s a small step that can lead to a more grateful and fulfilling life.
 
@@ -75,3 +75,5 @@ So, as you go about your day, take a moment to notice and appreciate these simpl
 [More](#)
 
 0 Shares
+
+Source: https://selfsaid.30tools.com/privileges-we-forget-to-be-thankful-for/

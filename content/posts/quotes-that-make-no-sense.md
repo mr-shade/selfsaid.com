@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/quotes-that-make-no-sense/'
 
 ![](https://seffsaid.com/wp-content/uploads/quotes-that-make-no-sense.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 A collection of deep yet confusing quotes that initially seem profound, but soon leave you questioning their meaning.
 
@@ -151,3 +151,5 @@ A collection of deep yet confusing quotes that initially seem profound, but soon
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/quotes-that-make-no-sense/

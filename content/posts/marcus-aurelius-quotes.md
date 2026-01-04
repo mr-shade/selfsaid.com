@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/marcus-aurelius-quotes/'
 
 ![Marcus Aurelius](https://seffsaid.com/wp-content/uploads/Marcus-Aurelius-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Marcus Aurelius’ quotes remind you that true strength lies in your ability to remain centered, no matter the situation. His quotes emphasize self-discipline, inner peace, and the power of your thoughts.
 
@@ -29,7 +29,7 @@ Marcus Aurelius’ quotes remind you that true strength lies in your ability to 
 9.  “Accept the things to which fate binds you, and love the people with whom fate brings you together, but do so with all your heart.” – Marcus Aurelius
 10.  “Reject your sense of injury and the injury itself disappears.” – Marcus Aurelius
 11.  “Look within. Within is the fountain of good, and it will ever bubble up, if thou wilt ever dig.” – Marcus Aurelius
-12.  “Very little is needed to make a [happy life](/how-to-live-a-happy-life); it is all within yourself, in your way of thinking.” – Marcus Aurelius
+12.  “Very little is needed to make a [happy life](https://selfsaid.30tools.com/how-to-live-a-happy-life); it is all within yourself, in your way of thinking.” – Marcus Aurelius
 13.  “If it is not right do not do it; if it is not true do not say it.” – Marcus Aurelius
 14.  “The object of life is not to be on the side of the majority, but to escape finding oneself in the ranks of the insane.” – Marcus Aurelius
 15.  “You always own the option of having no opinion. There is never any need to get worked up or to trouble your soul about things you can’t control.” – Marcus Aurelius
@@ -87,7 +87,7 @@ Marcus Aurelius’ quotes remind you that true strength lies in your ability to 
 67.  “Each day provides its own gifts.” – Marcus Aurelius
 68.  “The happiness of those who seek pleasure fluctuates with moods outside their control.” – Marcus Aurelius
 
-Discover more [quotes by famous historical figures](/quotes-by-famous-people) here.
+Discover more [quotes by famous historical figures](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmarcus-aurelius-quotes%2F)
 
@@ -102,3 +102,5 @@ Discover more [quotes by famous historical figures](/quotes-by-famous-people) he
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/marcus-aurelius-quotes/

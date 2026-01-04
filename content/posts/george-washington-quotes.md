@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/george-washington-quotes/'
 
 ![86 George Washington Quotes on Leadership, Liberty, and Life](https://seffsaid.com/wp-content/uploads/George-Washington-quotes.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 By reading these quotes from George Washington, you are connecting with the timeless wisdom of a man whose life was a testament to courage, strength, and the enduring values of integrity and freedom.
 
-George Washington, a figure synonymous with the birth of the United States, was more than a military leader and the nation’s first president; he was a visionary whose insights transcended the era in which he lived. His [deep quotes](/deep-quotes-about-life), steeped in wisdom, offer a guiding light in today’s complex world, reminding us of the importance of principles, leadership, and a [free spirit](/free-spirit-quotes).
+George Washington, a figure synonymous with the birth of the United States, was more than a military leader and the nation’s first president; he was a visionary whose insights transcended the era in which he lived. His [deep quotes](https://selfsaid.30tools.com/deep-quotes-about-life), steeped in wisdom, offer a guiding light in today’s complex world, reminding us of the importance of principles, leadership, and a [free spirit](https://selfsaid.30tools.com/free-spirit-quotes).
 
-Washington’s words resonate with a clarity that inspires and challenges, urging you to uphold the values he so dearly championed. As you reflect on his sayings, you’ll find that his [wisdom](/wise-quotes-about-life) is not just historical; it’s a powerful tool for understanding the essence of effective leadership and the responsibility of living a life marked by virtue and foresight.
+Washington’s words resonate with a clarity that inspires and challenges, urging you to uphold the values he so dearly championed. As you reflect on his sayings, you’ll find that his [wisdom](https://selfsaid.30tools.com/wise-quotes-about-life) is not just historical; it’s a powerful tool for understanding the essence of effective leadership and the responsibility of living a life marked by virtue and foresight.
 
 ## George Washington Quotes
 
@@ -122,3 +122,5 @@ Washington’s words resonate with a clarity that inspires and challenges, urgin
 [More](#)
 
 43 Shares
+
+Source: https://selfsaid.30tools.com/george-washington-quotes/

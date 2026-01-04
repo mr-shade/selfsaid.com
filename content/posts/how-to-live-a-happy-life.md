@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-live-a-happy-life/'
 
 ![](https://seffsaid.com/wp-content/uploads/happy-life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Happiness can feel like a moving target. We’re often told to pursue it, to work for it, to unlock it like a goal. But the more we chase happiness, the more elusive it becomes.
 
@@ -22,7 +22,7 @@ Here are a few grounded and thoughtful ways to welcome happiness into your life 
 
 ## 1\. Stop trying to feel good all the time
 
-Trying to [feel happy](/16-simple-ways-to-make-someone-happy) all the time is exhausting. It makes ordinary emotions seem like failures. But you are allowed to have a range of feelings. You are allowed to feel tired, uncertain, or low, and still have a good life.
+Trying to [feel happy](https://selfsaid.30tools.com/16-simple-ways-to-make-someone-happy) all the time is exhausting. It makes ordinary emotions seem like failures. But you are allowed to have a range of feelings. You are allowed to feel tired, uncertain, or low, and still have a good life.
 
 Let go of the idea that happiness should be permanent. It comes in moments – a quiet morning, a kind word, a sense of relief. When you stop pressuring yourself to feel good constantly, you often start noticing when you actually do.
 
@@ -36,7 +36,7 @@ Pay attention to what gives you energy, what helps you feel more like yourself, 
 
 So much unhappiness comes from dwelling on the past or worrying about the future. When you focus on where you are, not where you should be or where you wish you were, life often feels more manageable.
 
-[You do not have to fix everything right now](/you-dont-have-to-fix-everything). You do not need to figure out your entire future today. Breathe. Look around. Notice the moment you are in. Presence softens pressure and makes space for calm.
+[You do not have to fix everything right now](https://selfsaid.30tools.com/you-dont-have-to-fix-everything). You do not need to figure out your entire future today. Breathe. Look around. Notice the moment you are in. Presence softens pressure and makes space for calm.
 
 ## 4\. Surround yourself with the right people
 
@@ -44,7 +44,7 @@ The people in your life have a quiet influence on your emotional well-being. Bei
 
 You do not need to be liked by everyone. Prioritize connection over performance. Give your energy to those who make you feel safe and supported. Protect your peace where it matters.
 
-Happiness is often rooted in connection. If this feels difficult, here’s a guide on [how to feel more at ease and connected with others](/how-to-be-likeable).
+Happiness is often rooted in connection. If this feels difficult, here’s a guide on [how to feel more at ease and connected with others](https://selfsaid.30tools.com/how-to-be-likeable).
 
 ## 5\. Let small things matter
 
@@ -58,7 +58,7 @@ You can be living a happy life and still have days that feel heavy. Happiness is
 
 When things feel hard, be kind to yourself. You are not doing life wrong. You are simply living through a moment that will pass.
 
-For gentle support, here are [ways to be kinder to yourself](/ways-to-be-kinder-to-yourself) when life feels overwhelming.
+For gentle support, here are [ways to be kinder to yourself](https://selfsaid.30tools.com/ways-to-be-kinder-to-yourself) when life feels overwhelming.
 
 ## 7\. Stay connected to what matters to you
 
@@ -66,7 +66,7 @@ Living a happy life is not about following someone else’s version of success. 
 
 Ask yourself what really matters. What makes you feel grounded? What helps you feel proud of how you live? The more you align your days with your values, the more contentment you are likely to feel, even during uncertain times.
 
-If you’re unsure where to begin, this guide explores [what taking care of yourself really means](/what-taking-care-of-yourself-really-means).
+If you’re unsure where to begin, this guide explores [what taking care of yourself really means](https://selfsaid.30tools.com/what-taking-care-of-yourself-really-means).
 
 ## Happiness looks different for everyone
 
@@ -87,3 +87,5 @@ Pin5
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/how-to-live-a-happy-life/

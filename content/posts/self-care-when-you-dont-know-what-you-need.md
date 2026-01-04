@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/self-care-when-you-dont-know-what-yo
 
 ![](https://seffsaid.com/wp-content/uploads/How-to-Take-Care-of-Yourself.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Some days you know what would help. You might crave rest, movement, stillness, connection. On those days, care feels more straightforward. You can give yourself what you need without much searching.
 
@@ -45,9 +45,9 @@ It’s also okay to lower your expectations for the day. You don’t have to mee
 
 Self-care is not always about clarity. Sometimes it’s about staying present in the uncertainty and tending to yourself anyway. Even if you don’t feel better right away. Even if the heaviness lingers.
 
-Eventually, your needs will become clearer again. The fog always shifts, even if slowly. In the meantime, [small actions](/how-small-actions-can-make-a-huge-difference) and steady attention can carry you through.
+Eventually, your needs will become clearer again. The fog always shifts, even if slowly. In the meantime, [small actions](https://selfsaid.30tools.com/how-small-actions-can-make-a-huge-difference) and steady attention can carry you through.
 
-You [don’t need to solve everything today](/you-dont-have-to-fix-everything). You just need to stay with yourself. That is care.
+You [don’t need to solve everything today](https://selfsaid.30tools.com/you-dont-have-to-fix-everything). You just need to stay with yourself. That is care.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fself-care-when-you-dont-know-what-you-need%2F)
 
@@ -62,3 +62,5 @@ You [don’t need to solve everything today](/you-dont-have-to-fix-everything). 
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/self-care-when-you-dont-know-what-you-need/

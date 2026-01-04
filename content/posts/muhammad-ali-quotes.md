@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/muhammad-ali-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Muhammad-Ali-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Muhammad Ali, one of the greatest boxers of all time, was known for his sharp wit and memorable quotes. His words continue to inspire and motivate people around the world. Here, you will find some of his most famous quotes that capture his wisdom and charisma. Read more [quotes by famous athletes](/quotes-by-famous-people) here.
+Muhammad Ali, one of the greatest boxers of all time, was known for his sharp wit and memorable quotes. His words continue to inspire and motivate people around the world. Here, you will find some of his most famous quotes that capture his wisdom and charisma. Read more [quotes by famous athletes](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 1.  “Float like a butterfly, sting like a bee. The hands can’t hit what the eyes can’t see.” – Muhammad Ali
 2.  “I am the greatest. I said that even before I knew I was.” – Muhammad Ali
@@ -43,14 +43,14 @@ Muhammad Ali, one of the greatest boxers of all time, was known for his sharp wi
 25.  “What keeps me going is goals.” – Muhammad Ali
 26.  “To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.” – Muhammad Ali
 27.  “It’s lack of faith that makes people afraid of meeting challenges, and I believed in myself.” – Muhammad Ali
-28.  “I’m a [fighter](/unleashing-your-inner-warrior). I believe in the eye-for-an-eye business. I’m no cheek-turner. I’ve got no respect for a man who won’t hit back. You kill my dog, you better hide your cat.” – Muhammad Ali
+28.  “I’m a [fighter](https://selfsaid.30tools.com/unleashing-your-inner-warrior). I believe in the eye-for-an-eye business. I’m no cheek-turner. I’ve got no respect for a man who won’t hit back. You kill my dog, you better hide your cat.” – Muhammad Ali
 29.  “I wish people would love everybody else the way they love me. It would be a better world.” – Muhammad Ali
 30.  “If they can make penicillin out of moldy bread, they can sure make something out of you.” – Muhammad Ali
 31.  “At home I am a nice guy: but I don’t want the world to know. Humble people, I’ve found, don’t get very far.” – Muhammad Ali
 32.  “I’m not the greatest; I’m the double greatest. Not only do I knock ’em out, I pick the round.” – Muhammad Ali
 33.  “Silence is golden when you can’t think of a good answer.” – Muhammad Ali
 34.  “I’ve been everywhere in the world, seen everything, had everything a man can have.” – Muhammad Ali
-35.  My way of joking is to [tell the truth](/8-remarkable-benefits-of-always-telling-the-truth). That’s the funniest joke in the world.” – Muhammad Ali
+35.  My way of joking is to [tell the truth](https://selfsaid.30tools.com/8-remarkable-benefits-of-always-telling-the-truth). That’s the funniest joke in the world.” – Muhammad Ali
 36.  “I figured that if I said it enough, I would convince the world that I really was the greatest.” – Muhammad Ali
 37.  “The best way to make your dreams come true is to wake up.” – Muhammad Ali
 38.  “Wars of nations are fought to change maps. But wars of poverty are fought to map change.” – Muhammad Ali
@@ -80,3 +80,5 @@ Muhammad Ali, one of the greatest boxers of all time, was known for his sharp wi
 [More](#)
 
 38 Shares
+
+Source: https://selfsaid.30tools.com/muhammad-ali-quotes/

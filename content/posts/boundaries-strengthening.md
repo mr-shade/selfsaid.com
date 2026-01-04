@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/boundaries-strengthening/'
 
 ![](https://seffsaid.com/wp-content/uploads/boundaries-strengthening.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Personal limits help maintain emotional well-being, protect energy, and create respectful relationships. If others often overstep, or personal space feels compromised, it may be time to reinforce those limits. Answering these questions can help identify whether adjustments are needed.
 
@@ -22,7 +22,7 @@ Feeling drained by constant requests can signal weak boundaries. If saying “ye
 
 ## 2\. Do You Struggle to Say No?
 
-Agreeing to things out of guilt or fear of disappointing others can be a sign of difficulty in setting limits. [A firm but respectful “no”](/learn-how-to-say-no) protects time and energy.
+Agreeing to things out of guilt or fear of disappointing others can be a sign of difficulty in setting limits. [A firm but respectful “no”](https://selfsaid.30tools.com/learn-how-to-say-no) protects time and energy.
 
 ## 3\. Do You Feel Resentful Toward Others?
 
@@ -38,7 +38,7 @@ Keeping quiet to prevent disagreements might seem like an easy solution, but it 
 
 ## 6\. Do You Often Feel Guilty for Taking Time for Yourself?
 
-Personal time is necessary for rest and balance. If guilt arises when [prioritizing self-care](/how-to-prioritize-self-care), it could be a sign that boundaries need reinforcement.
+Personal time is necessary for rest and balance. If guilt arises when [prioritizing self-care](https://selfsaid.30tools.com/how-to-prioritize-self-care), it could be a sign that boundaries need reinforcement.
 
 ## 7\. Do People Take Advantage of Your Kindness?
 
@@ -71,3 +71,5 @@ Recognizing patterns in these questions can highlight areas where limits may nee
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/boundaries-strengthening/

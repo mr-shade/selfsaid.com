@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/change-your-life-for-the-better/'
 
 ![Man looking out to sea happy to have changed his life for the better](https://seffsaid.com/wp-content/uploads/Change-Your-Life-For-The-Better.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-People say that change is difficult but it really doesn’t have to be. Most of us can comfortably walk a mile, but did you know that a mile takes, on average, two thousand steps! As Lao Tzu famously said, “The journey of a thousand miles begins with one step” and so we can, in our everyday lives, break difficult processes, such as change, into [smaller, more manageable, stage](/how-to-break-a-big-task-into-small-steps)s.
+People say that change is difficult but it really doesn’t have to be. Most of us can comfortably walk a mile, but did you know that a mile takes, on average, two thousand steps! As Lao Tzu famously said, “The journey of a thousand miles begins with one step” and so we can, in our everyday lives, break difficult processes, such as change, into [smaller, more manageable, stage](https://selfsaid.30tools.com/how-to-break-a-big-task-into-small-steps)s.
 
-These small steps, every day, will build to a huge journey of change and self-realization. All you have to do is spend just a few minutes each day, devoting a small amount of motivation and energy, to gently and gradually change life-long habits and you’ll start [changing your life for the better](/quotes-to-make-you-feel-better).  Try some of these ideas; the rewards will be enormous…
+These small steps, every day, will build to a huge journey of change and self-realization. All you have to do is spend just a few minutes each day, devoting a small amount of motivation and energy, to gently and gradually change life-long habits and you’ll start [changing your life for the better](https://selfsaid.30tools.com/quotes-to-make-you-feel-better).  Try some of these ideas; the rewards will be enormous…
 
 ## 1\. Spend two minutes daily on something you’ve always wanted to do.
 
@@ -28,13 +28,13 @@ The important thing is making a start: the rewards will be huge and you won’t 
 
 ## 2\. Spend two minutes every day saying thank you.
 
-Take the time to survey your life exactly as it is right now, your surroundings, and the world in general, and look for things for which you are grateful. It’s easy to go through each day seeing the negative, finding things to grumble about, or searching for ways to [change your life](/change-your-life-in-7-days).
+Take the time to survey your life exactly as it is right now, your surroundings, and the world in general, and look for things for which you are grateful. It’s easy to go through each day seeing the negative, finding things to grumble about, or searching for ways to [change your life](https://selfsaid.30tools.com/change-your-life-in-7-days).
 
-But if you spend just two minutes a day looking at the sunnier side of life and [feeling true gratitude](/how-to-cultivate-an-attitude-of-gratitude) for even the smallest good fortune, the optimism will spread. Remember, the more you nurture something, the more it flourishes, and gratitude is a wonderful form of nurture for everything good in your life.
+But if you spend just two minutes a day looking at the sunnier side of life and [feeling true gratitude](https://selfsaid.30tools.com/how-to-cultivate-an-attitude-of-gratitude) for even the smallest good fortune, the optimism will spread. Remember, the more you nurture something, the more it flourishes, and gratitude is a wonderful form of nurture for everything good in your life.
 
 ## 3\. Take one good, deep breath each day.
 
-This is a really small thing that can have a [huge impact on your lif](/how-small-actions-can-make-a-huge-difference)e. Stop what you’re doing once a day and take one [conscious breath](/breath-a-bridge-to-conscious-and-mindful-living). When I say conscious, I mean to really notice how it feels to breathe. Relax your body. Let your shoulders drop. As you breathe in, feel the cool air on your nostrils as it enters your body. Breathe slowly and feel the breath descending all the way down to deep in your chest.
+This is a really small thing that can have a [huge impact on your lif](https://selfsaid.30tools.com/how-small-actions-can-make-a-huge-difference)e. Stop what you’re doing once a day and take one [conscious breath](https://selfsaid.30tools.com/breath-a-bridge-to-conscious-and-mindful-living). When I say conscious, I mean to really notice how it feels to breathe. Relax your body. Let your shoulders drop. As you breathe in, feel the cool air on your nostrils as it enters your body. Breathe slowly and feel the breath descending all the way down to deep in your chest.
 
 Feel your abdomen gently expand as you appreciate every drop of life-giving air. Pause for a moment. Then slowly and meditatively allow the breath to gently release. Feel it slowly rising from your abdomen to your head, feel the warmth of the breath on your nostrils as it is expelled. And that’s it. It takes just a few moments out of your day but you will feel more relaxed, more clear-headed and certainly at least a little refreshed.
 
@@ -62,7 +62,7 @@ In short, cut them some slack and try to understand that there is always a diffe
 
 Most of us spend our day trying to make things better…. for ourselves. We think of ways to fulfill our ambitions, to be happier, healthier and fitter. Take a moment each day to improve someone else’s life. Just a small amount of thought can make all the difference.
 
-Buy someone a cup of coffee, help them with their shopping bags or hold the door open, pay them a genuine compliment or simply just give them a warm smile and really listen to them when they speak. This is called ‘[paying it forward](/40-simple-ways-to-pay-it-forward-every-day)‘. A small effort can go a long way and you will, ironically, be helping yourself because good deeds improve our happiness and well-being in many ways.
+Buy someone a cup of coffee, help them with their shopping bags or hold the door open, pay them a genuine compliment or simply just give them a warm smile and really listen to them when they speak. This is called ‘[paying it forward](https://selfsaid.30tools.com/40-simple-ways-to-pay-it-forward-every-day)‘. A small effort can go a long way and you will, ironically, be helping yourself because good deeds improve our happiness and well-being in many ways.
 
 ## 8\. Do something new every week.
 
@@ -72,7 +72,7 @@ Walk or cycle rather than taking the car. Go to a new café and strike up a conv
 
 ## Final thoughts
 
-You can, of course, expand these activities, investing more time into those that you find rewarding as and when you can, but these are a minimum to help you commit to change your life for the better. It is said that a habit is formed after doing something just seven times, so try this for a week and see how you feel. You will almost certainly feel more relaxed, more alert, clear-headed, and [more motivated](/how-to-motivate-yourself).
+You can, of course, expand these activities, investing more time into those that you find rewarding as and when you can, but these are a minimum to help you commit to change your life for the better. It is said that a habit is formed after doing something just seven times, so try this for a week and see how you feel. You will almost certainly feel more relaxed, more alert, clear-headed, and [more motivated](https://selfsaid.30tools.com/how-to-motivate-yourself).
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fchange-your-life-for-the-better%2F)
 
@@ -87,3 +87,5 @@ You can, of course, expand these activities, investing more time into those that
 [More](#)
 
 4 Shares
+
+Source: https://selfsaid.30tools.com/change-your-life-for-the-better/

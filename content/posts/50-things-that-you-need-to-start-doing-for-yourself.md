@@ -14,7 +14,7 @@ original_url: >-
 
 ![Woman prioritizing her self-care by reading a book](https://seffsaid.com/wp-content/uploads/Things-You-Need-To-Start-Doing-ForYourself.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When life gets full, itâ€™s easy to put your own needs at the very bottom of the list. You take care of work, family, and responsibilities, but forget to check in with yourself. Over time, that neglect builds into exhaustion, stress, and even resentment.
 
@@ -28,7 +28,7 @@ Give yourself permission to pause without guilt.
 
 ### 2\. Drink enough water
 
-Hydration is one of the easiest [ways to improve mood](/easy-ways-to-quickly-improve-your-mood) and focus.
+Hydration is one of the easiest [ways to improve mood](https://selfsaid.30tools.com/easy-ways-to-quickly-improve-your-mood) and focus.
 
 ### 3\. Say no when you need to
 
@@ -120,7 +120,7 @@ Tidy a corner, add a candle, or keep something meaningful nearby.
 
 ### 25\. Write down your priorities
 
-Clarity [reduces stress](/how-to-reduce-stress).
+Clarity [reduces stress](https://selfsaid.30tools.com/how-to-reduce-stress).
 
 ### 26\. Give yourself breaks
 
@@ -128,7 +128,7 @@ Step away before exhaustion sets in.
 
 ### 27\. Forgive yourself
 
-[Let go of past mistakes](/how-to-stop-reliving-past-mistakes) and move forward with compassion.
+[Let go of past mistakes](https://selfsaid.30tools.com/how-to-stop-reliving-past-mistakes) and move forward with compassion.
 
 ### 28\. Do something creative
 
@@ -239,3 +239,5 @@ Taking care of yourself is not something you put at the end of a long list. Itâ€
 [More](#)
 
 6.09K Shares
+
+Source: https://selfsaid.30tools.com/50-things-that-you-need-to-start-doing-for-yourself/

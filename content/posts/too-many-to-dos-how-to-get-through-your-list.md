@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/too-many-to-dos-how-to-get-through-y
 
 ![](https://seffsaid.com/wp-content/uploads/too-many-to-dos.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Some days, your to-do list feels like it’s running the show. You start the morning with good intentions, ready to tackle what’s in front of you, but by the afternoon, new tasks have piled on, old ones have rolled over, and the list looks even longer than it did when you began. The feeling of being “behind” follows you through the day, making it hard to focus and even harder to rest.
 
@@ -55,3 +55,5 @@ The goal is not to finish every single task as quickly as possible. The goal is 
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/too-many-to-dos-how-to-get-through-your-list/

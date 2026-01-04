@@ -17,7 +17,7 @@ original_url: >-
 
 ![Spend Some Time Disconnected From Technology And Reconnected With The World Around You. It’s Worth It.](https://seffsaid.com/wp-content/uploads/Spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-Its-worth-it-1.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## Spend Some Time Disconnected From Technology And Reconnected With The World Around You. It’s Worth It.
 
@@ -42,3 +42,5 @@ In essence, this quote highlights the importance of finding a balance between ou
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/spend-some-time-disconnected-from-technology-and-reconnected-with-the-world-around-you-its-worth-it/

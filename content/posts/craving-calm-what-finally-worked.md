@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/craving-calm-what-finally-worked/'
 
 ![](https://seffsaid.com/wp-content/uploads/craving-calm.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 There was a time when I thought calm had to come from outside. I kept chasing the next thing – more time, more control, more quiet. I tried to get everything done, fix every problem, solve every emotion. Only then, I thought, I’d be able to relax. It didn’t work. And it left me more tired than before.
 
 If you’ve been craving calm and nothing seems to help, I want to share what finally started to make a difference for me. No big secret. No big technique. Just a shift that changed the way I moved through the day. Not all at once, but steadily. Quietly. Enough to feel the difference.
 
-I stopped waiting for the world to slow down. I used to think I could only [feel calm](/calming-quotes) when everything else felt calm too – when the house was clean, the inbox was empty, and I had a clear afternoon with no interruptions. But that never came. And even when it did, it never lasted. So I tried something different.
+I stopped waiting for the world to slow down. I used to think I could only [feel calm](https://selfsaid.30tools.com/calming-quotes) when everything else felt calm too – when the house was clean, the inbox was empty, and I had a clear afternoon with no interruptions. But that never came. And even when it did, it never lasted. So I tried something different.
 
 I started building small moments of calm into what was already happening. Instead of waiting for peace, I gave myself small pieces of it, five minutes of stillness before anyone else woke up, a quiet pause before answering a message, one deep breath at the kitchen sink. I said no without guilt. I listened to music that soothed me instead of stimulated me. I didn’t do it all at once. I just started noticing what helped and what drained me, and I did a little less of one and a little more of the other.
 
@@ -45,3 +45,5 @@ You don’t need a perfect life to feel more calm. You just need a few clear cho
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/craving-calm-what-finally-worked/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/mike-tyson-quotes/'
 
 ![Mike Tyson in a boxing ring fighting his opponent](https://seffsaid.com/wp-content/uploads/Mike-Tyson-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Explore the mind of Mike Tyson through this handpicked selection of 38 of his best quotes. From resilience to determination, these quotes offer an insight into the mind of a boxing legend.
 
@@ -37,7 +37,7 @@ Explore the mind of Mike Tyson through this handpicked selection of 38 of his be
 19.  “Everyone has a plan ’till they get punched in the mouth.” – Mike Tyson
 20.  “Fighting is a sport; if you’re not humble it’s going to bring humbleness to you.” – Mike Tyson
 21.  “I just want to conquer people and their souls.” – Mike Tyson
-22.  “Life is all about believing in yourself, and you’ve got to [motivate yourself](/how-to-motivate-yourself).” – Mike Tyson
+22.  “Life is all about believing in yourself, and you’ve got to [motivate yourself](https://selfsaid.30tools.com/how-to-motivate-yourself).” – Mike Tyson
 23.  “I’m not afraid to die. I’m afraid to not live.” – Mike Tyson
 24.  “My power is discombobulatingly devastating. I could feel his muscle tissues collapse under my force. It’s ludicrous these mortals even attempt to enter my realm.” – Mike Tyson
 25.  “I’m not trying to be no philosopher or anything like that.” – Mike Tyson
@@ -55,7 +55,7 @@ Explore the mind of Mike Tyson through this handpicked selection of 38 of his be
 37.  “I’m just a street kid from Brownsville. I’m not even supposed to be here. That’s enough.” – Mike Tyson
 38.  “Sometimes I put on a ski mask and dress in old clothes, go out on the streets and beg for quarters.” – Mike Tyson
 
-Read more [quotes written by famous people](/quotes-by-famous-people) here.
+Read more [quotes written by famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmike-tyson-quotes%2F)
 
@@ -70,3 +70,5 @@ Read more [quotes written by famous people](/quotes-by-famous-people) here.
 [More](#)
 
 32 Shares
+
+Source: https://selfsaid.30tools.com/mike-tyson-quotes/

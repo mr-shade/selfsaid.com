@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/billie-eilish-quotes/'
 
 ![Billie Eilish live on stage](https://seffsaid.com/wp-content/uploads/Billie-Eilish-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 This article compiles 50 quotes from Billie Eilish that shed light on her views about life, music, and self-expression. Each quote offers a glimpse into the mindset of one of today’s most influential artists.
 
@@ -35,8 +35,8 @@ This article compiles 50 quotes from Billie Eilish that shed light on her views 
 17.  “I like to be in control of how I look and how I feel and how I act.” – Billie Eilish
 18.  “I never thought a career as a musician was possible.” – Billie Eilish
 19.  “I have always been a very solitary person.” – Billie Eilish
-20.  “The music industry is weird and exclusive, but it is not impossible to [be successful](/mindsets-for-success).” – Billie Eilish
-21.  “I think it’s really important to [be confident](/10-ways-to-appear-more-confident) about what you do.” – Billie Eilish
+20.  “The music industry is weird and exclusive, but it is not impossible to [be successful](https://selfsaid.30tools.com/mindsets-for-success).” – Billie Eilish
+21.  “I think it’s really important to [be confident](https://selfsaid.30tools.com/10-ways-to-appear-more-confident) about what you do.” – Billie Eilish
 22.  “The internet is a great platform but also a very dangerous place.” – Billie Eilish
 23.  “I don’t feel pressured to be like anyone else.” – Billie Eilish
 24.  “I don’t belong to anyone, but everybody knows my name.” – Billie Eilish
@@ -46,7 +46,7 @@ This article compiles 50 quotes from Billie Eilish that shed light on her views 
 28.  “I think I’m a very empathetic person, which can be a blessing and a curse.” – Billie Eilish
 29.  “Clothing is a form of self-expression – there are hints about who you are in what you wear.” – Billie Eilish
 30.  “I want to be remembered for how I made people feel and not just what I did.” – Billie Eilish
-31.  “I’m not your [party](/party-quotes) favor.” – Billie Eilish
+31.  “I’m not your [party](https://selfsaid.30tools.com/party-quotes) favor.” – Billie Eilish
 32.  “You can pretend you don’t miss me, you can pretend you don’t care.” – Billie Eilish
 33.  “You should see me in a crown. I’m gonna run this nothing town.” – Billie Eilish
 34.  “I’m in their secondhand smoke, still just drinking canned Coke.” – Billie Eilish
@@ -67,7 +67,7 @@ This article compiles 50 quotes from Billie Eilish that shed light on her views 
 49.  “I’m an open book with a torn out page and my ink’s run out.” – Billie Eilish
 50.  “I never really feel like I’m supposed to be anywhere else doing anything other than what I’m doing right now.” – Billie Eilish
 
-Read more [quotes by famous people](/quotes-by-famous-people) here.
+Read more [quotes by famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbillie-eilish-quotes%2F)
 
@@ -82,3 +82,5 @@ Read more [quotes by famous people](/quotes-by-famous-people) here.
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/billie-eilish-quotes/

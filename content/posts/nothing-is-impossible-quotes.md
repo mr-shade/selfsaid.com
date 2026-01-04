@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/nothing-is-impossible-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/nothing-is-impossible-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 These 80 nothing is impossible quotes remind us that with the right mindset, no challenge is too great, and no dream is too big to achieve.
 
@@ -26,7 +26,7 @@ These 80 nothing is impossible quotes remind us that with the right mindset, no 
 
 “The only way to achieve the impossible is to believe it is possible.” — Charles Kingsleigh
 
-Impossible is just an opinion.” — [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+Impossible is just an opinion.” — [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 
 “There is nothing impossible to they who will try.” — Alexander the Great
 
@@ -98,7 +98,7 @@ Impossible is just an opinion.” — [Paulo Coelho](/20-inspiring-paulo-coelho-
 
 “You are never too old to set another goal or to dream a new dream.” — C.S. Lewis
 
-Success is not final, failure is not fatal: It is the courage to continue that counts.” — [Winston Churchill](/winston-churchill-quotes)
+Success is not final, failure is not fatal: It is the courage to continue that counts.” — [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 
 “Some men see things as they are and say why – I dream things that never were and say why not.” — George Bernard Shaw
 
@@ -112,9 +112,9 @@ Success is not final, failure is not fatal: It is the courage to continue that c
 
 “Success is how high you bounce when you hit bottom.” — George S. Patton
 
-“Success seems to be connected with action. [Successful people](/6-things-successful-people-never-do) keep moving. They make mistakes, but they don’t quit.” — Conrad Hilton
+“Success seems to be connected with action. [Successful people](https://selfsaid.30tools.com/6-things-successful-people-never-do) keep moving. They make mistakes, but they don’t quit.” — Conrad Hilton
 
-When something is important enough, you do it even if the odds are not in your favor.” — [Elon Musk](/elon-musk-quotes)
+When something is important enough, you do it even if the odds are not in your favor.” — [Elon Musk](https://selfsaid.30tools.com/elon-musk-quotes)
 
 “Most of us have far more courage than we ever dreamed we possessed.” — Dale Carnegie
 
@@ -122,7 +122,7 @@ When something is important enough, you do it even if the odds are not in your f
 
 “Fortune favors the brave.” — Terence
 
-“The best way to predict your future is to [create your future](/how-to-create-an-exciting-future).” — Abraham Lincoln
+“The best way to predict your future is to [create your future](https://selfsaid.30tools.com/how-to-create-an-exciting-future).” — Abraham Lincoln
 
 “Do not wait to strike till the iron is hot; but make it hot by striking.” — William Butler Yeats
 
@@ -181,3 +181,5 @@ When something is important enough, you do it even if the odds are not in your f
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/nothing-is-impossible-quotes/

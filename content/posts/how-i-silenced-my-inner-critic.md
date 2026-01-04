@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/how-i-silenced-my-inner-critic/'
 
 ![A happy woman smiling while walking on a beach.](https://seffsaid.com/wp-content/uploads/inner-critic.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 I came to quite a realization recently, one that was so obvious that I’m ashamed that it took me so many years to arrive at this epiphany. It was a small realization in the scheme of things, a slight shift of perspective, but for me, it has made a world of difference. I have to remind myself often of this shift as old habits die hard. But when I do, when I remember, I feel a freedom of thought, a rising in confidence, and a release from negativity that I have seldom felt before. And that’s why I wanted to share this with you.
 
-So here’s the thing. Like many women, I often have moments (sometimes very long moments) of self-doubt, of [low self-esteem](/4-simple-strategies-to-overcome-low-self-esteem), of a lack of confidence in daily life. At these moments, like many women, and perhaps many men too, I tend to focus on one aspect of myself, perhaps the frizziness of my hair, the bags under my eyes, or my ineptitude in social situations. And once I have fixated on this aspect, it feels that the only way to regain my confidence is to fix it. So I look online, I try different products, new moisturizers, and I seek out new breathing techniques or meditations.
+So here’s the thing. Like many women, I often have moments (sometimes very long moments) of self-doubt, of [low self-esteem](https://selfsaid.30tools.com/4-simple-strategies-to-overcome-low-self-esteem), of a lack of confidence in daily life. At these moments, like many women, and perhaps many men too, I tend to focus on one aspect of myself, perhaps the frizziness of my hair, the bags under my eyes, or my ineptitude in social situations. And once I have fixated on this aspect, it feels that the only way to regain my confidence is to fix it. So I look online, I try different products, new moisturizers, and I seek out new breathing techniques or meditations.
 
 And then one day, really rather recently, I recognized the voice of the inner critic and realized, with a huge sigh of relief, that I didn’t have to fix anything. I didn’t need to research and invest in anything at all because the problem wasn’t the problem. The problem was the ‘helpful’ little voice in my head that was telling me how to improve myself and how if I could just fix this one thing, I would finally be able to feel comfortable in my own skin.
 
@@ -51,3 +51,5 @@ Pin11
 [More](#)
 
 11 Shares
+
+Source: https://selfsaid.30tools.com/how-i-silenced-my-inner-critic/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/gentle-reminder-overwhelmed/'
 
 ![](https://seffsaid.com/wp-content/uploads/gentle-reminder-overwhelmed.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Some days are just heavier. The kind where your mind races, your body tenses, and everything, even the small things, feels like too much.
 
@@ -20,7 +20,7 @@ If that’s where you are today, this is for you.
 
 Take a breath. Not a deep one. Just an honest one. The kind that reminds you you’re still here.
 
-[You don’t have to fix everything right now](/you-dont-have-to-fix-everything).
+[You don’t have to fix everything right now](https://selfsaid.30tools.com/you-dont-have-to-fix-everything).
 
 You don’t need a perfect plan.
 
@@ -28,13 +28,13 @@ You don’t have to earn rest.
 
 Right now, it’s enough to:
 
-*   [drink a glass of water](/grounding-power-of-drinking-water)
+*   [drink a glass of water](https://selfsaid.30tools.com/grounding-power-of-drinking-water)
 *   sit in a quiet room
 *   step outside for a minute of air
-*   [turn your phone off for a while](/phone-free-hour)
+*   [turn your phone off for a while](https://selfsaid.30tools.com/phone-free-hour)
 *   do the next small thing
 
-[Overwhelm](/why-you-still-feel-overwhelmed) doesn’t mean you’re broken. It means you’re carrying too much. And maybe you’ve been doing it for longer than anyone realizes.
+[Overwhelm](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed) doesn’t mean you’re broken. It means you’re carrying too much. And maybe you’ve been doing it for longer than anyone realizes.
 
 You might not be able to pause everything. But you can soften the way you speak to yourself. You can give yourself permission to stop pushing so hard.
 
@@ -71,3 +71,5 @@ Seff
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/gentle-reminder-overwhelmed/

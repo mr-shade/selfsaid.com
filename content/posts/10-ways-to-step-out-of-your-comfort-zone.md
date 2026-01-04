@@ -12,17 +12,17 @@ original_url: 'https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-
 
 ![Man happy to have finally stepped out of his comfort zone](https://seffsaid.com/wp-content/uploads/Step-Out-Of-Your-Comfort-Zone.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Most people spend most of their lives inside their comfort zone and this is natural and unsurprising. While inside you experience low levels of anxiety, have reduced stress, your life feels familiar, you feel happy, and most of all you feel safe.
 
-Of course, there’s nothing wrong with spending time there, it is important to be able to relax and be ourselves. But many people get too comfortable and let new and exciting opportunities pass them by, stop challenging themselves, miss out on new experiences, limit their [personal growth](/ten-ways-to-accelerate-your-personal-growth-and-development) and give up on chasing and achieving their dreams.
+Of course, there’s nothing wrong with spending time there, it is important to be able to relax and be ourselves. But many people get too comfortable and let new and exciting opportunities pass them by, stop challenging themselves, miss out on new experiences, limit their [personal growth](https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development) and give up on chasing and achieving their dreams.
 
 As you’re reading this article you know you need to step out of your comfort zone. You also know that overcoming your fear of the unknown is needed to get you to where you want to be in life.
 
 But where do you start? The trick is to start changing the small things that you do every day. Even by taking small gentle steps you are probably going to feel uncomfortable, awkward and a little scared. But pushing through your fear and expanding your comfort zone is essential for your personal growth.
 
-To start out, here are a few simple and very gentle ways to get yourself moving out of your comfort zone. And remember… the risks of stepping out of your comfort zone aren’t nearly as bad as the risks of staying in it for your whole life. Also, please check out my list of the 50 best [comfort zone quotes](/50-best-comfort-zone-quotes) for more inspiration.
+To start out, here are a few simple and very gentle ways to get yourself moving out of your comfort zone. And remember… the risks of stepping out of your comfort zone aren’t nearly as bad as the risks of staying in it for your whole life. Also, please check out my list of the 50 best [comfort zone quotes](https://selfsaid.30tools.com/50-best-comfort-zone-quotes) for more inspiration.
 
 ## 1\. Fill your car with fuel at different service stations
 
@@ -42,11 +42,11 @@ Most people tend to wear the same style or colour of clothing. For example, some
 
 ## 5\. Sit somewhere new
 
-Do you always sit in the same chair when watching TV or [reading a book](/8-benefits-of-reading-books)? Maybe you tend to pick a table at the back of a restaurant? Try sitting in a different chair at home or choose the table in the front of the restaurant.
+Do you always sit in the same chair when watching TV or [reading a book](https://selfsaid.30tools.com/8-benefits-of-reading-books)? Maybe you tend to pick a table at the back of a restaurant? Try sitting in a different chair at home or choose the table in the front of the restaurant.
 
 ## 6\. Try a no-tech day
 
-Yes, going a day without using a smartphone, tablet or the internet is a scary thought! But taking a [digital detox](/quotes-about-unplugging) is a great way to take you out of your social media/news addicted comfort zone.
+Yes, going a day without using a smartphone, tablet or the internet is a scary thought! But taking a [digital detox](https://selfsaid.30tools.com/quotes-about-unplugging) is a great way to take you out of your social media/news addicted comfort zone.
 
 ## 7\. Go out alone
 
@@ -77,3 +77,5 @@ Pin30
 [More](#)
 
 30 Shares
+
+Source: https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/feel-good-thoughts/'
 
 ![](https://seffsaid.com/wp-content/uploads/feel-good-thoughts.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When today feels heavy and the usual ways of caring for yourself seem out of reach, even a small thought can make a difference. A sentence, a phrase, or a reminder can shift the way you feel, even for a moment.
 
@@ -26,11 +26,11 @@ Stress and worry can feel permanent, but no feeling lasts forever. Remind yourse
 
 ## 2\. Small wins matter
 
-It is easy to dismiss little achievements, but they are proof that you are still moving forward. Making your bed, clearing a table, sending a single email, or stepping outside for a walk all count as wins. When bigger goals [feel overwhelming](/why-you-still-feel-overwhelmed), focus on these small, steady steps. They matter more than you think.
+It is easy to dismiss little achievements, but they are proof that you are still moving forward. Making your bed, clearing a table, sending a single email, or stepping outside for a walk all count as wins. When bigger goals [feel overwhelming](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed), focus on these small, steady steps. They matter more than you think.
 
 ## 3\. I am allowed to rest
 
-Rest is not a luxury, it is a necessity. Many people [feel guilty](/how-to-say-no-without-guilt) for pausing, but exhaustion is not a badge of honour. Taking a break, napping, or simply lying still for a few minutes is a valid way to care for yourself. By giving yourself permission to rest, you return with more clarity and strength.
+Rest is not a luxury, it is a necessity. Many people [feel guilty](https://selfsaid.30tools.com/how-to-say-no-without-guilt) for pausing, but exhaustion is not a badge of honour. Taking a break, napping, or simply lying still for a few minutes is a valid way to care for yourself. By giving yourself permission to rest, you return with more clarity and strength.
 
 ## 4\. I have handled hard things before
 
@@ -99,3 +99,5 @@ Over time, these thoughts become more than phrases. They become habits of perspe
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/feel-good-thoughts/

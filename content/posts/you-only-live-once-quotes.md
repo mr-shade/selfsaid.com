@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/you-only-live-once-quotes/'
 
 ![Couple in love hugging](https://seffsaid.com/wp-content/uploads/you-only-live-once-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 These 60 powerful “you only live once” quotes will inspire you to think differently about how you approach each day. They challenge you to seize every moment and make the most of the opportunities that come your way.
 
@@ -50,17 +50,17 @@ These 60 powerful “you only live once” quotes will inspire you to think diff
 30.  “Do not go where the path may lead, go instead where there is no path and leave a trail.” — Ralph Waldo Emerson
 31.  “Life is too important to be taken seriously.” — Oscar Wilde
 32.  “It’s not about how long you live, it’s about how well you live.” — Martin Luther King Jr.
-33.  Life is not measured by the number of breaths we take, but by the moments that take our breath away.” — [Maya Angelou](/maya-angelou-quotes)
+33.  Life is not measured by the number of breaths we take, but by the moments that take our breath away.” — [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 34.  “The unexamined life is not worth living.” — Socrates
 35.  “What lies behind us and what lies before us are tiny matters compared to what lies within us.” — Henry Stanley Haskins
-36.  The two most important days in your life are the day you are born and the day you find out why.” — [Mark Twain](/25-inspirational-mark-twain-quotes)
+36.  The two most important days in your life are the day you are born and the day you find out why.” — [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 37.  “In the middle of every difficulty lies opportunity.” — Albert Einstein
 38.  “You miss 100% of the shots you don’t take.” — Wayne Gretzky
 39.  “Believe you can and you’re halfway there.” — Theodore Roosevelt
 40.  “I would rather die of passion than of boredom.” — Vincent van Gogh
 41.  “Life is short, break the rules, forgive quickly, kiss slowly, love truly.” — Mark Twain
 42.  “Every man dies. Not every man really lives.” — William Wallace
-43.  We make a living by what we get, but we make a life by what we give.” — [Winston Churchill](/winston-churchill-quotes)
+43.  We make a living by what we get, but we make a life by what we give.” — [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 44.  “Do one thing every day that scares you.” — Eleanor Roosevelt
 45.  “What would life be if we had no courage to attempt anything?” — Vincent van Gogh
 46.  “Life isn’t about finding yourself. Life is about creating yourself.” — George Bernard Shaw
@@ -76,8 +76,8 @@ These 60 powerful “you only live once” quotes will inspire you to think diff
 56.  “Enjoy the little things in life, for one day you may look back and realize they were the big things.” — Robert Brault
 57.  “Life is too short to wait.” — Unknown
 58.  “Do what you can, with what you have, where you are.” — Theodore Roosevelt
-59.  “If you want to [live a happy life](/how-to-live-a-happy-life), tie it to a goal, not to people or things.” — Albert Einstein
-60.  Life begins at the end of your [comfort zone.”](/10-ways-to-step-out-of-your-comfort-zone) — Neale Donald Walsch
+59.  “If you want to [live a happy life](https://selfsaid.30tools.com/how-to-live-a-happy-life), tie it to a goal, not to people or things.” — Albert Einstein
+60.  Life begins at the end of your [comfort zone.”](https://selfsaid.30tools.com/10-ways-to-step-out-of-your-comfort-zone) — Neale Donald Walsch
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fyou-only-live-once-quotes%2F)
 
@@ -92,3 +92,5 @@ These 60 powerful “you only live once” quotes will inspire you to think diff
 [More](#)
 
 7 Shares
+
+Source: https://selfsaid.30tools.com/you-only-live-once-quotes/

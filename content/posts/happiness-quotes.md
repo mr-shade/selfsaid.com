@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/happiness-quotes/'
 
 ![A very happy couple laughing together at the beach](https://seffsaid.com/wp-content/uploads/happiness-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Are you searching for a little boost of joy or [a quick pick-me-up to brighten your da](/pick-me-up-quotes-when-feeling-down)y? Happiness can often seem like a fleeting or elusive concept, especially on days that feel more challenging than others. However, finding moments of joy might be closer and more accessible than you think.
+Are you searching for a little boost of joy or [a quick pick-me-up to brighten your da](https://selfsaid.30tools.com/pick-me-up-quotes-when-feeling-down)y? Happiness can often seem like a fleeting or elusive concept, especially on days that feel more challenging than others. However, finding moments of joy might be closer and more accessible than you think.
 
 This collection of 110 happiness quotes is a simple reminder that happiness can be found in various places, moments, and states of mind. Whether you need a gentle nudge to see the brighter side of life or are seeking inspiration to spread some cheer among those around you, these quotes are here to help.
 
@@ -60,7 +60,7 @@ Each one offers a unique perspective on happiness, from the wisdom of philosophe
 38.  “The measure of success is happiness and peace of mind.” – Bobby Davro
 39.  “Happiness is the only thing that multiplies when you share it.” – Albert Schweitzer
 40.  “True happiness comes from the joy of deeds well done, the zest of creating things new.” – Antoine de Saint-Exupéry
-41.  Happiness is not a goal; it’s a by-product of a [life well lived.”](/live-life-to-the-fullest) – Eleanor Roosevelt
+41.  Happiness is not a goal; it’s a by-product of a [life well lived.”](https://selfsaid.30tools.com/live-life-to-the-fullest) – Eleanor Roosevelt
 42.  “The greatest happiness you can have is knowing that you do not necessarily require happiness.” – William Saroyan
 43.  “Doing what you like is freedom. Liking what you do is happiness.” – Frank Tyger
 44.  “Happiness is a way station between too little and too much.” – Channing Pollock
@@ -144,3 +144,5 @@ Each one offers a unique perspective on happiness, from the wisdom of philosophe
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/happiness-quotes/

@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/david-bowie-quotes/'
 
 ![David Bowie performing live](https://seffsaid.com/wp-content/uploads/David-Bowie-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-David Bowie was a master of [reinvention](/reinvent-yourself) and a pioneer in the music and fashion world. His words, like his music, often carried deep meaning and a unique perspective on life and art. Here are some of his best quotes that capture his wit, wisdom, and distinctive outlook. Read more [quotes from famous people](/quotes-by-famous-people) here.
+David Bowie was a master of [reinvention](https://selfsaid.30tools.com/reinvent-yourself) and a pioneer in the music and fashion world. His words, like his music, often carried deep meaning and a unique perspective on life and art. Here are some of his best quotes that capture his wit, wisdom, and distinctive outlook. Read more [quotes from famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 ## David Bowie Quotes
 
@@ -74,3 +74,5 @@ David Bowie was a master of [reinvention](/reinvent-yourself) and a pioneer in t
 [More](#)
 
 31 Shares
+
+Source: https://selfsaid.30tools.com/david-bowie-quotes/

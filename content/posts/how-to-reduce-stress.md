@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/how-to-reduce-stress/'
 
 ![](https://seffsaid.com/wp-content/uploads/How-To-Reduce-Stress-Naturally.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-How to reduce stress and stress management is a major problem for most people. Pressure from work, maintaining a home, [overthinking](/stop-overthinking-everything), raising a family and financial worries can all contribute to us feeling stressed out. Who doesn’t have a long list of jobs that need doing and never enough time to do them all!
+How to reduce stress and stress management is a major problem for most people. Pressure from work, maintaining a home, [overthinking](https://selfsaid.30tools.com/stop-overthinking-everything), raising a family and financial worries can all contribute to us feeling stressed out. Who doesn’t have a long list of jobs that need doing and never enough time to do them all!
 
 Managing your stress is essential for your wellbeing and practicing natural ways to reduce your stress levels is the only sensible way to maintain the long term benefits. Chronic stress can lead to both minor and major health problems such as heart disease, obesity, diabetes, gastrointestinal problems, depression, and asthma. It can also push you towards an unhealthy lifestyle such as not getting sufficient sleep, smoking, not exercising, and eating an unhealthy diet.
 
@@ -26,7 +26,7 @@ In this article, I’ll be sharing 12 simple techniques on how to reduce stress 
 
 Stress can cause your mind to race making it difficult for you to relax or sleep. Meditation is a popular form of stress management and possibly one of the most powerful tools in the war on how to reduce stress.
 
-The [benefits of meditation](/benefits-of-meditation) really are astounding. It can not only control your racing thoughts, your emotions, and relax your body, but can also increase your self-esteem and feelings of optimism. As little as 15 minutes a day of quiet meditation can make a huge impact in reducing your stress levels and improve your general well-being.
+The [benefits of meditation](https://selfsaid.30tools.com/benefits-of-meditation) really are astounding. It can not only control your racing thoughts, your emotions, and relax your body, but can also increase your self-esteem and feelings of optimism. As little as 15 minutes a day of quiet meditation can make a huge impact in reducing your stress levels and improve your general well-being.
 
 ## **2\. Slow Down**
 
@@ -34,13 +34,13 @@ Stop rushing through your day and learn to take things slow. You may feel by per
 
 ## **3\. Be Silent**
 
-Schedule five minutes a few times through the day when you disconnect yourself from the world. Turn off your phone, TV, radio, doorbell, tablet, and laptop. [Disconnect from the internet](/quotes-about-unplugging). Anything that makes a noise or can distract your mind. Then just sit back, relax, and enjoy the silence.
+Schedule five minutes a few times through the day when you disconnect yourself from the world. Turn off your phone, TV, radio, doorbell, tablet, and laptop. [Disconnect from the internet](https://selfsaid.30tools.com/quotes-about-unplugging). Anything that makes a noise or can distract your mind. Then just sit back, relax, and enjoy the silence.
 
 ## **4\. Stop Procrastinating**
 
 Everybody has a tendency to procrastinate, putting off unwanted tasks to another time or even forever. The problem with allowing work to pile up is that it can often lead to more problems that could have been avoided had the job been completed earlier, thus causing even more issues you need to solve and sending your stress levels through the roof.
 
-The good news though is that making a few changes to your lifestyle will help you overcome a tendency to procrastinate and help stop you feeling so stressed. My article on [How To Stop Procrastinating](/how-to-stop-procrastinating) will give you all the information you need to take action today. You won’t beat a procrastination habit overnight, but with using the correct strategies and practicing them daily, you’ll be successful.
+The good news though is that making a few changes to your lifestyle will help you overcome a tendency to procrastinate and help stop you feeling so stressed. My article on [How To Stop Procrastinating](https://selfsaid.30tools.com/how-to-stop-procrastinating) will give you all the information you need to take action today. You won’t beat a procrastination habit overnight, but with using the correct strategies and practicing them daily, you’ll be successful.
 
 ## **5\. Take A Brief Walk**
 
@@ -52,7 +52,7 @@ Our bodies weren’t made to sit in a chair all day. Studies show that getting o
 
 ## **7\. Organize Your Workspace**
 
-A disorganized work area can cause you to have difficulty concentrating and have a lack of focus, both of which can make a task more difficult and time-consuming and make you feel stressed. Try [decluttering](/declutter-your-home) by removing any unnecessary items from your desk keeping only what’s needed for your work in front of you.
+A disorganized work area can cause you to have difficulty concentrating and have a lack of focus, both of which can make a task more difficult and time-consuming and make you feel stressed. Try [decluttering](https://selfsaid.30tools.com/declutter-your-home) by removing any unnecessary items from your desk keeping only what’s needed for your work in front of you.
 
 ## **8\. Eliminate Non-Essential Tasks**
 
@@ -60,17 +60,17 @@ Eliminating any jobs that are non-essential from your day will give you more tim
 
 ## **9\. Schedule Some Relaxation Time**
 
-Relaxation is different for different people, one person may find rock climbing relaxing, another lying on the sofa [reading a book](/8-benefits-of-reading-books). Whatever your preference, making time to relax, and forgetting your worries is vital to managing stress.
+Relaxation is different for different people, one person may find rock climbing relaxing, another lying on the sofa [reading a book](https://selfsaid.30tools.com/8-benefits-of-reading-books). Whatever your preference, making time to relax, and forgetting your worries is vital to managing stress.
 
 ## **10\. Get Enough Sleep**
 
 Sleep is the time for your body to repair itself and your brain’s chance to put it’s feet up and relax. Insufficient or inconsistent sleep can have many detrimental health consequences but it doesn’t only affect our physical health. A lack of sleep can also increase our levels of anxiety.
 
-Taking steps to [sleep well](/how-to-fall-asleep-fast) means you’ll start the day rested, refreshed, and less stressed. A few suggestions include eating a light dinner and not snacking during the evening and not looking at any screens an hour or two before bed.
+Taking steps to [sleep well](https://selfsaid.30tools.com/how-to-fall-asleep-fast) means you’ll start the day rested, refreshed, and less stressed. A few suggestions include eating a light dinner and not snacking during the evening and not looking at any screens an hour or two before bed.
 
 ## **11\. Avoid Difficult People**
 
-We all have people in our lives who we find difficult to deal with or ask too much of us. They usually manage to push just the right buttons to make us feel stressed and anxious. If possible [avoid negative people](/stay-away-from-negative-people), or at least limit your exposure to them.
+We all have people in our lives who we find difficult to deal with or ask too much of us. They usually manage to push just the right buttons to make us feel stressed and anxious. If possible [avoid negative people](https://selfsaid.30tools.com/stay-away-from-negative-people), or at least limit your exposure to them.
 
 ## **12\. Do One Thing At A Time**
 
@@ -89,3 +89,5 @@ Pin10
 [More](#)
 
 10 Shares
+
+Source: https://selfsaid.30tools.com/how-to-reduce-stress/

@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/slow-down-quotes/'
 
 ![Slow Down Quotes for a Calmer Day](https://seffsaid.com/wp-content/uploads/slow-down-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 It’s easy to move through the day on autopilot — checking boxes, rushing through tasks, and forgetting to take a breath. But you don’t need to live in fast-forward. Slowing down isn’t a weakness. It’s a choice. A quiet way to return to yourself.
 
@@ -110,3 +110,5 @@ These 60 quotes are steady reminders that a calmer day often begins with a slowe
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/slow-down-quotes/

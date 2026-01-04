@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/find-out-what-really-matters-to-you/
 
 ![](https://seffsaid.com/wp-content/uploads/what-really-matters.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Understanding what truly matters is essential for living a life aligned with personal values and priorities. It provides clarity, direction, and meaning in an ever-changing world. By reflecting on key aspects of life, you can identify the core principles that shape decisions, relationships, and goals. Here are ten thought-provoking questions to help you explore this deeply personal topic.
 
@@ -34,7 +34,7 @@ The individuals you admire can provide insights into the qualities you value. Wh
 
 ## 5\. What Do You Want to Be Remembered For?
 
-Legacy is a [powerful motivator](/motivational-quotes-success). Ponder the ways you wish to leave an impact on the world. It could be through [acts of kindness](/simple-acts-of-kindness-that-can-make-us-live-longer), groundbreaking achievements, or simply being a source of support for loved ones. Understanding this desire can shape the way you approach daily decisions and long-term plans.
+Legacy is a [powerful motivator](https://selfsaid.30tools.com/motivational-quotes-success). Ponder the ways you wish to leave an impact on the world. It could be through [acts of kindness](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer), groundbreaking achievements, or simply being a source of support for loved ones. Understanding this desire can shape the way you approach daily decisions and long-term plans.
 
 ## 6\. What Activities Make You Lose Track of Time?
 
@@ -42,7 +42,7 @@ Engaging in activities where time seems to fly often indicates areas of passion 
 
 ## 7\. How Do You Handle Challenges?
 
-The way you face adversity can reveal much about your values and priorities. Do you rely on perseverance, creativity, or seeking support from others? Reflecting on past challenges and your responses can highlight what matters most during [difficult times](/quotes-about-being-strong).
+The way you face adversity can reveal much about your values and priorities. Do you rely on perseverance, creativity, or seeking support from others? Reflecting on past challenges and your responses can highlight what matters most during [difficult times](https://selfsaid.30tools.com/quotes-about-being-strong).
 
 ## 8\. What Would You Do If Money Were No Object?
 
@@ -75,3 +75,5 @@ Once clarity emerges, take intentional steps to integrate these values into dail
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/find-out-what-really-matters-to-you/

@@ -11,7 +11,7 @@ featured_image: >-
 original_url: 'https://selfsaid.30tools.com/choose-joy/'
 ---
 
-All [Printable Quotes](/printable-quotes)
+All [Printable Quotes](https://selfsaid.30tools.com/printable-quotes)
 
 # Choose Joy Printable Quote
 
@@ -80,3 +80,5 @@ $4.99 – Instant Download
 [More](#)
 
 0 Shares
+
+Source: https://selfsaid.30tools.com/choose-joy/

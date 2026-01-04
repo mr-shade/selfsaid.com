@@ -10,7 +10,7 @@ featured_image: 'https://seffsaid.com/wp-content/uploads/SEFFSAID-YouAreEnough-8
 original_url: 'https://selfsaid.30tools.com/you-are-enough/'
 ---
 
-All [Printable Quotes](/printable-quotes)
+All [Printable Quotes](https://selfsaid.30tools.com/printable-quotes)
 
 ![You Are Enough](https://seffsaid.com/wp-content/uploads/SEFFSAID-YouAreEnough-800x800-1.webp)
 
@@ -63,3 +63,5 @@ This quote conveys a powerful message of self-worth. It means that you, just by 
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/you-are-enough/

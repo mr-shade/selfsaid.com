@@ -21,7 +21,7 @@ But before we move forward, I want to mention a quote that helped me kickstart t
 
 ![Stop expecting you from other people](https://seffsaid.com/wp-content/uploads/Stop-expecting-you-from-other-people.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 > “Stop expecting YOU from other people. It’s heartbreaking. Also, if you figure out how to do this, teach me.”
 > 
@@ -37,7 +37,7 @@ This was a quote that I stumbled upon accidentally while scrolling through Pinte
 
 > “They” are not “You,” and “You” are not “Them.” And it’s wrong to expect anyone to be someone they’re not.
 
-When we [stop expecting ourselves in others](/5-things-you-should-stop-expecting-from-other-people), we’re less likely to be disappointed and are able to build stronger and more meaningful relationships. It’s like having a buffet of friends, each with different tastes and flavors, and you’ll enjoy them all differently. And who doesn’t want that?
+When we [stop expecting ourselves in others](https://selfsaid.30tools.com/5-things-you-should-stop-expecting-from-other-people), we’re less likely to be disappointed and are able to build stronger and more meaningful relationships. It’s like having a buffet of friends, each with different tastes and flavors, and you’ll enjoy them all differently. And who doesn’t want that?
 
 ## The problem with expecting oneself in others
 
@@ -122,3 +122,5 @@ By following these steps, you’ll be able to build healthier and more meaningfu
 [More](#)
 
 0 Shares
+
+Source: https://selfsaid.30tools.com/stop-expecting-you-from-other-people/

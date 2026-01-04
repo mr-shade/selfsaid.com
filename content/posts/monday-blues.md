@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/monday-blues/'
 
 ![4 Ways to Beat the Monday Blues](https://seffsaid.com/wp-content/uploads/monday-blues.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 When Monday arrives, it can feel like being thrown onto a fast moving train that has already left the station. After the slower pace of the weekend, the sudden return to schedules, deadlines, and responsibilities can weigh heavily. For many people, Sunday evening already brings a sense of dread, knowing what is waiting on the other side.
 
@@ -22,19 +22,19 @@ Here are four ways to make Mondays feel lighter and more manageable.
 
 ## 1\. Prepare ahead
 
-A little preparation on Sunday can make Monday morning calmer and less stressful. Choose your clothes, pack your bag, write down your priorities, or prepare your breakfast the night before. These are not just tasks to check off, they are quiet acts of kindness for your [future self](/future-self). When you wake up and find that decisions have already been made, you feel steadier and more in control.
+A little preparation on Sunday can make Monday morning calmer and less stressful. Choose your clothes, pack your bag, write down your priorities, or prepare your breakfast the night before. These are not just tasks to check off, they are quiet acts of kindness for your [future self](https://selfsaid.30tools.com/future-self). When you wake up and find that decisions have already been made, you feel steadier and more in control.
 
 Preparation also eases the sense of being rushed. Instead of starting the week by scrambling, you begin from a place of readiness. Even five minutes of planning on Sunday evening can set the tone for the entire day.
 
 ## 2\. Start with something uplifting
 
-Give yourself a reason to look forward to Monday. This could be as simple as enjoying your favorite breakfast, listening to an inspiring podcast, or taking a short walk before you dive into work. Some people set aside a special ritual, like brewing a new coffee or [reading a few pages of a good book](/8-benefits-of-reading-books), that is reserved only for Mondays.
+Give yourself a reason to look forward to Monday. This could be as simple as enjoying your favorite breakfast, listening to an inspiring podcast, or taking a short walk before you dive into work. Some people set aside a special ritual, like brewing a new coffee or [reading a few pages of a good book](https://selfsaid.30tools.com/8-benefits-of-reading-books), that is reserved only for Mondays.
 
 Starting the day with something uplifting is a way of reminding yourself that Mondays are not only about work or obligation. They can also carry moments of joy, pleasure, and care. When you start with something positive, you carry that energy into the rest of the day.
 
 ## 3\. Break the day into pieces
 
-Looking at the whole week from Monday morning can [feel overwhelming](/why-you-still-feel-overwhelmed). There may be deadlines, meetings, or tasks stacked up waiting for you, and it is easy to feel buried before you even begin. One way to reduce that pressure is to focus only on the immediate section of the day.
+Looking at the whole week from Monday morning can [feel overwhelming](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed). There may be deadlines, meetings, or tasks stacked up waiting for you, and it is easy to feel buried before you even begin. One way to reduce that pressure is to focus only on the immediate section of the day.
 
 Think in small steps: the first hour, the first task, or even just the first conversation. When you break the day into pieces, you create manageable chunks that feel less intimidating. Each time you complete a piece, you give yourself a small sense of accomplishment that helps build momentum for the next. Over time, this approach teaches your mind to see progress instead of pressure.
 
@@ -65,3 +65,5 @@ Pin1
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/monday-blues/

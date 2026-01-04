@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/madison-beer-quotes/'
 
 ![Madison Beer in concert](https://seffsaid.com/wp-content/uploads/madison-beer-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Madison Beer’s best quotes that reflect her thoughts on self-love, authenticity, and personal growth.
 
@@ -22,10 +22,10 @@ Madison Beer’s best quotes that reflect her thoughts on self-love, authenticit
 *   “I’ve learned to love my imperfections because they make me who I am.” – Madison Beer
 *   “Success isn’t just about the fame and money; it’s about doing what you love.” – Madison Beer
 *   “It’s okay not to have everything figured out. Life is about the journey, not the destination.” – Madison Beer
-*   “In a world where you can be anything, [be kind](/simple-acts-of-kindness-that-can-make-us-live-longer).” – Madison Beer
+*   “In a world where you can be anything, [be kind](https://selfsaid.30tools.com/simple-acts-of-kindness-that-can-make-us-live-longer).” – Madison Beer
 *   “I always remind myself that it’s okay to feel down sometimes, as long as I don’t stay there.” – Madison Beer
 *   “The people who belong in your life will stay, and those who don’t, won’t. It’s as simple as that.” – Madison Beer
-*   “I’ve learned that [happiness](/how-to-live-a-happy-life) comes from within, not from other people or things.” – Madison Beer
+*   “I’ve learned that [happiness](https://selfsaid.30tools.com/how-to-live-a-happy-life) comes from within, not from other people or things.” – Madison Beer
 *   “Confidence is something you have to build on your own; it’s not given to you by others.” – Madison Beer
 *   “You don’t have to be perfect to inspire others. Let them be inspired by how you deal with your imperfections.” – Madison Beer
 *   “I believe in being vulnerable and open, because that’s how you connect with people.” – Madison Beer
@@ -47,7 +47,7 @@ Madison Beer’s best quotes that reflect her thoughts on self-love, authenticit
 *   “When you love yourself, you open up a world of possibilities.” – Madison Beer
 *   “Be yourself; everyone else is already taken.” – Madison Beer
 
-Read more [quotes by celebrities](/quotes-by-famous-people) here.
+Read more [quotes by celebrities](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fmadison-beer-quotes%2F)
 
@@ -62,3 +62,5 @@ Read more [quotes by celebrities](/quotes-by-famous-people) here.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/madison-beer-quotes/

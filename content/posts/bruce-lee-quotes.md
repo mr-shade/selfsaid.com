@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/bruce-lee-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/Bruce-Lee-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Discover the impact Bruce Lee had on the world, not just as a martial arts icon, but as a source of [wisdom](/wise-quotes-about-life), through this collection of his best quotes. These quotes, drawn from both his real-life teachings and the characters he portrayed in film, encapsulate his dynamic philosophy and enduring influence.
+Discover the impact Bruce Lee had on the world, not just as a martial arts icon, but as a source of [wisdom](https://selfsaid.30tools.com/wise-quotes-about-life), through this collection of his best quotes. These quotes, drawn from both his real-life teachings and the characters he portrayed in film, encapsulate his dynamic philosophy and enduring influence.
 
 1.  “Be water, my friend.” – Bruce Lee
 2.  “I fear not the man who has practiced 10,000 kicks once, but I fear the man who has practiced one kick 10,000 times.” – Bruce Lee
@@ -100,7 +100,7 @@ Discover the impact Bruce Lee had on the world, not just as a martial arts icon,
 82.  “You must be shapeless, formless, like water.” – This quote is inspired by Bruce Lee’s philosophy and adapted for his appearance in the TV series “Blondie” (1969)
 83.  “The best technique is to have no technique.” – This quote is from Bruce Lee’s appearance in the TV series “Ironside” (1967)
 
-You can read more [quotes from famous people](/quotes-by-famous-people) here.
+You can read more [quotes from famous people](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Fbruce-lee-quotes%2F)
 
@@ -115,3 +115,5 @@ You can read more [quotes from famous people](/quotes-by-famous-people) here.
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/bruce-lee-quotes/

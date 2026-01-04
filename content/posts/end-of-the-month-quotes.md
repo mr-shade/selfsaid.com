@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/end-of-the-month-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/End-Of-The-Month-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 50 unique “end of the month” quotes that offer a perfect opportunity to reflect on your progress, celebrate small victories, and embrace a fresh start
 
@@ -38,7 +38,7 @@ Let each end of the month remind you of your strength and resilience, and the co
 
 It’s the quiet endings, the little reflections at month’s close, that remind us to be gentle with ourselves. – Morgan Harper Nichols
 
-Before you turn the page, take a deep breath, look back, and appreciate just how far you’ve come. – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+Before you turn the page, take a deep breath, look back, and appreciate just how far you’ve come. – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 
 As this chapter closes, thank yourself for every step forward. Each one took courage. – Mary Anne Radmacher
 
@@ -64,7 +64,7 @@ In the stillness of the month’s end, find peace in progress, no matter how sma
 
 At the end of every month, be proud of the quiet, steady work that nobody sees but you. – Rachel Hollis
 
-Another month ends, and with it, the strength to [move forward](/quotes-about-getting-back-up-and-moving-forwards-after-failure). Honor that strength within you. – Unknown
+Another month ends, and with it, the strength to [move forward](https://selfsaid.30tools.com/quotes-about-getting-back-up-and-moving-forwards-after-failure). Honor that strength within you. – Unknown
 
 As the month closes, take a moment to breathe, release, and give yourself grace for all you’ve done. – Victoria Erickson
 
@@ -72,7 +72,7 @@ Reflect on the month with compassion for yourself, knowing every effort, every s
 
 Allow the month’s end to inspire a fresh start, knowing you carry the lessons within you. – Unknown
 
-Close this month with gratitude, for the struggles and triumphs alike have made you who you are. – [Maya Angelou](/maya-angelou-quotes)
+Close this month with gratitude, for the struggles and triumphs alike have made you who you are. – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 
 Appreciate every day you’ve endured, every challenge overcome, as the month comes to a close. – Unknown
 
@@ -108,7 +108,7 @@ Every month’s end holds stories of strength and resilience. Celebrate those qu
 
 Look back with love at the month that passed, for each day brought you closer to who you are. – Nikki Banas
 
-As the month ends, [let go of](/things-to-let-go-of-before-your-next-birthday) what didn’t serve you, and cherish the lessons that will. – Unknown
+As the month ends, [let go of](https://selfsaid.30tools.com/things-to-let-go-of-before-your-next-birthday) what didn’t serve you, and cherish the lessons that will. – Unknown
 
 Allow the end of the month to teach you to be grateful for how far you’ve come. – Henry David Thoreau
 
@@ -133,3 +133,5 @@ Before you step into a new month, honor the moments, big and small, that shaped 
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/end-of-the-month-quotes/

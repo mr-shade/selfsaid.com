@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/questions-problems/'
 
 ![](https://seffsaid.com/wp-content/uploads/questions-problems.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Challenges often feel overwhelming, and finding clarity can seem elusive. Shifting your perspective starts with asking the right questions. These questions can provide a fresh lens through which you can analyze and tackle your problems.
 
@@ -26,7 +26,7 @@ It’s easier to provide guidance to others than to yourself. Imagine a friend c
 
 ## 3\. What can I control right now?
 
-Focusing on what’s outside your control can leave you feeling powerless. Shifting your energy toward aspects within your influence is far [more productive](/tips-for-productive-living). Ask yourself what steps, no matter how small, you can take today to improve the situation.
+Focusing on what’s outside your control can leave you feeling powerless. Shifting your energy toward aspects within your influence is far [more productive](https://selfsaid.30tools.com/tips-for-productive-living). Ask yourself what steps, no matter how small, you can take today to improve the situation.
 
 ## 4\. Is this problem as permanent as it seems?
 
@@ -34,7 +34,7 @@ Problems often feel bigger in the moment. Consider whether this will still matte
 
 ## 5\. What is this situation teaching me?
 
-Even in the most challenging circumstances, there’s something to learn. [Ask yourself](/questions-you-should-ask-yourself) how this experience could contribute to your personal growth. It might help you develop patience, resilience, or new skills.
+Even in the most challenging circumstances, there’s something to learn. [Ask yourself](https://selfsaid.30tools.com/questions-you-should-ask-yourself) how this experience could contribute to your personal growth. It might help you develop patience, resilience, or new skills.
 
 ## 6\. Who can help me?
 
@@ -42,7 +42,7 @@ No one has to face everything alone. Identifying people who can provide advice, 
 
 ## 7\. What’s the worst that could happen, and can I handle it?
 
-Fearing the unknown can magnify your concerns. By acknowledging the worst possible outcome, you can prepare mentally and practically for it. Often, you’ll realize the scenario is manageable, which can [reduce anxiety](/48-simple-ways-to-reduce-stress-and-anxiety).
+Fearing the unknown can magnify your concerns. By acknowledging the worst possible outcome, you can prepare mentally and practically for it. Often, you’ll realize the scenario is manageable, which can [reduce anxiety](https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety).
 
 ## 8\. What would I do if I weren’t afraid?
 
@@ -65,3 +65,5 @@ The way you frame your challenges can significantly influence how you address th
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/questions-problems/

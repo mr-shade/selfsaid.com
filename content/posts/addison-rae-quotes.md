@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/addison-rae-quotes/'
 
 ![Addison Rae in concert](https://seffsaid.com/wp-content/uploads/Addison-Rae-Quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-These Addison Rae quotes give an insight into her mindset and approach to life and her career, reflecting her values and ambitions as a social media influencer, singer, and public figure. Read more [quotes by famous singers](/quotes-by-famous-people) here.
+These Addison Rae quotes give an insight into her mindset and approach to life and her career, reflecting her values and ambitions as a social media influencer, singer, and public figure. Read more [quotes by famous singers](https://selfsaid.30tools.com/quotes-by-famous-people) here.
 
 “I try to keep things in my life as authentic and true to myself as possible.” – Addison Rae
 
@@ -40,7 +40,7 @@ These Addison Rae quotes give an insight into her mindset and approach to life a
 
 “The key to a relationship is a good sense of humor. If you can’t make me laugh, don’t look at me.” – Addison Rae
 
-“I’ve learned to [let go of things](/things-to-let-go-of-before-your-next-birthday) I can’t control and focus on what I can.” – Addison Rae
+“I’ve learned to [let go of things](https://selfsaid.30tools.com/things-to-let-go-of-before-your-next-birthday) I can’t control and focus on what I can.” – Addison Rae
 
 “My intuition and ability to evolve and transform are some of my strongest qualities.” – Addison Rae
 
@@ -89,3 +89,5 @@ These Addison Rae quotes give an insight into her mindset and approach to life a
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/addison-rae-quotes/

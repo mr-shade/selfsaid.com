@@ -12,11 +12,11 @@ original_url: 'https://selfsaid.30tools.com/10-things-to-stop-doing-to-yourself-
 
 ![](https://seffsaid.com/wp-content/uploads/Things-To-Stop-Doing-To-Yourself.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
   
 
-We all carry habits of thinking and behaving that quietly wear us down. Some of them started long ago, picked up from family, culture, or past experiences. Others have become automatic responses to stress and pressure. These [habits](/habits-that-waste-our-time) may seem small, but over time they drain your energy, increase anxiety, and make life feel heavier than it needs to be.
+We all carry habits of thinking and behaving that quietly wear us down. Some of them started long ago, picked up from family, culture, or past experiences. Others have become automatic responses to stress and pressure. These [habits](https://selfsaid.30tools.com/habits-that-waste-our-time) may seem small, but over time they drain your energy, increase anxiety, and make life feel heavier than it needs to be.
 
 Letting go of them is not about perfection. It is about noticing where you are being unkind to yourself, and choosing something gentler instead. With awareness and practice, these small shifts can help you feel lighter, calmer, and more at peace with yourself.
 
@@ -50,7 +50,7 @@ Ask yourself: what small step can I take today that supports me? The past cannot
 
 Perfection is a standard that does not exist. Chasing it keeps you trapped in constant dissatisfaction, unable to feel proud of what you achieve. You may delay starting projects, or spend endless hours refining work that is already good enough.
 
-Instead, [focus on progress](/habits-blocking-progress). Celebrate completion, not flawlessness. When you let go of perfection, you make space for creativity, growth, and peace of mind. Life feels lighter when you aim for “good enough” and allow yourself to move forward.
+Instead, [focus on progress](https://selfsaid.30tools.com/habits-blocking-progress). Celebrate completion, not flawlessness. When you let go of perfection, you make space for creativity, growth, and peace of mind. Life feels lighter when you aim for “good enough” and allow yourself to move forward.
 
 ## 6\. Stop ignoring your needs
 
@@ -101,3 +101,5 @@ Start small. Choose one of these habits and practice releasing it this week. Wit
 [More](#)
 
 15 Shares
+
+Source: https://selfsaid.30tools.com/10-things-to-stop-doing-to-yourself-today/

@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/beginners-mindset/'
 
 ![A man using the beginner's mindset to learn to sail a yacht.](https://seffsaid.com/wp-content/uploads/beginners-mindset.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 > “The ‘Beginner’s Mind’ or ‘Shoshin’ is a concept in Zen Buddhism that refers to having an attitude of openness, eagerness, and lack of preconceptions when studying a subject, even when studying at an advanced level, just as a beginner in that subject would.”
 > 
 > Shunryu Suzuki
 
-When we’re children, everything is new. If we want to learn something, we don’t even consider the fact that we’re beginners and when we first start, we are going to be ‘bad’ at it; we just turn up and do it. [We make mistakes](/5-common-life-mistakes-to-avoid) without caring or even noticing, and we learn quickly and easily through those mistakes and through a relaxed naïve attitude.
+When we’re children, everything is new. If we want to learn something, we don’t even consider the fact that we’re beginners and when we first start, we are going to be ‘bad’ at it; we just turn up and do it. [We make mistakes](https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid) without caring or even noticing, and we learn quickly and easily through those mistakes and through a relaxed naïve attitude.
 
 But many of us become self-conscious and shy away from new challenges and new activities as we get older. Whether it’s fear of making a fool of ourselves, self-doubt or the feeling that as an adult we should already know more than we do, we often have strong reasons to stay home or only participate in activities that we believe we’re already good at.  
   
@@ -26,7 +26,7 @@ But what if we were able to positively revel in the state of being a beginner, i
   
 I recently decided to try this out. I had been thinking about how I used to really enjoy the early stages of learning. I remembered my first steps in playing the piano, speaking foreign languages, driving a car, and sailing a dinghy. Compared to now, where I have many years of experience under my belt and often feel shame that I ‘should’ be better at these things than I am, I was fairly free of expectations. I turned up at my lessons, or I sat down with books or videos, I practiced and I held strongly to the belief that it didn’t matter how many mistakes I made, I was a joyful beginner!
 
-Safety aside (being in charge of a vehicle is obviously a responsibility to be taken very seriously right from the start), I actually truly enjoyed the feeling of learning something completely new and not putting perfectionist pressure on myself to be better at it than I was. And how did I do that? Here are the steps that I took to be a joyful beginner, regain the beginner’s [mindset](/how-to-develop-a-winning-mindset) and enjoy the process:
+Safety aside (being in charge of a vehicle is obviously a responsibility to be taken very seriously right from the start), I actually truly enjoyed the feeling of learning something completely new and not putting perfectionist pressure on myself to be better at it than I was. And how did I do that? Here are the steps that I took to be a joyful beginner, regain the beginner’s [mindset](https://selfsaid.30tools.com/how-to-develop-a-winning-mindset) and enjoy the process:
 
 ## 1\. Good enough is good enough and failure is an option
 
@@ -42,7 +42,7 @@ Also, the people I spoke with appreciated my efforts and knew that mistakes were
 
 ## 3\. Healthy achievement versus perfectionism
 
-I learned and often reminded myself of the difference between healthy achievement and [perfectionism](/how-i-cheated-my-need-for-perfectionism). By this, I mean that striving for healthy achievement is the desire to improve the self or to reach a desired goal, whereas perfectionism is the desire to please others, avoid embarrassment or gain admiration.
+I learned and often reminded myself of the difference between healthy achievement and [perfectionism](https://selfsaid.30tools.com/how-i-cheated-my-need-for-perfectionism). By this, I mean that striving for healthy achievement is the desire to improve the self or to reach a desired goal, whereas perfectionism is the desire to please others, avoid embarrassment or gain admiration.
 
 Once I started focusing on self-improvement rather than pleasing others with perfectionism, I could feel a change in my approach to almost everything I learned or tried to achieve.
 
@@ -85,3 +85,5 @@ Borrow the easy, carefree beginner’s mindset of a child, and use the tenacity 
 [More](#)
 
 7 Shares
+
+Source: https://selfsaid.30tools.com/beginners-mindset/

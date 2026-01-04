@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/8-remarkable-benefits-of-always-tell
 
 ![](https://seffsaid.com/wp-content/uploads/benefits-of-telling-the-truth.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 In our day to day lives, it’s tough to be honest 100% of the time. Every day, we are presented with situations where we can either tell the truth or lie, but consistently telling the truth is not an easy path to take.
 
@@ -20,7 +20,7 @@ Saying nothing at all, telling a ‘white lie’ or telling a big lie may often 
 
 ## 1\. You don’t have to remember your lies.
 
-Once you have told a lie, you need to remember that lie so as not to contradict yourself in the future. This can create a state of [anxiety](/48-simple-ways-to-reduce-stress-and-anxiety) as you worry about being in a situation where you could be ‘found out’. If you never lie, you don’t need to worry about your lies being discovered and you’ll live a happier, less anxious life.
+Once you have told a lie, you need to remember that lie so as not to contradict yourself in the future. This can create a state of [anxiety](https://selfsaid.30tools.com/48-simple-ways-to-reduce-stress-and-anxiety) as you worry about being in a situation where you could be ‘found out’. If you never lie, you don’t need to worry about your lies being discovered and you’ll live a happier, less anxious life.
 
 ## 2\. You’ll earn trust and respect.
 
@@ -28,11 +28,11 @@ Constantly telling the truth will earn you trust and respect from friends, famil
 
 ## 3\. You’ll create deeper connections with people.
 
-Telling the truth shows a willingness to express your feelings and private thoughts openly. This behavior encourages others to reciprocate, deepening [friendships](/how-to-be-a-good-friend) and relationships.
+Telling the truth shows a willingness to express your feelings and private thoughts openly. This behavior encourages others to reciprocate, deepening [friendships](https://selfsaid.30tools.com/how-to-be-a-good-friend) and relationships.
 
 ## 4\. You’ll feel more confident.
 
-Being truthful with other people means we are also being truthful with ourselves. We can take pride that we are not betraying our own thoughts or beliefs which can build our self-confidence. If you are interested in building confidence, please read my article on [how to appear confident](/10-ways-to-appear-more-confident).
+Being truthful with other people means we are also being truthful with ourselves. We can take pride that we are not betraying our own thoughts or beliefs which can build our self-confidence. If you are interested in building confidence, please read my article on [how to appear confident](https://selfsaid.30tools.com/10-ways-to-appear-more-confident).
 
 ## 5\. Trust creates opportunities.
 
@@ -63,3 +63,5 @@ Pin16
 [More](#)
 
 16 Shares
+
+Source: https://selfsaid.30tools.com/8-remarkable-benefits-of-always-telling-the-truth/

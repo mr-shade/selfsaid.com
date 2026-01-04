@@ -11,7 +11,7 @@ featured_image: >-
 original_url: 'https://selfsaid.30tools.com/youll-get-there-dont-give-up/'
 ---
 
-All [Printable Quotes](/printable-quotes)
+All [Printable Quotes](https://selfsaid.30tools.com/printable-quotes)
 
 # You’ll Get There Don’t Give Up Printable Quote
 
@@ -82,3 +82,5 @@ $4.99 – Instant Download
 [More](#)
 
 5 Shares
+
+Source: https://selfsaid.30tools.com/youll-get-there-dont-give-up/

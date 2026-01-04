@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/self-love-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/self-love-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Self-love is essential for [building confidence](/10-ways-to-appear-more-confident) and [living a fulfilling life](/live-life-to-the-fullest). These 76 empowering self-love quotes offer encouragement to help you appreciate and accept yourself as you are. Let them serve as gentle reminders to prioritize your own well-being and self-worth every day.
+Self-love is essential for [building confidence](https://selfsaid.30tools.com/10-ways-to-appear-more-confident) and [living a fulfilling life](https://selfsaid.30tools.com/live-life-to-the-fullest). These 76 empowering self-love quotes offer encouragement to help you appreciate and accept yourself as you are. Let them serve as gentle reminders to prioritize your own well-being and self-worth every day.
 
 ## Self-Love Quotes
 
-*   “You yourself, as much as anybody in the entire universe, deserve your love and affection.” — [Buddha](/buddha-quotes)
+*   “You yourself, as much as anybody in the entire universe, deserve your love and affection.” — [Buddha](https://selfsaid.30tools.com/buddha-quotes)
 *   “Self-care is not a luxury; it is a necessity.” — Audre Lorde
 *   “Be yourself, everyone else is already taken.” — Oscar Wilde
 *   “Love yourself first, because that’s who you’ll be spending the rest of your life with.” — Unknown
@@ -65,7 +65,7 @@ Self-love is essential for [building confidence](/10-ways-to-appear-more-confide
 *   “Be good to yourself, and the rest will follow.” — Unknown
 *   “No one is you, and that is your superpower.” — Unknown
 *   “Choose, everyday, to forgive yourself. You are human, flawed, and most of all, worthy of love.” — Alison Malee
-*   “The real difficulty is to overcome how you think about yourself.” — [Maya Angelou](/maya-angelou-quotes)
+*   “The real difficulty is to overcome how you think about yourself.” — [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 *   “Don’t sacrifice yourself too much, because if you sacrifice too much, there’s nothing else you can give and nobody will care for you.” — Karl Lagerfeld
 *   “Embrace the glorious mess that you are.” — Elizabeth Gilbert
 *   “Be so completely yourself that everyone else feels safe to be themselves, too.” — Unknown
@@ -81,7 +81,7 @@ Self-love is essential for [building confidence](/10-ways-to-appear-more-confide
 *   “You are not your mistakes; they are what you did, not who you are.” — Lisa Lieberman-Wang
 *   “Once you embrace your value, talents, and strengths, it neutralizes when others think less of you.” — Rob Liano
 *   “Self-love is a great way to stop picking people who don’t love you.” — Unknown
-*   “If you’re searching for that one person that will [change your life](/5-simple-daily-habits-that-can-actually-change-your-life), take a look in the mirror.” — Unknown
+*   “If you’re searching for that one person that will [change your life](https://selfsaid.30tools.com/5-simple-daily-habits-that-can-actually-change-your-life), take a look in the mirror.” — Unknown
 *   “Forgive yourself for not knowing what you didn’t know before you learned it.” — Maya Angelou
 *   “Your greatest responsibility is to love yourself and to know you are enough.” — Unknown
 *   “The only person who can pull me down is myself, and I’m not going to let myself pull me down anymore.” — C. JoyBell C.
@@ -108,3 +108,5 @@ Self-love is essential for [building confidence](/10-ways-to-appear-more-confide
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/self-love-quotes/

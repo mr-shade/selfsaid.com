@@ -13,11 +13,11 @@ original_url: 'https://selfsaid.30tools.com/emotional-self-care-10-simple-ways-t
 
 ![](https://seffsaid.com/wp-content/uploads/emotional-self-care-start.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Emotional self-care isn’t always something you plan for. Sometimes, it’s something you quietly crave after another long day of holding it all together.
 
-If you’re new to the idea of emotional self-care or want a clearer understanding of what it really means, you might want to start here: [What Is Emotional Self-Care?](/what-is-emotional-self-care) (And Why It Matters More Than You Think)
+If you’re new to the idea of emotional self-care or want a clearer understanding of what it really means, you might want to start here: [What Is Emotional Self-Care?](https://selfsaid.30tools.com/what-is-emotional-self-care) (And Why It Matters More Than You Think)
 
 This post, though, is for when you’re ready to take action. Not the overwhelming kind, just soft, supportive steps that help you reconnect with how you feel.
 
@@ -124,3 +124,5 @@ You can start before you feel ready. You can start even if you don’t know what
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/emotional-self-care-10-simple-ways-to-start/

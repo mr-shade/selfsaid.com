@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/quotes-about-courage/'
 
 ![](https://seffsaid.com/wp-content/uploads/Quotes-About-Courage.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Courage is a quality that helps you face challenges and take on new opportunities, even when fear is present. These are [quotes that hit hard](/quotes-that-hit-hard) and can offer inspiration and strength to help you act with bravery in your daily life.
+Courage is a quality that helps you face challenges and take on new opportunities, even when fear is present. These are [quotes that hit hard](https://selfsaid.30tools.com/quotes-that-hit-hard) and can offer inspiration and strength to help you act with bravery in your daily life.
 
 ## Quotes About Courage
 
@@ -24,11 +24,11 @@ Courage is a quality that helps you face challenges and take on new opportunitie
 4.  “The only thing we have to fear is fear itself.” – Franklin D. Roosevelt
 5.  “Fear is a reaction. Courage is a decision.” – Winston S. Churchill
 6.  “He who is not everyday conquering some fear has not learned the secret of life.” – Ralph Waldo Emerson
-7.  Courage is resistance to fear, mastery of fear – not absence of fear.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+7.  Courage is resistance to fear, mastery of fear – not absence of fear.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 8.  “You gain strength, courage, and confidence by every experience in which you really stop to look fear in the face.” – Eleanor Roosevelt
 9.  “Fear doesn’t exist anywhere except in the mind.” – Dale Carnegie
 10.  “Do the thing you fear most and the death of fear is certain.” – Mark Twain
-11.  “It’s not the absence of fear, it’s overcoming it. Sometimes you’ve got to blast through and have faith.” – [Emma Watson](/emma-watson-quotes)
+11.  “It’s not the absence of fear, it’s overcoming it. Sometimes you’ve got to blast through and have faith.” – [Emma Watson](https://selfsaid.30tools.com/emma-watson-quotes)
 12.  “Bravery is not the lack of fear but the ability to move forward in spite of fear.” – Unknown
 13.  “Courage starts with showing up and letting ourselves be seen.” – Brené Brown
 14.  “Fear has two meanings: ‘Forget Everything And Run’ or ‘Face Everything And Rise.’ The choice is yours.” – Zig Ziglar
@@ -48,20 +48,20 @@ Courage is a quality that helps you face challenges and take on new opportunitie
 28.  “Fortune favors the brave.” – Terence
 29.  “There is no such thing as bravery; only degrees of fear.” – John Wainwright
 30.  “Man cannot discover new oceans unless he has the courage to lose sight of the shore.” – André Gide
-31.  “Be brave. Take risks. Nothing can substitute experience.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+31.  “Be brave. Take risks. Nothing can substitute experience.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 32.  “It is curious that physical courage should be so common in the world and moral courage so rare.” – Mark Twain
 33.  “Bravery is the capacity to perform properly even when scared half to death.” – Omar N. Bradley
-34.  Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.” – [Winston Churchill](/winston-churchill-quotes)
+34.  Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.” – [Winston Churchill](https://selfsaid.30tools.com/winston-churchill-quotes)
 35.  “Without courage, wisdom bears no fruit.” – Baltasar Gracian
 36.  “To be brave is to love someone unconditionally, without expecting anything in return.” – Madonna
 37.  “Strength does not come from physical capacity. It comes from an indomitable will.” – Mahatma Gandhi
 38.  “Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.” – Lao Tzu
 39.  “It is not the strength of the body that counts, but the strength of the spirit.” – J.R.R. Tolkien
-40.  Courage is the most important of all the virtues because without courage, you can’t practice any other virtue consistently.” – [Maya Angelou](/maya-angelou-quotes)
-41.  “Strength does not come from winning. Your struggles develop your strengths.” – [Arnold Schwarzenegger](/arnold-schwarzenegger-quotes)
+40.  Courage is the most important of all the virtues because without courage, you can’t practice any other virtue consistently.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
+41.  “Strength does not come from winning. Your struggles develop your strengths.” – [Arnold Schwarzenegger](https://selfsaid.30tools.com/arnold-schwarzenegger-quotes)
 42.  “The world breaks everyone, and afterward, some are strong at the broken places.” – Ernest Hemingway
 43.  “Courage isn’t having the strength to go on – it is going on when you don’t have strength.” – Napoléon Bonaparte
-44.  You never know how strong you are until being strong is your only choice.” – [Bob Marley](/bob-marley-quotes)
+44.  You never know how strong you are until being strong is your only choice.” – [Bob Marley](https://selfsaid.30tools.com/bob-marley-quotes)
 45.  “A truly strong person does not need the approval of others any more than a lion needs the approval of sheep.” – Vernon Howard
 46.  “Strength and growth come only through continuous effort and struggle.” – Napoleon Hill
 47.  “Courage is not the absence of despair; it is, rather, the capacity to move ahead in spite of despair.” – Rollo May
@@ -103,7 +103,7 @@ Courage is a quality that helps you face challenges and take on new opportunitie
 83.  “Love is an act of endless forgiveness, a tender look which becomes a habit.” – Peter Ustinov
 84.  “It takes courage to love, but pain through love is the purifying fire which those who love generously know.” – Eleanor Roosevelt
 85.  “A loving heart is the truest wisdom.” – Charles Dickens
-86.  “I have decided to stick with love. Hate is too great a burden to bear.” – [Martin Luther King, Jr.](/martin-luther-king-quotes)
+86.  “I have decided to stick with love. Hate is too great a burden to bear.” – [Martin Luther King, Jr.](https://selfsaid.30tools.com/martin-luther-king-quotes)
 87.  “Love is a choice you make from moment to moment.” – Barbara De Angelis
 88.  “The best love is the kind that awakens the soul and makes us reach for more.” – Nicholas Sparks
 89.  “Love is the difficult realization that something other than oneself is real.” – Iris Murdoch
@@ -121,7 +121,7 @@ Courage is a quality that helps you face challenges and take on new opportunitie
 101.  “The most beautiful thing you can wear is confidence.” – Blake Lively
 102.  “Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.” – Helen Keller
 103.  “Confidence is not, ‘They will like me.’ Confidence instead is, ‘I’ll be fine if they don’t’.” – Christina Grimmie
-104.  Courage is being scared to death, but saddling up anyway.” – [John Wayne](/john-wayne-quotes)
+104.  Courage is being scared to death, but saddling up anyway.” – [John Wayne](https://selfsaid.30tools.com/john-wayne-quotes)
 105.  “Confidence is a habit that can be developed by acting as if you already had the confidence you desire to have.” – Brian Tracy
 106.  “Self-confidence is the first requisite to great undertakings.” – Samuel Johnson
 107.  “Action is a great restorer and builder of confidence. Inaction is not only the result, but the cause, of fear.” – Norman Vincent Peale
@@ -178,3 +178,5 @@ Courage is a quality that helps you face challenges and take on new opportunitie
 [More](#)
 
 6 Shares
+
+Source: https://selfsaid.30tools.com/quotes-about-courage/

@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/music-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/music-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Music has a unique way of touching your heart and bringing people together across cultures and experiences. These 60 quotes capture its beauty, power, and timeless ability to express what words often cannot.
 
@@ -24,7 +24,7 @@ Music has a unique way of touching your heart and bringing people together acros
 *   “Music gives a soul to the universe, wings to the mind, flight to the imagination, and life to everything.” — Plato
 *   “Without music, life would be a mistake.” — Friedrich Nietzsche
 *   “Music is the language of the spirit. It opens the secret of life, bringing peace, abolishing strife.” — Kahlil Gibran
-*   One good thing about music, when it hits you, you feel no pain.” — [Bob Marley](/bob-marley-quotes)
+*   One good thing about music, when it hits you, you feel no pain.” — [Bob Marley](https://selfsaid.30tools.com/bob-marley-quotes)
 *   “Music expresses that which cannot be put into words and that which cannot remain silent.” — Victor Hugo
 *   “Music is the universal language of mankind.” — Henry Wadsworth Longfellow
 *   “After silence, that which comes nearest to expressing the inexpressible is music.” — Aldous Huxley
@@ -37,7 +37,7 @@ Music has a unique way of touching your heart and bringing people together acros
 *   “Music is the strongest form of magic.” — Marilyn Manson
 *   “The only truth is music.” — Jack Kerouac
 *   “Music is the literature of the heart; it commences where speech ends.” — Alphonse de Lamartine
-*   “To live is to be musical, starting with the blood dancing in your veins. Everything living has a rhythm. Do you feel your music?” — [Michael Jackson](/michael-jackson-quotes)
+*   “To live is to be musical, starting with the blood dancing in your veins. Everything living has a rhythm. Do you feel your music?” — [Michael Jackson](https://selfsaid.30tools.com/michael-jackson-quotes)
 *   “Music is the divine way to tell beautiful, poetic things to the heart.” — Pablo Casals
 *   “Music produces a kind of pleasure which human nature cannot do without.” — Confucius
 *   “There is no feeling, except the extremes of fear and grief, that does not find relief in music.” — George Eliot
@@ -49,7 +49,7 @@ Music has a unique way of touching your heart and bringing people together acros
 *   “Music acts like a magic key, to which the most tightly closed heart opens.” — Maria Augusta von Trapp
 *   “Where words leave off, music begins.” — Heinrich Heine
 *   “Music is a weapon in the war against unhappiness.” — Jason Mraz
-*   People haven’t always been there for me, but music always has.” — [Taylor Swift](/taylor-swift-quotes)
+*   People haven’t always been there for me, but music always has.” — [Taylor Swift](https://selfsaid.30tools.com/taylor-swift-quotes)
 *   “Music fills the infinite between two souls.” — Rabindranath Tagore
 *   “Music is the moonlight in the gloomy night of life.” — Jean Paul Friedrich Richter
 *   “Music gives color to the air of the moment.” — Karl Lagerfeld
@@ -94,3 +94,5 @@ Music has a unique way of touching your heart and bringing people together acros
 [More](#)
 
 17 Shares
+
+Source: https://selfsaid.30tools.com/music-quotes/

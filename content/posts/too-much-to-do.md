@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/too-much-to-do/'
 
 ![](https://seffsaid.com/wp-content/uploads/too-much-to-do.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-There are days when the [to-do list](/too-many-to-dos-how-to-get-through-your-list) seems endless. You look around and see a dozen things waiting for you. Tasks you forgot, messages you haven’t answered, decisions you still need to make.
+There are days when the [to-do list](https://selfsaid.30tools.com/too-many-to-dos-how-to-get-through-your-list) seems endless. You look around and see a dozen things waiting for you. Tasks you forgot, messages you haven’t answered, decisions you still need to make.
 
 It feels like everything needs your attention at once. And instead of getting started, you freeze. Or rush. Or bounce from one thing to another, trying to catch up without really feeling caught.
 
@@ -36,7 +36,7 @@ If you’ve been feeling buried by everything you need to do, try this.
 
 Step away from the full list for a moment. Take a breath. Look around you, not to judge what’s undone, but to find one small place to begin again.
 
-Ask yourself, “What’s the next small thing that would help me feel more in control?” Not the most urgent task. Not the biggest challenge. Just one thing that would [ease some of the weight you’re carrying](/youre-not-lazy).
+Ask yourself, “What’s the next small thing that would help me feel more in control?” Not the most urgent task. Not the biggest challenge. Just one thing that would [ease some of the weight you’re carrying](https://selfsaid.30tools.com/youre-not-lazy).
 
 It might be putting your phone down for ten minutes. Writing a quick list on paper so it’s no longer circling in your head. Standing up and stretching. Sending one message. Washing one dish.
 
@@ -63,3 +63,5 @@ You’re not failing because you’re moving slowly. You’re moving in a way th
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/too-much-to-do/

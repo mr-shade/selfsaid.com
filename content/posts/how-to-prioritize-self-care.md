@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/how-to-prioritize-self-care/'
 
 ![](https://seffsaid.com/wp-content/uploads/Prioritize-Self-Care.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 It is easy to put yourself last. Work deadlines, family commitments, and the endless demands of daily life often take priority. By the time you have met everyone else’s needs, there is little energy left for your own. And when you do try to pause, rest, or spend time on something you enjoy, guilt can creep in. You may feel selfish, unproductive, or worry that others will see you as lazy.
 
@@ -26,15 +26,15 @@ If you wait until you “find” time for self-care, it will rarely happen. Trea
 
 ## 2\. Start small
 
-Big changes can [feel overwhelming](/why-you-still-feel-overwhelmed), so begin with small steps. Take five minutes to stretch in the morning, sit quietly with tea, or step outside for fresh air. These small moments remind you that you can fit care into your day without overhauling your schedule. Small steps build consistency, which is what truly makes a difference.
+Big changes can [feel overwhelming](https://selfsaid.30tools.com/why-you-still-feel-overwhelmed), so begin with small steps. Take five minutes to stretch in the morning, sit quietly with tea, or step outside for fresh air. These small moments remind you that you can fit care into your day without overhauling your schedule. Small steps build consistency, which is what truly makes a difference.
 
 ## 3\. Learn to say no
 
-Saying yes to every request leaves no time for yourself. [Practice saying no politely](/learn-how-to-say-no) but firmly when something does not fit your capacity. For example, “I cannot commit to that right now” is a complete sentence. Each time you say no to what drains you, you make space for rest, joy, and the activities that truly matter.
+Saying yes to every request leaves no time for yourself. [Practice saying no politely](https://selfsaid.30tools.com/learn-how-to-say-no) but firmly when something does not fit your capacity. For example, “I cannot commit to that right now” is a complete sentence. Each time you say no to what drains you, you make space for rest, joy, and the activities that truly matter.
 
 ## 4\. Identify what recharges you
 
-Self-care looks different for everyone. For some it is a quiet evening [with a book](/8-benefits-of-reading-books), for others it is exercise, creative projects, or time outdoors. Pay attention to what leaves you feeling lighter and more balanced. Focus on those activities rather than what you think you “should” do. Self-care works best when it fits who you are.
+Self-care looks different for everyone. For some it is a quiet evening [with a book](https://selfsaid.30tools.com/8-benefits-of-reading-books), for others it is exercise, creative projects, or time outdoors. Pay attention to what leaves you feeling lighter and more balanced. Focus on those activities rather than what you think you “should” do. Self-care works best when it fits who you are.
 
 ## 5\. Release guilt
 
@@ -46,7 +46,7 @@ Rituals make self-care part of your routine rather than an afterthought. Try a s
 
 ## 7\. Set boundaries with technology
 
-Screens and notifications can drain your attention without you realising it. Protect your energy by setting limits. Turn off notifications in the evening, keep your phone away from the table during meals, or choose certain times of day to check messages. Creating distance from technology gives you [back time](/take-back-time-for-yourself) and focus.
+Screens and notifications can drain your attention without you realising it. Protect your energy by setting limits. Turn off notifications in the evening, keep your phone away from the table during meals, or choose certain times of day to check messages. Creating distance from technology gives you [back time](https://selfsaid.30tools.com/take-back-time-for-yourself) and focus.
 
 ## 8\. Eat and rest with intention
 
@@ -99,3 +99,5 @@ Start small. Choose one of these practices today and give yourself permission to
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/how-to-prioritize-self-care/

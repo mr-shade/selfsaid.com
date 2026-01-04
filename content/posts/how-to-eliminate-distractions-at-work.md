@@ -12,13 +12,13 @@ original_url: 'https://selfsaid.30tools.com/how-to-eliminate-distractions-at-wor
 
 ![](https://seffsaid.com/wp-content/uploads/Eliminate-Distractions-At-Work.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-We really do live in an age of distraction. Whether you work from home in your spare room or for a large multi-national company in an office with 100 other people, there are always distractions in the workplace vying for your attention and limiting your [productivity](/29-tips-to-increase-productivity-at-work).
+We really do live in an age of distraction. Whether you work from home in your spare room or for a large multi-national company in an office with 100 other people, there are always distractions in the workplace vying for your attention and limiting your [productivity](https://selfsaid.30tools.com/29-tips-to-increase-productivity-at-work).
 
 Today’s work environment has changed so much over the past 20 years. As recently as the mid 90’s mobile phones were very expensive and very rare. The internet was barely out of diapers. Hardly anyone had an email address and if you did have an email address you probably didn’t know anyone else with one that you could email! And of course, social media as we know it today did not exist.
 
-Now though, smartphones, the internet, and of course social media have become integrated into both our personal and business lives making our day-to-day living easier and our business lives more [productive](/how-to-be-more-productive).
+Now though, smartphones, the internet, and of course social media have become integrated into both our personal and business lives making our day-to-day living easier and our business lives more [productive](https://selfsaid.30tools.com/how-to-be-more-productive).
 
 But although modern technology may be boosting our productivity, it has also vastly increased the number of distractions we face every day. Social media can slash our productivity from hours to minutes.
 
@@ -30,7 +30,7 @@ In this article, I’m going to show you 7 simple-to-implement yet powerful stra
 
 ## 1\. Disconnect Yourself From The Internet
 
-I’m sure most would agree that the internet is an invention that has changed our personal and working lives immensely, but it can also be a hugely frustrating distraction. Now here’s a scary thought…if you work on a laptop or computer and don’t need to be online to work, disconnect yourself from the internet. Yes, I really said [turn off the internet](/quotes-about-unplugging)!
+I’m sure most would agree that the internet is an invention that has changed our personal and working lives immensely, but it can also be a hugely frustrating distraction. Now here’s a scary thought…if you work on a laptop or computer and don’t need to be online to work, disconnect yourself from the internet. Yes, I really said [turn off the internet](https://selfsaid.30tools.com/quotes-about-unplugging)!
 
 The internet is quite possibly one of the biggest productivity killers out there. I bet you’d be surprised if you knew how much time you spend online surfing sites that aren’t work-related when you should be working.
 
@@ -46,7 +46,7 @@ Take a look around the room, cubicle, or office where you work. Do the surroundi
 
 Take a look around your desk. Is your work area untidy and disorganized with books lying around, empty food wrappers, or notes written on scraps of paper? All these things can cause you to have difficulty concentrating.
 
-If you want to eliminate distractions you should [declutter](/declutter-your-home), remove any unnecessary items, and keep only the project you are working on in front of you.
+If you want to eliminate distractions you should [declutter](https://selfsaid.30tools.com/declutter-your-home), remove any unnecessary items, and keep only the project you are working on in front of you.
 
 ## 4\. Gossipy Co-Workers
 
@@ -83,3 +83,5 @@ Pin3
 [More](#)
 
 3 Shares
+
+Source: https://selfsaid.30tools.com/how-to-eliminate-distractions-at-work/

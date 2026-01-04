@@ -12,9 +12,9 @@ original_url: 'https://selfsaid.30tools.com/maturity-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/maturity-quotes.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-Discover the true meaning of maturity through these 50 powerful quotes highlighting self-awareness, patience, emotional intelligence, responsibility, life’s challenges, and [personal growth](/ten-ways-to-accelerate-your-personal-growth-and-development).
+Discover the true meaning of maturity through these 50 powerful quotes highlighting self-awareness, patience, emotional intelligence, responsibility, life’s challenges, and [personal growth](https://selfsaid.30tools.com/ten-ways-to-accelerate-your-personal-growth-and-development).
 
 ## Maturity Quotes
 
@@ -131,3 +131,5 @@ Discover the true meaning of maturity through these 50 powerful quotes highlight
 [More](#)
 
 8 Shares
+
+Source: https://selfsaid.30tools.com/maturity-quotes/

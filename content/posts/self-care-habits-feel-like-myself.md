@@ -12,7 +12,7 @@ original_url: 'https://selfsaid.30tools.com/self-care-habits-feel-like-myself/'
 
 ![](https://seffsaid.com/wp-content/uploads/self-care-habits-600.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 Self-care isn’t always easy or pretty. For me, it’s often about returning to small habits that help me remember who I am, especially when life feels overwhelming or I’ve drifted from myself. Here are ten self-care habits that consistently bring me back to feeling grounded, calm, and genuinely me.
 
@@ -40,7 +40,7 @@ I feel most myself when I protect my boundaries and say no to commitments that d
 
 **Why it matters**: Setting boundaries preserves your energy for what truly matters to you, preventing emotional burnout.
 
-If this is something you struggle with, I wrote a book that might help. It’s called [Learn How to Say No](/learn-how-to-say-no).
+If this is something you struggle with, I wrote a book that might help. It’s called [Learn How to Say No](https://selfsaid.30tools.com/learn-how-to-say-no).
 
 ## 4\. Cooking Slowly
 
@@ -113,3 +113,5 @@ Self-care doesn’t have to be complicated. Simple habits, practiced with intent
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/self-care-habits-feel-like-myself/

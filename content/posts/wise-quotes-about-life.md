@@ -12,32 +12,32 @@ original_url: 'https://selfsaid.30tools.com/wise-quotes-about-life/'
 
 ![Wise Quotes About Life](https://seffsaid.com/wp-content/uploads/wise-quotes-about-life-1.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-This collection has expanded from an initial 38 to a remarkable 156 wise quotes about life. Each quote in this compilation offers a unique blend of wisdom, presenting [rare insights](/rare-inspirational-quotes) and valuable life lessons through succinct yet powerful phrases. As you delve into these sayings, you’ll discover a selection of diverse experiences and wisdom drawn from various walks of life. This collection hopes to broaden your perspective, equipping you with a wealth of wisdom to guide you in your own life journey.
+This collection has expanded from an initial 38 to a remarkable 156 wise quotes about life. Each quote in this compilation offers a unique blend of wisdom, presenting [rare insights](https://selfsaid.30tools.com/rare-inspirational-quotes) and valuable life lessons through succinct yet powerful phrases. As you delve into these sayings, you’ll discover a selection of diverse experiences and wisdom drawn from various walks of life. This collection hopes to broaden your perspective, equipping you with a wealth of wisdom to guide you in your own life journey.
 
 ## 156 Wise Quotes About Life
 
 1.  “In three words I can sum up everything I’ve learned about life: it goes on.” – Robert Frost
 2.  “Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.” – Buddha
-3.  “Life is what happens when you’re busy making other plans.” – [John Lennon](/john-lennon-quotes)
-4.  It does not do to dwell on dreams and forget to live.” – [J.K. Rowling](/j-k-rowling-quotes)
+3.  “Life is what happens when you’re busy making other plans.” – [John Lennon](https://selfsaid.30tools.com/john-lennon-quotes)
+4.  It does not do to dwell on dreams and forget to live.” – [J.K. Rowling](https://selfsaid.30tools.com/j-k-rowling-quotes)
 5.  “It’s not the years in your life that count. It’s the life in your years.” – Abraham Lincoln
 6.  “Turn your wounds into wisdom.” – Oprah Winfrey
 7.  “The greatest glory in living lies not in never falling, but in rising every time we fall.” – Nelson Mandela
-8.  The way I see it, if you want the rainbow, you gotta put up with the rain.” – [Dolly Parton](/dolly-parton-quotes)
+8.  The way I see it, if you want the rainbow, you gotta put up with the rain.” – [Dolly Parton](https://selfsaid.30tools.com/dolly-parton-quotes)
 9.  “Don’t cry because it’s over, smile because it happened.” – Dr. Seuss
 10.  “To live is so startling it leaves little time for anything else.” – Emily Dickinson
 11.  “Live as if you were to die tomorrow. Learn as if you were to live forever.” – Mahatma Gandhi
 12.  “Life shrinks or expands in proportion to one’s courage.” – Anaïs Nin
 13.  “The heart, like the stomach, wants a varied diet.” – Gustave Flaubert
 14.  “Life is either a great adventure or nothing.” – Helen Keller
-15.  “Human happiness and moral duty are inseparably connected.” – [George Washington](/george-washington-quotes)
+15.  “Human happiness and moral duty are inseparably connected.” – [George Washington](https://selfsaid.30tools.com/george-washington-quotes)
 16.  “Life is like riding a bicycle. To keep your balance, you must keep moving.” – Albert Einstein
 17.  “Keep your face always toward the sunshine – and shadows will fall behind you.” – Walt Whitman
 18.  “Life isn’t about finding yourself. Life is about creating yourself.” – George Bernard Shaw
-19.  “Our lives begin to end the day we become silent about things that matter.” – [Martin Luther King Jr.](/martin-luther-king-quotes)
-20.  “[Life is short](/the-26-best-short-life-quotes), and it’s up to you to make it sweet.” – Sarah Louise Delany
+19.  “Our lives begin to end the day we become silent about things that matter.” – [Martin Luther King Jr.](https://selfsaid.30tools.com/martin-luther-king-quotes)
+20.  “[Life is short](https://selfsaid.30tools.com/the-26-best-short-life-quotes), and it’s up to you to make it sweet.” – Sarah Louise Delany
 21.  “The best preparation for tomorrow is doing your best today.” – H. Jackson Brown Jr.
 22.  “In order to write about life first you must live it.” – Ernest Hemingway
 23.  “Life is a series of natural and spontaneous changes. Don’t resist them; that only creates sorrow. Let reality be reality.” – Lao Tzu
@@ -52,22 +52,22 @@ This collection has expanded from an initial 38 to a remarkable 156 wise quotes 
 32.  “Change your thoughts and you change your world.” – Norman Vincent Peale
 33.  “May you live all the days of your life.” – Jonathan Swift
 34.  “Life is a journey, not a destination.” – Ralph Waldo Emerson
-35.  “Life is short, break the rules. Forgive quickly, kiss slowly, love truly, laugh uncontrollably, and never regret anything that made you smile.” – [Mark Twain](/25-inspirational-mark-twain-quotes)
+35.  “Life is short, break the rules. Forgive quickly, kiss slowly, love truly, laugh uncontrollably, and never regret anything that made you smile.” – [Mark Twain](https://selfsaid.30tools.com/25-inspirational-mark-twain-quotes)
 36.  “Life is too important to be taken seriously.” – Oscar Wilde
 37.  “Life is ten percent what happens to you and ninety percent how you respond to it.” – Charles Swindoll
 38.  “The big lesson in life, baby, is never be scared of anyone or anything.” – Frank Sinatra
 39.  “The only disability in life is a bad attitude.” – Scott Hamilton
 40.  “Life is about creating yourself.” – George Bernard Shaw
-41.  “We’re all born with a completely blank canvas, and your life paints that canvas.” – [Billie Eilish](/billie-eilish-quotes)
+41.  “We’re all born with a completely blank canvas, and your life paints that canvas.” – [Billie Eilish](https://selfsaid.30tools.com/billie-eilish-quotes)
 42.  “Life is a mirror and will reflect back to the thinker what he thinks into it.” – Ernest Holmes
-43.  “Life is really generous to those who pursue their personal legend.” – [Paulo Coelho](/20-inspiring-paulo-coelho-quotes)
+43.  “Life is really generous to those who pursue their personal legend.” – [Paulo Coelho](https://selfsaid.30tools.com/20-inspiring-paulo-coelho-quotes)
 44.  “Life is a game and true love is a trophy.” – Rufus Wainwright
-45.  Don’t count the days, make the days count.” – [Muhammad Ali](/muhammad-ali-quotes)
+45.  Don’t count the days, make the days count.” – [Muhammad Ali](https://selfsaid.30tools.com/muhammad-ali-quotes)
 46.  “Life’s too mysterious to take too serious.” – Mary Engelbreit
-47.  “If you love life, don’t waste time, for time is what life is made up of.” – [Bruce Lee](/bruce-lee-quotes)
+47.  “If you love life, don’t waste time, for time is what life is made up of.” – [Bruce Lee](https://selfsaid.30tools.com/bruce-lee-quotes)
 48.  “Life is not a matter of holding good cards, but sometimes, playing a poor hand well.” – Jack London
 49.  “Life is ten percent what happens to you and ninety percent how you react to it.” – Charles Swindoll
-50.  “The purpose of our lives is to be happy.” – [Dalai Lama](/inspirational-quotes-dalai-lama)
+50.  “The purpose of our lives is to be happy.” – [Dalai Lama](https://selfsaid.30tools.com/inspirational-quotes-dalai-lama)
 51.  “Life is what happens when you’re busy making other plans.” – Allen Saunders
 52.  “Get busy living or get busy dying.” – Stephen King
 53.  “You only live once, but if you do it right, once is enough.” – Mae West
@@ -106,7 +106,7 @@ This collection has expanded from an initial 38 to a remarkable 156 wise quotes 
 86.  “The greatest discovery of any generation is that a human can alter his life by altering his attitude.” – William James
 87.  “Life is a journey, and if you fall in love with the journey, you will be in love forever.” – Peter Hagerty
 88.  “The game of life is not so much in holding a good hand as playing a poor hand well.” – H.T. Leslie
-89.  “The [biggest mistake you can make in life](/5-common-life-mistakes-to-avoid) is to be continually fearing you will make one.” – Elbert Hubbard
+89.  “The [biggest mistake you can make in life](https://selfsaid.30tools.com/5-common-life-mistakes-to-avoid) is to be continually fearing you will make one.” – Elbert Hubbard
 90.  “Life is a flower of which love is the honey.” – Jean Baptiste Alphonse Karr
 91.  “Life is a daring adventure or nothing at all.” – Helen Keller
 92.  “Life is a succession of lessons which must be lived to be understood.” – Ralph Waldo Emerson
@@ -122,7 +122,7 @@ This collection has expanded from an initial 38 to a remarkable 156 wise quotes 
 102.  “Life is really simple, but men insist on making it complicated.” – Confucius
 103.  “Life is a dream for the wise, a game for the fool, a comedy for the rich, a tragedy for the poor.” – Sholom Aleichem
 104.  “Do not take life too seriously. You will never get out of it alive.” – Elbert Hubbard
-105.  Our life is what our thoughts make it.” – [Marcus Aurelius](/marcus-aurelius-quotes)
+105.  Our life is what our thoughts make it.” – [Marcus Aurelius](https://selfsaid.30tools.com/marcus-aurelius-quotes)
 106.  “Life is 10% what happens to us and 90% how we react to it.” – Charles R. Swindoll
 107.  “Good friends, good books, and a sleepy conscience: this is the ideal life.” – Mark Twain
 108.  “Life is short, and it is up to you to make it sweet.” – Sarah Louise Delany
@@ -134,7 +134,7 @@ This collection has expanded from an initial 38 to a remarkable 156 wise quotes 
 114.  “Life is not about how fast you run or how high you climb, but how well you bounce.” – Vivian Komori
 115.  “Life is short, and truth works far and lives long: let us speak the truth.” – Arthur Schopenhauer
 116.  “Life can only be understood backwards; but it must be lived forwards.” – Søren Kierkegaard
-117.  “Life is not measured by the number of breaths we take, but by the moments that take our breath away.” – [Maya Angelou](/maya-angelou-quotes)
+117.  “Life is not measured by the number of breaths we take, but by the moments that take our breath away.” – [Maya Angelou](https://selfsaid.30tools.com/maya-angelou-quotes)
 118.  “Life without love is like a tree without blossoms or fruit.” – Khalil Gibran
 119.  “Life shrinks or expands in proportion to one’s courage.” – Anais Nin
 120.  “The biggest adventure you can take is to live the life of your dreams.” – Oprah Winfrey
@@ -147,10 +147,10 @@ This collection has expanded from an initial 38 to a remarkable 156 wise quotes 
 127.  “Life isn’t about getting and having, it’s about giving and being.” – Kevin Kruse
 128.  “The only way to live is by accepting each minute as an unrepeatable miracle.” – Tara Brach
 129.  “Life is the art of drawing without an eraser.” – John W. Gardner
-130.  “Life is inherently risky. There is only one big risk you should avoid at all costs, and that is the risk of [doing nothing](/reasons-to-do-nothing).” – Denis Waitley
+130.  “Life is inherently risky. There is only one big risk you should avoid at all costs, and that is the risk of [doing nothing](https://selfsaid.30tools.com/reasons-to-do-nothing).” – Denis Waitley
 131.  “Life is what happens to you while you’re busy making other plans.” – Allen Saunders
 132.  “Life is a succession of moments. To live each one is to succeed.” – Corita Kent
-133.  “When you think about how [time is passing](/the-20-greatest-time-passing-quotes), think about how you can use what is passing with time. You can’t stop time but you can use or misuse what is passing with time” – Ernest Agyemang Yeboah
+133.  “When you think about how [time is passing](https://selfsaid.30tools.com/the-20-greatest-time-passing-quotes), think about how you can use what is passing with time. You can’t stop time but you can use or misuse what is passing with time” – Ernest Agyemang Yeboah
 134.  “The greatest pleasure in life is doing what people say you cannot do.” – Walter Bagehot
 135.  “Life is a series of peaks and valleys. Sometimes you’re up, sometimes you’re down.” – Ken Griffey Jr.
 136.  “Life is much more successfully looked at from a single window.” – F. Scott Fitzgerald
@@ -188,3 +188,5 @@ This collection has expanded from an initial 38 to a remarkable 156 wise quotes 
 [More](#)
 
 480 Shares
+
+Source: https://selfsaid.30tools.com/wise-quotes-about-life/

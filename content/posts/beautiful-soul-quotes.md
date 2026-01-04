@@ -13,7 +13,7 @@ original_url: 'https://selfsaid.30tools.com/beautiful-soul-quotes/'
 
 ![](https://seffsaid.com/wp-content/uploads/beautiful-soul-quotes-1.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 “You have such a beautiful soul.” – Seff Bray
 
@@ -146,3 +146,5 @@ Pin144
 [More](#)
 
 144 Shares
+
+Source: https://selfsaid.30tools.com/beautiful-soul-quotes/

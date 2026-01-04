@@ -13,17 +13,17 @@ original_url: 'https://selfsaid.30tools.com/self-care-routine/'
 
 ![](https://seffsaid.com/wp-content/uploads/Self-Care-Routine-Real-Life.webp)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
-[Taking care of yourself](/what-taking-care-of-yourself-really-means) doesn’t have to be complicated. It’s not about doing everything right or perfect, it’s about showing up for yourself in small, steady ways. And when you do, the difference is real. Less tension. More calm. A little more energy to get through the day without feeling like you’re constantly behind.
+[Taking care of yourself](https://selfsaid.30tools.com/what-taking-care-of-yourself-really-means) doesn’t have to be complicated. It’s not about doing everything right or perfect, it’s about showing up for yourself in small, steady ways. And when you do, the difference is real. Less tension. More calm. A little more energy to get through the day without feeling like you’re constantly behind.
 
-This isn’t a checklist. It’s a collection of simple [things that can support your mind](/doing-one-thing-slowly), your body, and your heart, without pressure.
+This isn’t a checklist. It’s a collection of simple [things that can support your mind](https://selfsaid.30tools.com/doing-one-thing-slowly), your body, and your heart, without pressure.
 
 ## Morning Habits for a Soft Start
 
 How your day begins matters, but that doesn’t mean it has to be intense or overly structured. Just a few kind moments in the morning can shape how you move through everything else.
 
-*   **[Drink water](/grounding-power-of-drinking-water) first**  
+*   **[Drink water](https://selfsaid.30tools.com/grounding-power-of-drinking-water) first**  
     Start with hydration, not hustle. A glass of water when you wake up helps your body ease into the day and supports your digestion and energy.
 *   **Move your body gently**  
     You don’t need a full workout. A slow stretch or a quiet walk can help shake off sleep and reconnect you with your body.
@@ -41,18 +41,18 @@ The middle of the day can feel like a blur. Meetings, errands, messages… every
 *   **Eat to feel steady, not spiked**  
     Choose meals and snacks that give you sustained energy, not a sugar high followed by a crash. Whole foods, when possible. Gentle fuel.
 *   **Breathe, slowly**  
-    A few deep breaths, really deep ones, can calm your nervous system and bring you back to the present. [You don’t have to fix everything](/you-dont-have-to-fix-everything). Just pause.
+    A few deep breaths, really deep ones, can calm your nervous system and bring you back to the present. [You don’t have to fix everything](https://selfsaid.30tools.com/you-dont-have-to-fix-everything). Just pause.
 *   **Move a little**  
     If you’ve been sitting for a while, take a lap. Shake out your arms. Step outside if you can. Your body isn’t built to stay still all day.
 
 ## Evening Practices for Winding Down
 
-How you end the day is just as important as how you begin it. Your evening can become a soft signal to your [mind and body](/56-self-care-ideas-for-a-healthy-mind-and-body): it’s okay to rest now.
+How you end the day is just as important as how you begin it. Your evening can become a soft signal to your [mind and body](https://selfsaid.30tools.com/56-self-care-ideas-for-a-healthy-mind-and-body): it’s okay to rest now.
 
 *   **Avoid late-day stimulants**  
     Caffeine, heavy meals, or too much noise can keep your system buzzing when you want to sleep. Try a calming tea, a light snack, or something that soothes rather than spikes.
 *   **Turn down the screens**  
-    Blue light and endless scrolling aren’t exactly bedtime rituals. [Try putting your phone away an hour before sleep](/phone-free-hour) and letting your brain slow down naturally.
+    Blue light and endless scrolling aren’t exactly bedtime rituals. [Try putting your phone away an hour before sleep](https://selfsaid.30tools.com/phone-free-hour) and letting your brain slow down naturally.
 *   **Reflect with gratitude**  
     It doesn’t have to be a full journal entry. Just one or two good things from the day, something small that felt okay. It helps shift your focus from “what didn’t happen” to “what was good.”
 *   **Create a restful space**  
@@ -89,3 +89,5 @@ Pin2
 [More](#)
 
 2 Shares
+
+Source: https://selfsaid.30tools.com/self-care-routine/

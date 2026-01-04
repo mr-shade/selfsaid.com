@@ -17,7 +17,7 @@ original_url: >-
 
 ![Six months from now you can be in a completely different space mentally, spiritually, and financially.](https://seffsaid.com/wp-content/uploads/Six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## Six Months From Now You Can Be In A Completely Different Space Mentally, Spiritually, And Financially.
 
@@ -44,3 +44,5 @@ Overall, the quote is a motivational statement emphasizing the potential for dra
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/six-months-from-now-you-can-be-in-a-completely-different-space-mentally-spiritually-and-financially/

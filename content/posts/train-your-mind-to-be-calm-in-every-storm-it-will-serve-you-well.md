@@ -12,7 +12,7 @@ original_url: >-
 
 ![Train your mind to be calm in every storm. It will serve you well.](https://seffsaid.com/wp-content/uploads/Train-your-mind-to-be-calm-in-every-storm.jpg)
 
-**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](/newsletter) for self-care tips and doable habits that support your well-being.**
+**\> Feeling burnt out? Subscribe to my [**Everyday Self-Care Newsletter**](https://selfsaid.30tools.com/newsletter) for self-care tips and doable habits that support your well-being.**
 
 ## Train Your Mind To Be Calm In Every Storm. It Will Serve You Well.
 
@@ -22,7 +22,7 @@ The quote “Train your mind to be calm in every storm. It will serve you well.�
 2.  **To be calm in every storm**: The “storm” here is a metaphor for the various difficulties, crises, or stressful scenarios we encounter in life. Being “calm” refers to maintaining a state of mental stability and clarity, rather than succumbing to panic, fear, or irrational thinking.
 3.  **It will serve you well**: This part of the quote implies that there are significant benefits to developing this skill. Being able to remain calm under pressure can lead to better decision-making, reduced stress, and more effective problem-solving.
 
-In essence, the quote is advising that if you [train yourself to stay calm](/how-to-stay-calm-in-stressful-situations) and composed during tough times (“storms”), this skill will be incredibly beneficial in navigating life’s challenges effectively. It’s a call to develop emotional resilience and mental fortitude.
+In essence, the quote is advising that if you [train yourself to stay calm](https://selfsaid.30tools.com/how-to-stay-calm-in-stressful-situations) and composed during tough times (“storms”), this skill will be incredibly beneficial in navigating life’s challenges effectively. It’s a call to develop emotional resilience and mental fortitude.
 
 [Share](https://www.facebook.com/share.php?u=https%3A%2F%2Fselfsaid.30tools.com%2Ftrain-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well%2F)
 
@@ -37,3 +37,5 @@ In essence, the quote is advising that if you [train yourself to stay calm](/how
 [More](#)
 
 1 Shares
+
+Source: https://selfsaid.30tools.com/train-your-mind-to-be-calm-in-every-storm-it-will-serve-you-well/
